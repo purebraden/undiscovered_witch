@@ -1473,13 +1473,11 @@ No one disagreed.
 
 # Chapter 11
 
-Chairs didn’t scrape as much.
+The room had learned a new rule without anyone saying it out loud: don’t complete the motion until you’re sure you’re allowed to have started it.
 
-A woman two rows up started to stand, stopped, and sat again without looking at anyone. Someone coughed into their sleeve and didn’t apologize. A bag was nudged closer to a pair of feet, then nudged again like the first adjustment hadn’t been enough.
+People half-stood and sat again. Coughs died in throats. Zippers stalled mid-pull. It wasn’t silence. It was rehearsal.
 
-Robert noticed it, though he couldn’t have said when it started, only that people were stopping halfway through movements and leaving them there. Things began and didn’t finish. Voices dipped before they reached their point.
-
-Samantha leaned against him, her leg tucked closer now, foot resting on the edge of his shoe. Alicia sat upright on his other side, backpack between her feet. Her eyes kept moving, small checks, not landing long enough to settle.
+Samantha leaned against Robert, her leg tucked close, foot resting on the edge of his shoe. Alicia sat upright on his other side, backpack between her feet, eyes moving in small checks like she was reading the room the way other kids read chapter books.
 
 A man near the aisle stood.
 
@@ -1535,6 +1533,10 @@ The words were already there.
 
 They hovered briefly, gray and unimpressed. Robert swiped at the air. The text disappeared.
 
+It hit him then that the room didn’t only punish the loud people.
+
+It graded the helpers.
+
 The man sat very still. A woman beside him leaned a fraction away, not enough to be obvious. Someone farther down pulled their bag closer, zipper whispering once and then stopping.
 
 “Was he in trouble?” Samantha whispered.
@@ -1549,9 +1551,7 @@ No one said anything.
 
 # Chapter 12
 
-A chair scraped and stopped short, the sound unfinished. Someone cleared their throat and then didn’t speak. A woman laughed once, quietly, like she’d meant to agree with something that never came.
-
-The room hadn’t gone silent. It just kept tripping over its own noises.
+By now the room’s noises felt supervised—every scrape and cough starting, then thinking better of it.
 
 Robert sat with Samantha tucked against his side. Her ankle was still wrapped, still swollen, but she wasn’t guarding it the way she had been. She flexed her toes once, stopped, and stared at the floor like she was counting something there.
 
@@ -1623,11 +1623,9 @@ Robert stayed seated, his hand still wrapped around Samantha’s, the room’s n
 
 # Chapter 13
 
-A cough cut off halfway, like the person had changed their mind mid-sound.
+After Alicia left, the room developed a new kind of quiet—less fear and more policy.
 
-Somewhere behind Robert, a voice murmured, “Mine keeps—” and stopped. Another voice answered too quickly, too quiet to catch, and then there was the soft squeak of a sneaker on tile as someone shifted their feet under a chair.
-
-Robert didn’t turn around. He’d learned what turning looked like.
+Somewhere behind Robert, a voice murmured, “Mine keeps—” and stopped. Another voice answered too quickly, too quiet to catch. Robert didn’t turn around. He’d learned what turning looked like.
 
 Samantha leaned against him, warm through her sweatshirt, her wrapped ankle tucked close. She wasn’t asleep. Her eyes were open, fixed on nothing in particular, the way kids looked when they were trying not to think about pain.
 
