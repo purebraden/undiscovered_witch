@@ -2,15 +2,15 @@
 
 The handoff was fast.
 
-Too fast for small talk, too fast for second guesses. The girls climbed out of the car with their backpacks already on, jackets zipped, hair still damp from the rain. Their mother stayed in the driver’s seat, engine running, phone wedged between her shoulder and ear.
+Too fast for small talk, too fast for second guesses. The girls climbed out of the car with their backpacks already on, jackets zipped, hair still damp from the rain. Their mother stayed in the driver’s seat, engine running, phone wedged between her shoulder and ear, doing that thing where a person is physically present but mentally halfway down the road.
 
 “I’ll text when I’m home,” she said, distracted. “They ate already.”
 
-Robert nodded. He always nodded. He took the bags, shut the door, and stood on the curb while her car pulled away and merged back into traffic.
+Robert nodded. He always nodded. The nod had been perfected during the divorce—noncommittal, polite, useful as a paper towel. He took the bags, shut the door, and stood on the curb while her car pulled away and merged back into traffic.
 
 That was the last normal thing that happened.
 
-He was halfway to the front door when the air changed. A pressure drop. The kind that made his ears ring and his stomach tighten for no clear reason.
+He was halfway to the front door when the air changed. A pressure drop. The kind that made his ears ring and his stomach tighten for no clear reason, like his body had gotten a text his phone couldn’t receive.
 
 Alicia stopped walking. “Dad?”
 
@@ -30,9 +30,9 @@ Closer this time. A sharp metallic shriek followed by a dull, concussive thud. T
 
 Samantha screamed.
 
-Robert dropped to a knee, pulling both girls against him. He could smell something acrid through the closed windows. Not smoke. Something cleaner. Industrial.
+Robert dropped to a knee, pulling both girls against him. He could smell something acrid through the closed windows. Not smoke. Something cleaner. Industrial. The kind of smell that belonged in a factory, not in your living room on a Friday night.
 
-“Basement,” he said. “Now.”
+“Basement,” he said. “Now. Move your butts.”
 
 They made it halfway down the stairs when the pounding started at the front door.
 
@@ -40,13 +40,15 @@ They made it halfway down the stairs when the pounding started at the front door
 
 Robert froze.
 
+His hand went toward the deadbolt anyway, because that’s what decent people did. That’s what they were raised to do. Then he pictured a stranger’s hand on the other side of the door, and the picture didn’t come with a face. It came with teeth.
+
 The pounding came again. Harder. The doorframe rattled.
 
 Alicia’s grip tightened on his arm. She didn’t say anything.
 
 Robert listened.
 
-He counted breaths. One. Two. Three.
+He counted breaths. One. Two. Three. Four—because he was the kind of guy who believed the extra breath might change the outcome.
 
 Another sound cut through the shouting—glass breaking somewhere down the street. A crash, followed by a woman screaming.
 
@@ -54,7 +56,7 @@ The pounding stopped.
 
 Footsteps ran past the house.
 
-Robert exhaled slowly and kept moving.
+Robert exhaled slowly and kept moving, hating himself for it and doing it anyway.
 
 They stayed in the basement until the noises thinned out, until the shouting turned into distant, directionless sound. When they finally came back upstairs, the house felt smaller. Like it had already learned something about them.
 
@@ -62,7 +64,7 @@ Outside, the street was dark. No streetlights. No passing cars. Just people movi
 
 Robert locked the door again.
 
-They ate peanut butter straight from the jar because it didn’t require cooking. Samantha complained about the taste. Alicia didn’t.
+They ate peanut butter straight from the jar because it didn’t require cooking. Samantha complained about the taste. Alicia didn’t. Alicia watched the dark windows like she expected them to complain back.
 
 Just before midnight, Robert dug the old radio out of the hall closet.
 
@@ -197,9 +199,9 @@ The clinic lights were on.
 
 That felt like a promise.
 
-Inside, it was chaos under fluorescent lighting. Too many people packed into too little space. A constant low roar of voices layered with crying, coughing, raised arguments that never quite turned into fights.
+Inside, it was chaos under fluorescent lighting. Too many people packed into too little space. A constant low roar of voices layered with crying, coughing, raised arguments that never quite turned into fights. It smelled like wet coats, disinfectant, and fear—fear always had a smell, if you paid attention.
 
-A nurse at the desk didn’t look up when they approached.
+A nurse at the desk didn’t look up when they approached. She looked like she’d been built out of coffee and irritation.
 
 “Name.”
 
@@ -217,7 +219,7 @@ Robert gave it.
 
 “No.”
 
-The nurse nodded once, already reaching for a clipboard. “Take a seat.”
+The nurse nodded once, already reaching for a clipboard. “Take a seat. If you pass out, try not to land on anybody.”
 
 They waited.
 
@@ -229,7 +231,7 @@ Eventually, a different nurse waved them over without making eye contact.
 
 She pressed along Samantha’s ankle quickly, efficiently, without warning. Samantha cried out.
 
-“Sprain,” the nurse said immediately. “Happening a lot tonight.”
+“Sprain,” the nurse said immediately. “Happening a lot tonight.” Like it was a sale item.
 
 She wrapped the ankle briskly, the elastic bandage firm but imperfect, already loosening at the edges by the time she finished.
 
@@ -237,7 +239,7 @@ She wrapped the ankle briskly, the elastic bandage firm but imperfect, already l
 
 “No X-ray?” Robert asked.
 
-The nurse hesitated just long enough to be irritated. “Not unless she can’t feel her toes.”
+The nurse hesitated just long enough to be irritated. “Not unless she can’t feel her toes. Or the bone starts waving hello.”
 
 She was already gone.
 
@@ -255,7 +257,7 @@ Text hung in the air, sharp and wrong, layered over the scuffed wall by the exit
 **Trait Affected: Mobility**  
 **Condition Applied: Slowed**
 
-“What the fuck,” Robert whispered.
+“What the fuck,” Robert whispered, because sometimes profanity was just accuracy.
 
 He turned his head. The words stayed.
 
@@ -609,7 +611,7 @@ Robert didn’t answer because the answer had already begun to form, unwelcome a
 
 The clipboard woman returned to the doorway, her pen hovering.
 
-“Last check,” she said. “After this, we’ll finalize groupings.”
+“Last check,” she said. “After this, we’ll finalize groupings.” Like they were closing down a register and all the customers had to go somewhere.
 
 Robert looked down at Samantha’s ankle. The swelling hadn’t gone down at all. If anything, it had crept higher, the wrap stretched tight and uneven, the skin beneath it flushed and angry. Samantha noticed his gaze and shook her head almost imperceptibly, her fingers tightening in his shirt.
 
@@ -617,23 +619,25 @@ Robert looked down at Samantha’s ankle. The swelling hadn’t gone down at all
 
 He knew that.
 
+He also knew something else, ugly and immediate: nobody in this room got points for being honest.
+
 He also knew that the question wasn’t whether she could walk.
 
-It was whether he could say she could.
+It was whether he could say she could and live with himself afterward.
 
 When the woman’s eyes met his, he heard himself speak before he could stop it.
 
 “She can walk,” Robert said. “She just twisted it. She’s sore, but she can manage.”
 
-The lie landed softly, shaped exactly like the truth would have.
+The lie landed softly, shaped exactly like the truth would have, and he hated how easy that was.
 
 The woman glanced down at Samantha’s ankle, then at Robert’s face, her expression unreadable.
 
-“Can you walk, sweetheart?” she asked.
+“Can you walk for me, sweetheart?” she asked.
 
 Samantha hesitated for half a second too long.
 
-Robert tightened his arm around her, just slightly. “She can,” he said, firmer now. “She just doesn’t like to.”
+Robert tightened his arm around her, just slightly. “She can,” he said, firmer now. “She gets dramatic. But she can.”
 
 The woman nodded.
 
@@ -670,10 +674,59 @@ He was still thinking about the word **Efficient**, and how easily it had appear
 
 ---
 
-# Achievement_Unlocked_Survivor_Chapter_06_FINAL.md
+# Chapter 6: The Green Room
 
-[File missing]
+Robert expected “green” to mean _out_. Home. A couch. A door with a lock he controlled.
 
+Instead, “green” meant another room.
+
+They were funneled into it with the same soft voices and the same hands that never quite pushed and never quite let you forget they could. The room was bigger than the classroom—cafeteria, maybe, or a multipurpose room that smelled faintly of mop water and old pizza even when there was no pizza. Folding tables had been shoved to the walls. Chairs were set in neat little islands, like whoever arranged them had been trying to pretend this wasn’t a holding pen.
+
+People talked in that brittle, whispery way people talked at wakes and in hospital waiting rooms. Too polite. Too careful. Like the room itself might take offense.
+
+Samantha leaned into Robert, her ankle throbbing against his foot. Every time she adjusted, his arms flared with that wrong heaviness, as if the clinic had quietly added sand to his bones.
+
+“We’re leaving now, right?” she asked, hopeful in the way that made him want to break something.
+
+“Soon,” Robert lied, because he’d been doing a lot of that lately and it kept getting rewarded.
+
+Alicia sat with her backpack upright between her feet, hands folded like she was in church. Her eyes kept ticking around the room, landing on staff, landing on doorways, landing on empty patches of air as if there were things there worth reading.
+
+Robert tried not to watch her. He watched her anyway.
+
+A man two chairs over muttered, “This is some bullshit,” and his wife hissed at him like profanity would summon a staff member the way saying Bloody Mary summoned a ghost.
+
+Robert almost laughed. It came out as a cough.
+
+Across the room, a staff member with a tablet paused beside an old man and murmured something. The old man nodded too quickly. When the staff member moved on, the old man’s shoulders dropped like he’d just been spared. Nobody congratulated him. Nobody asked why.
+
+Robert looked at the doors. There were three. Only one was being used. The others might as well have been painted on.
+
+His phone buzzed against his thigh—phantom vibration, maybe, or maybe not. He pulled it out and saw signal bars.
+
+Not full. Not even good. But there. Present. A little green miracle.
+
+His thumb hovered over the screen, the old habit rising like a prayer: call Anne. Text. Say _are you seeing this_.
+
+Beside him, Alicia whispered without moving her mouth. “Don’t.”
+
+The word was so quiet it could have been his own thought.
+
+Robert stared at her.
+
+Alicia didn’t look back. She kept her eyes on the aisle and swallowed once, like she was trying to swallow down a warning.
+
+Robert slid the phone back into his pocket.
+
+The room hummed. The lights hummed. The building hummed like it was digesting them.
+
+Somewhere nearby, a child started crying and got shushed fast, like that sound was illegal now.
+
+Then a voice—calm, practiced—called from the doorway, “We need everyone to remain seated until verification clears.”
+
+Nobody asked what verification was.
+
+Robert hated them all for that, including himself.
 
 ---
 
@@ -702,19 +755,19 @@ He let himself breathe when it connected.
 
 There was road noise behind her, the muted rush of tires on pavement, a turn signal clicking close to the receiver.
 
-“Hey,” Robert said. “It’s me.”
+“Hey,” Robert said. “It’s Rob. It’s—” He swallowed. “It’s me.”
 
 A pause.
 
 “Who is this?”
 
-He frowned. “Robert.”
+He frowned. “Robert. Robert Hardy.”
 
 Another pause. Longer this time.
 
 “I think you’ve got the wrong number,” the woman said.
 
-“No,” Robert replied automatically. “Sorry—can you put me on with—”
+“No,” Robert said. “No, I don’t. Sorry—can you put me on with Anne?”
 
 “I don’t know anyone named Robert,” she said. Not unkindly. Just certain. “Who are you trying to reach?”
 
@@ -722,13 +775,13 @@ His throat tightened. “This is Anne’s phone.”
 
 Silence. Then a short laugh. “No, it isn’t.”
 
-“Yes, it is,” he said, sharper than he meant to. “I’ve had this number for years.”
+“Yes, it is,” he said, sharper than he meant to. “I’ve had this number for years. My kids have this number memorized.”
 
 “Well,” she said, “you don’t have it now.”
 
 Robert looked down at the screen. The number glowed there exactly as it always had. Same digits. Same spacing. No roaming indicator. No warning.
 
-“Who am I talking to?” he asked.
+“Who am I talking to?” he asked, and heard how thin he sounded.
 
 “Melissa,” she said. “And I don’t know an Anne. Or a Robert.”
 
@@ -736,7 +789,7 @@ A horn blared behind her.
 
 “Look,” she continued, impatience creeping in, “I’m driving. You should check the number.”
 
-“I did,” he said.
+“I did,” he said. “I did, okay?”
 
 She exhaled. “Then I don’t know what to tell you.”
 
@@ -754,7 +807,7 @@ He didn’t try again.
 
 He slid the phone back into his pocket and sat down, the chair creaking softly under his weight. His heart was still beating too fast, but there was no clean place for the panic to go. Nothing dramatic had happened. Nothing he could point to.
 
-Just a call that had gone somewhere else.
+Just a call that had gone somewhere else, like the whole world had been forwarded and nobody had bothered to tell him.
 
 Across the room, a man near the wall was arguing quietly with his phone, thumb jabbing at the screen. “I’m telling you,” he said to no one in particular, “it rang. Someone picked up. Said they’ve had the number for years.”
 
@@ -1092,7 +1145,7 @@ Alicia watched the aisle.
 
 And above them, the lights hummed on.
 
-# Chapter 9
+# Chapter 9: Keep Things Moving
 
 They didn’t announce the change so much as let it happen.
 
@@ -2424,7 +2477,7 @@ He came through the doorway like he’d meant to cross it and then lost track of
 
 “Give him space,” someone else added, automatic, the way people did when they didn’t know what else to do.
 
-The sheriff looked up and swore under his breath. “What now?”
+The sheriff looked up and swore under his breath. “Jesus Christ. What now?”
 
 The man’s face had gone pale in a way that didn’t match the flushed skin around his eyes. One side of his nose shone wet. He blinked hard, staring at nothing, and when he tried to inhale it hitched like it caught.
 
@@ -2450,7 +2503,7 @@ A murmur went through the room, the same shape as it had in the school—people 
 
 “No, look at him.”
 
-The sheriff stepped around the edge of the crowd, his injured arm held close, jaw clenched as if he were mad at his own body for failing him. “What happened?” he demanded.
+The sheriff stepped around the edge of the crowd, his injured arm held close, jaw clenched as if he were mad at his own body for failing him. “What the hell happened?” he demanded.
 
 The man’s lips moved. Nothing came out at first. He swallowed, and the swallow looked like work.
 
@@ -3200,7 +3253,7 @@ He reached the house and stood on the porch for a moment before opening the door
 
 He went in without turning around.
 
-# Chapter 29
+# Chapter 29: Back to the School
 
 Robert didn’t announce it.
 
@@ -3224,13 +3277,13 @@ She didn’t say anything at first. She just found the low curb and lowered hers
 
 Robert stood beside her and scanned the street.
 
-A man in a work jacket walked past with his phone pressed to his ear. He wasn’t talking loudly, but the morning—or the not-morning—carried sound farther than it should have.
+A man in a work jacket walked past with his phone pressed to his ear. He wasn’t talking loudly, but the morning—or the not-morning—carried sound farther than it should have, like the air itself was nosy.
 
 “No, I’m telling you,” the man said. “The sign’s different. The whole damn place is different.”
 
 He passed without looking at them.
 
-A woman across the street was watering dead plants with a hose that barely ran, the water dribbling out like it didn’t believe in being useful. She looked up when Robert glanced her way, held his gaze for a beat, then looked away first.
+A woman across the street was watering dead plants with a hose that barely ran, the water dribbling out like it didn’t believe in being useful. She looked up when Robert glanced her way, held his gaze for a beat, then looked away first—the universal small-town gesture for I see you and I am not getting involved.
 
 Sam shifted and stood again before Robert could offer help.
 
@@ -3260,7 +3313,7 @@ The woman made a small noise in her throat, not quite a laugh. “Good luck,” 
 
 Sam watched them go. “They’re walking like they know,” she said.
 
-“Know what,” Robert asked.
+“Know what?” Robert asked.
 
 Sam shrugged, as if she’d already said too much.
 
@@ -3286,11 +3339,11 @@ No one looked twice at Sam.
 
 That was the first thing Robert noticed. No pause. No question. No glance at her ankle. She wasn’t new information.
 
-A woman in a navy cardigan approached them with a smile that seemed practiced without being fake. She stopped at a polite distance, close enough to be heard, far enough to stay uninvited.
+A woman in a navy cardigan approached them with a smile that seemed practiced without being fake. She stopped at a polite distance, close enough to be heard, far enough to stay uninvited. She smelled faintly of fabric softener and mint gum, like a mom at an open house who’d decided she was the friendly kind.
 
 “You’re back,” she said.
 
-Robert didn’t return the smile. “I need my daughter. Alicia Hardy.”
+Robert didn’t return the smile. “I need my daughter. Alicia Hardy. Now.”
 
 The woman nodded once, as if confirming something she could already see. “Yes.”
 
@@ -3300,17 +3353,17 @@ The woman’s expression softened in a way that would have been comforting in an
 
 Robert waited.
 
-The woman kept her voice light. “You’re a little early.”
+The woman kept her voice light. “You’re a little early for pickup.”
 
 “I’m not early,” Robert said. “I’m her father.”
 
-“Yes,” the woman said, still gentle, as if he’d repeated a form field. “And you’ve done what you’re supposed to do.”
+“Yes,” the woman said, still gentle, as if he’d repeated a form field. “And you’ve done what you’re supposed to do. Good job.”
 
 Sam shifted beside him. Her face was blank, but her eyes were fixed on the woman’s mouth, following the words like they mattered in a way Robert couldn’t access.
 
 “I want to see her,” Robert said.
 
-“You don’t need to,” the woman said.
+“You don’t need to,” the woman said. “That’s the point.”
 
 Robert stared at her. “That’s not an answer.”
 
@@ -3322,7 +3375,7 @@ The woman’s head tilted slightly. Patient. Correcting. “This part takes long
 
 Robert felt his hands curl into fists at his sides and forced them open again.
 
-“Is she hurt,” he asked.
+“Is she hurt?” he asked.
 
 The woman’s brows lifted a fraction, like the question was understandable but unnecessary. “No,” she said.
 
@@ -3344,13 +3397,15 @@ The woman nodded as if he were right in principle. “Parents always feel that w
 
 Robert looked past her toward the hallways beyond the gym, the doors that led deeper into the school. People moved in and out of those doors with purpose, carrying papers, walking at a pace that suggested the day had been scheduled.
 
-“How long,” Robert asked.
+“How long?” Robert asked.
 
 The woman’s smile thinned. Not anger. Just firmness entering the softness. “Within tolerance,” she said.
 
-Robert blinked. “What does that mean.”
+Robert blinked. “What does that mean? Tolerance like… what, a math class?”
 
 “It means she hasn’t been delayed,” the woman said, and her tone made it sound like good news.
+
+“Is that supposed to make me feel better?” Robert asked.
 
 “That’s not what I asked,” Robert said.
 
@@ -3358,15 +3413,15 @@ The woman’s eyes stayed on his. “I know,” she said gently. “But it’s t
 
 Robert took a step forward before he remembered to stop himself. The woman didn’t move back. She didn’t have to.
 
-“Where is she,” he asked again.
+“Where is she?” he asked again.
 
 The woman’s voice lowered slightly, like she was sharing something private. “She’s where she needs to be,” she said. “And you can stop worrying about whether you’re doing the right thing. You already did it.”
 
-The sentence landed wrong. It closed the space where his worry lived and tried to replace it with permission.
+The sentence landed wrong. It closed the space where his worry lived and tried to replace it with permission. You already did it—like he’d clicked _I agree_ on a screen without reading the terms.
 
 Robert didn’t take the permission.
 
-He shifted tactics again, grasping for something official. “Who’s in charge here,” he asked.
+He shifted tactics again, grasping for something official. “Who’s in charge here?” he asked.
 
 The woman smiled as if he’d asked a question she got all the time. “I can help you,” she said.
 
@@ -3378,11 +3433,11 @@ Robert heard himself breathe.
 
 Sam squeezed his hand once, small and quick. Not comfort. A reminder.
 
-Robert forced himself to look down at her. “You okay,” he asked.
+Robert forced himself to look down at her. “You okay?” he asked.
 
 Sam nodded, but her eyes flicked toward the hallway doors again.
 
-Robert looked back at the woman. “Can I get my car,” he asked, and hated that he was asking it like permission.
+Robert looked back at the woman. “Can I get my car?” he asked, and hated that he was asking it like permission.
 
 The woman’s expression brightened, almost relieved. “Yes,” she said. “Of course.”
 
@@ -3410,7 +3465,7 @@ The engine turned over on the first try, as if this was still a normal day with 
 
 He sat there with it running, staring at the school doors.
 
-Sam said, softly, “Are we coming back.”
+Sam said, softly, “Are we coming back?”
 
 Robert didn’t answer right away.
 
