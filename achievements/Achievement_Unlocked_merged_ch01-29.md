@@ -147,9 +147,9 @@ He only knew that whatever came next would not involve leaving.
 
 # Chapter 2: No Signal
 
-The radio stayed useless, but Robert kept turning the dial anyway, slower now, as if patience might coax something out of it. Static filled the kitchen in a flat, even sheet—no rise, no fall—just sound without information, without shape.
+The radio stayed useless, but Robert kept turning the dial anyway—slow, stubborn, like you could guilt a machine into doing its job. Static filled the kitchen in a flat, even sheet—no rise, no fall—just sound without information, without shape. It sounded like winter television, like a snowstorm inside the speakers, like the world shrugging.
 
-Samantha lay on her stomach on the living room floor, chin in her hands, staring at nothing in particular while the noise went on and on.
+Samantha lay on her stomach on the living room floor, chin in her hands, staring at nothing in particular while the noise went on and on like it had always lived there.
 
 “This is boring,” she said.
 
@@ -314,7 +314,7 @@ Just silence.
 
 # Chapter 3: The Ankle
 
-Morning didn’t fix anything.
+Morning didn’t fix anything. Morning never fixed anything. It just turned the lights on so you could see what was broken.
 
 Samantha tried to stand as soon as she woke up, as if sleeping on it might have been enough. She pushed herself off the couch, jaw set, hands braced, and made it almost upright before her knee buckled and she dropped back down with a sharp breath.
 
@@ -328,13 +328,13 @@ She nodded, embarrassed, and pulled her foot back onto the cushion.
 
 The house felt exposed in daylight.
 
-Not brighter—just uncovered. Every sound carried. The refrigerator cycling. Wind pushing against the siding. Voices outside that rose and fell without pattern.
+Not brighter—just uncovered, like somebody had peeled the wallpaper off reality. Every sound carried. The refrigerator cycling. Wind worrying at the siding. Voices outside that rose and fell without pattern, like the street was trying out arguments it hadn’t committed to yet.
 
 Robert checked his phone.
 
 No signal.
 
-He turned the radio on again. The dial moved. Nothing came through.
+He turned the radio on again. The dial moved. Nothing came through. The world was full of devices doing their little dances without delivering.
 
 “They said sprain,” he said, mostly to himself. “It just needs time.”
 
@@ -435,9 +435,9 @@ They weren’t invisible anymore.
 
 Cars were already moving when they pulled out of the driveway.
 
-Not rushing. Not hesitating. Just going, all in the same direction, steady enough that Robert fell in without thinking. At the first intersection, no one waited. The turn simply happened.
+Not rushing. Not hesitating. Just going, all in the same direction—like the whole town had been nudged with a thumb and decided, sure, why not. At the first intersection, no one waited. The turn simply happened, and Robert found himself doing it too, because sometimes the easiest way to get scared is to let a crowd do your thinking.
 
-The school parking lot was fuller than he expected. Parents stood outside their cars instead of heading straight in, adjusting backpacks, lifting children down carefully, looking toward the doors like they were waiting for something to happen first.
+The school parking lot was fuller than he expected. Parents stood outside their cars instead of heading straight in, adjusting backpacks, lifting children down carefully, doing that nervous-parent choreography like it was back-to-school night instead of whatever this was. Everyone kept glancing toward the doors like they were waiting for permission from the building itself.
 
 Robert parked farther out than usual.
 
@@ -447,7 +447,7 @@ He didn’t answer. He lifted her before she could try. The wrap around her ankl
 
 Near the doors, a woman raised her hand.
 
-Not a wave. A signal.
+Not a wave. A signal, like traffic control for the end of the world.
 
 She stepped forward with a clipboard and glanced down at Samantha’s ankle before looking at Robert’s face.
 
@@ -459,13 +459,13 @@ She handed him a narrow strip of paper. Blue.
 
 “Why?” Robert asked.
 
-“It helps,” she said, already turning away.
+“It helps,” she said, already turning away, which made it sound like she’d said it a thousand times and never once believed it.
 
 Inside, the gym looked wrong.
 
-Not damaged. Organized.
+Not damaged. Organized—the kind of organized that made your shoulders tighten before your brain could explain why.
 
-Colored tape divided the floor into wide paths that led toward different exits. People clustered along them, uncertain but compliant, standing where the tape suggested they should stand. No one crossed from one color to another.
+Colored tape divided the floor into wide paths that led toward different exits. It looked like a kid’s obstacle course, except nobody was laughing and the stakes weren’t a scraped knee. People clustered along the tape, uncertain but compliant, standing where the colors suggested they should stand. No one crossed from one color to another, like the tape might shock you.
 
 A man stood near the bleachers with a megaphone, but his voice was calm.
 
@@ -569,9 +569,9 @@ It sounded the way it always had.
 
 # Chapter 5: Faster
 
-They waited in the classroom longer than Robert expected, long enough for the air to grow stale and for the initial tension to drain into something duller and harder to ignore. Parents shifted positions without fully sitting down, as if committing to a chair might make the waiting permanent, and every few minutes someone glanced at the door, then looked away again when nothing happened.
+They waited in the classroom longer than Robert expected, long enough for the air to go stale and for the initial spike of panic to drain into something duller and meaner. Parents shifted positions without fully sitting down, like sitting all the way would make the waiting permanent. Every few minutes someone glanced at the door, then looked away again when nothing happened—because nothing happening was starting to feel like a decision.
 
-Robert sat with Samantha across his lap, her injured leg carefully angled so the ankle didn’t press against anything. His arms still felt wrong, heavy in a way that didn’t fade, the ache settling deeper each time he adjusted his grip. Alicia sat on the floor near his feet, knees drawn up, watching the narrow window in the door with the patient intensity of someone tracking movement even when there was none.
+Robert sat with Samantha across his lap, her injured leg carefully angled so the ankle didn’t press against anything. His arms still felt wrong, heavy in a way that didn’t fade, the ache settling deeper each time he adjusted his grip, like his muscles were being quietly fined. Alicia sat on the floor near his feet, knees drawn up, watching the narrow window in the door with the patient intensity of someone tracking movement even when there was none—because in a place like this, “none” didn’t mean safe.
 
 People passed in the hallway beyond the glass, moving with purpose and speed, most of them carrying green slips of paper instead of blue, their voices low and relieved as they went. Once, someone laughed, and the sound carried just far enough into the room to feel misplaced before it disappeared again.
 
@@ -893,7 +893,7 @@ Above them, the lights hummed, steady and indifferent, as if they were exactly w
 
 # Chapter 8: Recognized
 
-The room didn’t empty again so much as it reorganized itself around whoever was still inside it, shifting subtly as people tried to find positions that felt safer. Bags were pulled closer to ankles. Children were guided onto laps, then eased back into chairs when they started to squirm. Conversations flattened into murmurs that stopped whenever staff passed too near, then returned again in careful pieces once the footsteps had moved on.
+The room didn’t empty so much as it learned you. It rearranged itself around whoever was still inside it, shifting subtly as people tried to find positions that felt safer. Bags were pulled closer to ankles. Children were hauled onto laps, then eased back into chairs when they started to squirm, because squirming looked like trouble. Conversations flattened into murmurs that died whenever staff passed too near, then started again in careful pieces once the footsteps moved on.
 
 Robert stayed where he was, the green slip folded once and tucked into his pocket, his fingers checking it now and then without meaning to.
 
@@ -1001,7 +1001,7 @@ Then she shook her head once. “No.”
 
 The refusal wasn’t loud, but it landed like a locked door.
 
-Samantha shifted against Robert, grimacing as pain caught her ankle again. Robert adjusted her carefully, and the heaviness returned in his arms—gravity pulling harder than it should, muscles burning too quickly for such a small movement. He felt the strain spread through his shoulders, and he remembered the way the HUD had flashed Efficient after he’d lied earlier, remembered the brief relief that had come with it and the price that followed.
+Samantha shifted against Robert, grimacing as pain caught her ankle again. Robert adjusted her carefully, and the heaviness returned in his arms—gravity pulling harder than it should, muscles burning too quickly for such a small movement. He felt the strain spread through his shoulders, and he remembered the way the words had flashed **Efficient** after he’d lied earlier, remembered the brief relief that had come with it and the price that followed.
 
 Alicia watched him adjust Samantha. Her gaze moved to the ankle, then to Robert’s arms, then to his face, lingering in a way that felt like evaluation.
 
