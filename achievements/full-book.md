@@ -2,11 +2,11 @@
 
 The handoff was fast.
 
-Too fast for small talk, too fast for second guesses. The girls climbed out of the car with their backpacks already on, jackets zipped, hair still damp from the rain. Their mother stayed in the driver’s seat, engine running, phone wedged between her shoulder and ear, doing that thing where a person is physically present but mentally halfway down the road.
+Too fast for small talk, too fast for second guesses. The girls climbed out of the car with their backpacks already on, jackets zipped, hair still damp from the rain. Their mother stayed in the driver’s seat of her CR-V, engine running, phone wedged between her shoulder and ear, doing that thing where a person is physically present but mentally halfway down the road.
 
 “I’ll text when I’m home,” she said, distracted. “They ate already.”
 
-Robert nodded. He always nodded. The nod had been perfected during the divorce—noncommittal, polite, useful as a paper towel. He took the bags, shut the door, and stood on the curb while her car pulled away and merged back into traffic.
+Robert nodded. He always nodded. The nod had been perfected during the divorce—noncommittal, polite, useful as a paper towel. He took the bags, shut the door, and stood on the curb while her car pulled away, the taillights blurring in the mist before merging back into traffic.
 
 That was the last normal thing that happened.
 
@@ -14,9 +14,9 @@ He was halfway to the front door when the air changed. A pressure drop. The kind
 
 Alicia stopped walking. “Dad?”
 
-Before he could answer, the sound hit—deep, tearing, wrong. Not thunder. Not an explosion. Something structural giving up somewhere nearby. A ripple went through the ground, subtle but undeniable, like the earth had flinched.
+Before he could answer, the sound hit—deep, tearing, wrong. Not thunder. Not an explosion. Something structural giving up somewhere nearby. A ripple went through the ground, subtle but undeniable, like the earth had flinched. The loose change in his pocket jingled against his thigh.
 
-Car alarms started screaming up and down the street.
+Car alarms started screaming up and down the street. *Whoop-whoop. Eee-eee-eee.*
 
 Robert grabbed Samantha’s shoulder and steered her inside. “Shoes off later,” he said, already locking the door behind them. The house lights flickered once, twice, then steadied.
 
@@ -30,19 +30,19 @@ Closer this time. A sharp metallic shriek followed by a dull, concussive thud. T
 
 Samantha screamed.
 
-Robert dropped to a knee, pulling both girls against him. He could smell something acrid through the closed windows. Not smoke. Something cleaner. Industrial. The kind of smell that belonged in a factory, not in your living room on a Friday night.
+Robert dropped to a knee, pulling both girls against him. He could smell something acrid through the closed windows. Not smoke. Something cleaner. Industrial. Like ozone and burnt plastic. The kind of smell that belonged in a factory, not in your living room on a Friday night.
 
 “Basement,” he said. “Now. Move your butts.”
 
-They made it halfway down the stairs when the pounding started at the front door.
+They made it halfway down the stairs when the pounding started at the front door. *Thud. Thud. Thud.*
 
 “Help!” a man shouted. “Please—my wife—”
 
-Robert froze.
+Robert froze. His heart did a stupid, fluttery thing in his chest, like a bird trapped in a chimney.
 
-His hand went toward the deadbolt anyway, because that’s what decent people did. That’s what they were raised to do. Then he pictured a stranger’s hand on the other side of the door, and the picture didn’t come with a face. It came with teeth.
+His hand went toward the deadbolt anyway, because that’s what decent people did. That’s what they were raised to do. Then he pictured a stranger’s hand on the other side of the door, and the picture didn’t come with a face. It came with teeth. He thought about the flimsy chain lock he’d meant to replace three years ago. *Why didn't I replace the lock?*
 
-The pounding came again. Harder. The doorframe rattled.
+The pounding came again. Harder. The doorframe rattled. Dust motes danced in the sliver of light from the window.
 
 Alicia’s grip tightened on his arm. She didn’t say anything.
 
@@ -62,13 +62,13 @@ They stayed in the basement until the noises thinned out, until the shouting tur
 
 Outside, the street was dark. No streetlights. No passing cars. Just people moving in uneven clusters, flashlights bobbing, voices raised and urgent.
 
-Robert locked the door again.
+Robert locked the door again. He checked it twice.
 
 They ate peanut butter straight from the jar because it didn’t require cooking. Samantha complained about the taste. Alicia didn’t. Alicia watched the dark windows like she expected them to complain back.
 
 Just before midnight, Robert dug the old radio out of the hall closet.
 
-He had to move boxes to get to it—holiday decorations, a folded stroller he’d never thrown away. The radio was heavier than he remembered, metal casing scuffed, antenna bent at the joint.
+He had to move boxes to get to it—holiday decorations, a folded stroller he’d never thrown away. The radio was heavier than he remembered, a Panasonic with a busted handle and a metal casing scuffed from years of neglect. The antenna was bent at the joint like a broken finger.
 
 He set it on the kitchen counter and cranked the dial.
 
@@ -124,7 +124,7 @@ Phones stayed dark. The radio stayed empty. The air outside looked the same as i
 
 When Robert opened the front door, the quiet pressed in immediately. Not peaceful. Expectant.
 
-A man stood in the middle of the street turning in slow circles, like he was waiting for something to appear.
+A man stood in the middle of the street turning in slow circles, like he was waiting for something to appear. He was wearing pajama pants and a windbreaker.
 
 Alicia came up beside him. “Are we going somewhere?”
 
@@ -167,7 +167,7 @@ The first few steps sounded normal—socks on wood, soft and familiar, the rhyth
 
 Then the rhythm broke.
 
-A sharp crack.
+A sharp crack. *Snap.* Like a dry branch stepping on itself.
 
 A breathless sound that wasn’t quite a scream.
 
@@ -179,7 +179,7 @@ Robert reached the stairs just as Samantha started crying in earnest. She was tw
 
 “I slipped,” she said between sobs. “I didn’t mean to—”
 
-He crouched and touched the ankle. It was already swelling, skin hot and tight under his fingers, the joint misshapen in a way that made his stomach drop.
+He crouched and touched the ankle. It was already swelling, skin hot and tight under his fingers, the joint misshapen in a way that made his stomach drop. It felt like a bag of marbles.
 
 “Don’t move,” he said.
 
@@ -199,7 +199,7 @@ The clinic lights were on.
 
 That felt like a promise.
 
-Inside, it was chaos under fluorescent lighting. Too many people packed into too little space. A constant low roar of voices layered with crying, coughing, raised arguments that never quite turned into fights. It smelled like wet coats, disinfectant, and fear—fear always had a smell, if you paid attention.
+Inside, it was chaos under fluorescent lighting. Too many people packed into too little space. A constant low roar of voices layered with crying, coughing, raised arguments that never quite turned into fights. It smelled like wet coats, disinfectant, and fear—fear always had a smell, if you paid attention. Like old pennies and sweat.
 
 A nurse at the desk didn’t look up when they approached. She looked like she’d been built out of coffee and irritation.
 
@@ -224,6 +224,8 @@ The nurse nodded once, already reaching for a clipboard. “Take a seat. If you 
 They waited.
 
 Minutes stretched into something heavier. Samantha’s crying dulled into small, exhausted sounds as Robert shifted her weight again and again, arms burning, shoulders locking up. People were brought back ahead of them—bleeding, shaking, shouting—while others were sent away just as quickly.
+
+A man across from them was holding a bloody towel to his nose. He kept checking his watch, as if he had somewhere else to be. *Tick. Tick. Tick.*
 
 Eventually, a different nurse waved them over without making eye contact.
 
@@ -320,7 +322,7 @@ Samantha tried to stand as soon as she woke up, as if sleeping on it might have 
 
 “I’m okay,” she said immediately.
 
-Robert watched her ankle. The wrap from the clinic had loosened overnight, elastic sliding where the swelling pushed against it. The joint looked wrong now—too large, skin stretched tight and shiny, bruising dark and uneven along the side.
+Robert watched her ankle. The wrap from the clinic had loosened overnight, elastic sliding where the swelling pushed against it. The joint looked wrong now—too large, skin stretched tight and shiny, bruising dark and uneven along the side. It looked like a bruised peach left out in the sun too long.
 
 “Don’t,” he said. “You don’t have to.”
 
@@ -330,7 +332,7 @@ The house felt exposed in daylight.
 
 Not brighter—just uncovered, like somebody had peeled the wallpaper off reality. Every sound carried. The refrigerator cycling. Wind worrying at the siding. Voices outside that rose and fell without pattern, like the street was trying out arguments it hadn’t committed to yet.
 
-Robert checked his phone.
+Robert checked his phone. It was a paperweight.
 
 No signal.
 
@@ -354,7 +356,7 @@ They stayed that way for a while. Ice melting. The quiet stretching thin around 
 
 Eventually Samantha asked, “Can I go outside?”
 
-Robert hesitated.
+Robert hesitated. He looked at the front door. The lock looked flimsy in the daylight.
 
 “Just the porch,” she said quickly.
 
@@ -374,7 +376,7 @@ The sound carried.
 
 A man two houses down stopped what he was doing. A woman across the street looked up. Someone closer said, “Hey—”
 
-“She okay?” the woman asked.
+“She okay?” the woman asked. She was wearing a bathrobe and gardening gloves.
 
 “Yes,” Robert said. “Sprain.”
 
@@ -386,7 +388,7 @@ The woman nodded, already reaching into her pocket.
 
 “It’s fine,” she said, not waiting. “What’s her name?”
 
-Robert hesitated for half a second too long.
+Robert hesitated for half a second too long. *Why does she need the name?*
 
 Alicia answered. “Samantha.”
 
@@ -402,7 +404,7 @@ She typed with her thumb, screen glowing briefly in the daylight.
 
 “At the school,” she replied, already turning away. “They’re tracking injuries.”
 
-The word tracking lingered after she left.
+The word *tracking* lingered after she left. Like a bad smell.
 
 Robert carried Samantha back inside.
 
@@ -416,7 +418,7 @@ Inside, he set her down and stayed crouched, breathing harder than he wanted to.
 
 “That she’s hurt,” Alicia said. “That we’re here.”
 
-Robert looked at the door.
+Robert looked at the door. He imagined the woman typing. *Samantha. Alicia. Robert.*
 
 The microwave clock ticked over to the next minute.
 
@@ -435,11 +437,11 @@ They weren’t invisible anymore.
 
 Cars were already moving when they pulled out of the driveway.
 
-Not rushing. Not hesitating. Just going, all in the same direction—like the whole town had been nudged with a thumb and decided, sure, why not. At the first intersection, no one waited. The turn simply happened, and Robert found himself doing it too, because sometimes the easiest way to get scared is to let a crowd do your thinking.
+Not rushing. Not hesitating. Just going, all in the same direction—like the whole town had been nudged with a thumb and decided, sure, why not. At the first intersection, no one waited. The turn simply happened, and Robert found himself doing it too, because sometimes the easiest way to get scared is to let a crowd do your thinking. It was a conveyor belt made of asphalt.
 
 The school parking lot was fuller than he expected. Parents stood outside their cars instead of heading straight in, adjusting backpacks, lifting children down carefully, doing that nervous-parent choreography like it was back-to-school night instead of whatever this was. Everyone kept glancing toward the doors like they were waiting for permission from the building itself.
 
-Robert parked farther out than usual.
+Robert parked farther out than usual. He parked next to a minivan with a "Baby on Board" sticker that was peeling at the corners.
 
 “I can walk,” Samantha said.
 
@@ -453,7 +455,7 @@ She stepped forward with a clipboard and glanced down at Samantha’s ankle befo
 
 “Okay,” she said, and made a mark.
 
-She handed him a narrow strip of paper. Blue.
+She handed him a narrow strip of paper. Blue. It felt cheap, like carnival ticket paper.
 
 “Keep that visible.”
 
@@ -465,7 +467,7 @@ Inside, the gym looked wrong.
 
 Not damaged. Organized—the kind of organized that made your shoulders tighten before your brain could explain why.
 
-Colored tape divided the floor into wide paths that led toward different exits. It looked like a kid’s obstacle course, except nobody was laughing and the stakes weren’t a scraped knee. People clustered along the tape, uncertain but compliant, standing where the colors suggested they should stand. No one crossed from one color to another, like the tape might shock you.
+Colored tape divided the floor into wide paths that led toward different exits. It looked like a kid’s obstacle course, except nobody was laughing and the stakes weren’t a scraped knee. People clustered along the tape, uncertain but compliant, standing where the colors suggested they should stand. No one crossed from one color to another, like the tape might shock you. *Red. Yellow. Blue.* Primary colors for primary fears.
 
 A man stood near the bleachers with a megaphone, but his voice was calm.
 
@@ -477,7 +479,7 @@ Parents shifted. Children leaned against legs. Someone started to ask a question
 
 Robert didn’t move.
 
-A staff member appeared at his side.
+A staff member appeared at his side. She smelled of peppermint gum and fatigue.
 
 “Blue,” she said, lightly, already guiding his shoulder.
 
@@ -507,7 +509,7 @@ She tapped once and moved on.
 
 “What did she write?” Alicia asked.
 
-“I don’t know,” Robert said again.
+“I don’t know,” Robert said again. *Probably 'Sucker'.*
 
 The megaphone crackled.
 
@@ -536,7 +538,7 @@ Samantha read the sign and frowned. “That’s not my name.”
 
 “I know,” he said.
 
-Inside the room, chairs lined the walls. Parents stood instead of sitting. A woman handed Robert another strip of paper, this one a different color.
+Inside the room, chairs lined the walls. Parents stood instead of sitting. A woman handed Robert another strip of paper, this one a different color. Pink. Like Pepto-Bismol.
 
 “If you leave,” she said, “bring this back with you.”
 
@@ -556,13 +558,13 @@ Alicia stood near the doorway, watching people pass in the hall—people without
 
 “What’s happening?”
 
-Robert opened his mouth.
+Robert opened his mouth. He wanted to say *nothing*. He wanted to say *everything*.
 
 Nothing came out.
 
 The bell rang.
 
-It sounded the way it always had.
+It sounded the way it always had. *Brrrrrrring.* A sound from a dead world.
 
 
 ---
@@ -583,7 +585,7 @@ Robert straightened slightly, instinctive and useless.
 
 “If your situation has changed,” she continued, “or if you feel you were categorized incorrectly, now’s the time to tell us.”
 
-The words settled into the room and stayed there.
+The words settled into the room and stayed there. *Categorized.* Like laundry. Like recycling.
 
 Across from him, a man stood and gestured toward his son, who rose quickly and put his weight down with a visible wince that he immediately smoothed away. The boy took two careful steps, then a third, his face tightening before his father’s hand closed around his shoulder in encouragement.
 
@@ -607,13 +609,13 @@ Samantha shifted against Robert’s chest. “He was hurt too,” she said quiet
 
 Alicia looked up at him, her brow drawn together. “Why did they get to leave?”
 
-Robert didn’t answer because the answer had already begun to form, unwelcome and precise.
+Robert didn’t answer because the answer had already begun to form, unwelcome and precise. *Because they lied better.*
 
 The clipboard woman returned to the doorway, her pen hovering.
 
 “Last check,” she said. “After this, we’ll finalize groupings.” Like they were closing down a register and all the customers had to go somewhere.
 
-Robert looked down at Samantha’s ankle. The swelling hadn’t gone down at all. If anything, it had crept higher, the wrap stretched tight and uneven, the skin beneath it flushed and angry. Samantha noticed his gaze and shook her head almost imperceptibly, her fingers tightening in his shirt.
+Robert looked down at Samantha’s ankle. The swelling hadn’t gone down at all. If anything, it had crept higher, the wrap stretched tight and uneven, the skin beneath it flushed and angry. It pulsed like a second heart. Samantha noticed his gaze and shook her head almost imperceptibly, her fingers tightening in his shirt.
 
 “I can’t,” she whispered.
 
@@ -629,7 +631,7 @@ When the woman’s eyes met his, he heard himself speak before he could stop it.
 
 “She can walk,” Robert said. “She just twisted it. She’s sore, but she can manage.”
 
-The lie landed softly, shaped exactly like the truth would have, and he hated how easy that was.
+The lie landed softly, shaped exactly like the truth would have, and he hated how easy that was. It tasted like copper.
 
 The woman glanced down at Samantha’s ankle, then at Robert’s face, her expression unreadable.
 
@@ -651,7 +653,7 @@ Text settled into place in the air in front of him, steady and indifferent.
 **Trait Affected: Compliance**  
 **Condition Applied: Efficient**
 
-Robert’s breath caught.
+Robert’s breath caught. He swiped at the air, but his hand passed through the letters like smoke.
 
 The words didn’t flicker or glow. They simply existed.
 
@@ -663,44 +665,44 @@ They moved faster after that.
 
 Doors opened sooner. Instructions shortened. Within minutes they were standing with families holding green slips, no one asking them to wait, no one looking twice at Samantha’s careful, uneven steps.
 
-Outside, the air felt different.
+Outside, the air felt different. Thinner.
 
 Alicia looked up at Robert. “Why did that work?”
 
 Robert didn’t answer.
 
-He was still thinking about the word **Efficient**, and how easily it had appeared.
+He was still thinking about the word **Efficient**, and how easily it had appeared. He wondered what he'd traded for it.
 
 
 ---
 
 # Chapter 6: The Green Room
 
-Robert expected “green” to mean _out_. Home. A couch. A door with a lock he controlled.
+Robert expected “green” to mean _out_. Home. A couch. A door with a lock he controlled. He expected *green* to mean *go*.
 
 Instead, “green” meant another room.
 
-They were funneled into it with the same soft voices and the same hands that never quite pushed and never quite let you forget they could. The room was bigger than the classroom—cafeteria, maybe, or a multipurpose room that smelled faintly of mop water and old pizza even when there was no pizza. Folding tables had been shoved to the walls. Chairs were set in neat little islands, like whoever arranged them had been trying to pretend this wasn’t a holding pen.
+They were funneled into it with the same soft voices and the same hands that never quite pushed and never quite let you forget they could. The room was bigger than the classroom—cafeteria, maybe, or a multipurpose room that smelled faintly of mop water and old pizza even when there was no pizza. It smelled like every Tuesday lunch period he'd ever endured. Folding tables had been shoved to the walls. Chairs were set in neat little islands, like whoever arranged them had been trying to pretend this wasn’t a holding pen.
 
 People talked in that brittle, whispery way people talked at wakes and in hospital waiting rooms. Too polite. Too careful. Like the room itself might take offense.
 
-Samantha leaned into Robert, her ankle throbbing against his foot. Every time she adjusted, his arms flared with that wrong heaviness, as if the clinic had quietly added sand to his bones.
+Samantha leaned into Robert, her ankle throbbing against his foot. Every time she adjusted, his arms flared with that wrong heaviness, as if the clinic had quietly added sand to his bones. He thought about sand. He thought about beaches. He thought about that time he got sunburned so bad he couldn't wear a shirt for a week. Anything but this room.
 
-“We’re leaving now, right?” she asked, hopeful in the way that made him want to break something.
+“We’re leaving now, right?” she asked, hopeful in the way that made him want to break something. A window. A chair. A nose.
 
 “Soon,” Robert lied, because he’d been doing a lot of that lately and it kept getting rewarded.
 
-Alicia sat with her backpack upright between her feet, hands folded like she was in church. Her eyes kept ticking around the room, landing on staff, landing on doorways, landing on empty patches of air as if there were things there worth reading.
+Alicia sat with her backpack upright between her feet, hands folded like she was in church. Her eyes kept ticking around the room, landing on staff, landing on doorways, landing on empty patches of air as if there were things there worth reading. She looked like a cat tracking a bug on the ceiling.
 
 Robert tried not to watch her. He watched her anyway.
 
 A man two chairs over muttered, “This is some bullshit,” and his wife hissed at him like profanity would summon a staff member the way saying Bloody Mary summoned a ghost.
 
-Robert almost laughed. It came out as a cough.
+Robert almost laughed. It came out as a cough. A dry, dusty sound.
 
 Across the room, a staff member with a tablet paused beside an old man and murmured something. The old man nodded too quickly. When the staff member moved on, the old man’s shoulders dropped like he’d just been spared. Nobody congratulated him. Nobody asked why.
 
-Robert looked at the doors. There were three. Only one was being used. The others might as well have been painted on.
+Robert looked at the doors. There were three. Only one was being used. The others might as well have been painted on, like Wile E. Coyote tunnels.
 
 His phone buzzed against his thigh—phantom vibration, maybe, or maybe not. He pulled it out and saw signal bars.
 
@@ -716,9 +718,9 @@ Robert stared at her.
 
 Alicia didn’t look back. She kept her eyes on the aisle and swallowed once, like she was trying to swallow down a warning.
 
-Robert slid the phone back into his pocket.
+Robert slid the phone back into his pocket. It felt hot against his leg, like a coal.
 
-The room hummed. The lights hummed. The building hummed like it was digesting them.
+The room hummed. The lights hummed. The building hummed like it was digesting them. *Hummmmmm.*
 
 Somewhere nearby, a child started crying and got shushed fast, like that sound was illegal now.
 
@@ -726,7 +728,7 @@ Then a voice—calm, practiced—called from the doorway, “We need everyone to
 
 Nobody asked what verification was.
 
-Robert hated them all for that, including himself.
+Robert hated them all for that, including himself. He hated his own silence most of all. It tasted like bile.
 
 ---
 
@@ -734,9 +736,9 @@ Robert hated them all for that, including himself.
 
 Robert waited until the room settled.
 
-It took longer than he expected. People kept shifting, standing and sitting again, moving bags closer to their feet, glancing at doors that didn’t open. Every few minutes someone would rise as if they’d missed an instruction, then sit back down when nothing happened. The noise never fully disappeared; it just softened into a constant, uneasy murmur.
+It took longer than he expected. People kept shifting, standing and sitting again, moving bags closer to their feet, glancing at doors that didn’t open. Every few minutes someone would rise as if they’d missed an instruction, then sit back down when nothing happened. The noise never fully disappeared; it just softened into a constant, uneasy murmur. Like bees in a wall.
 
-When no one was looking directly at him, Robert eased his phone out of his pocket and turned slightly away from the others.
+When no one was looking directly at him, Robert eased his phone out of his pocket and turned slightly away from the others. He felt like a criminal.
 
 The screen lit up.
 
@@ -753,7 +755,7 @@ He let himself breathe when it connected.
 
 “Hello?” a woman said.
 
-There was road noise behind her, the muted rush of tires on pavement, a turn signal clicking close to the receiver.
+There was road noise behind her, the muted rush of tires on pavement, a turn signal clicking close to the receiver. *Click-clack. Click-clack.*
 
 “Hey,” Robert said. “It’s Rob. It’s—” He swallowed. “It’s me.”
 
@@ -785,7 +787,7 @@ Robert looked down at the screen. The number glowed there exactly as it always h
 
 “Melissa,” she said. “And I don’t know an Anne. Or a Robert.”
 
-A horn blared behind her.
+A horn blared behind her. *Honnnnk.*
 
 “Look,” she continued, impatience creeping in, “I’m driving. You should check the number.”
 
@@ -815,7 +817,7 @@ A woman beside him shook her head. “Same. Whoever answered mine asked how I ev
 
 Someone laughed softly, then stopped when no one joined in.
 
-Robert watched the staff at the far end of the room. They weren’t panicking. They weren’t huddled together. They moved with the same practiced efficiency as before, checking slips, murmuring to one another, redirecting anyone who stood too long without purpose.
+Robert watched the staff at the far end of the room. They weren’t panicking. They weren’t huddled together. They moved with the same practiced efficiency as before, checking slips, murmuring to one another, redirecting anyone who stood too long without purpose. They moved like flight attendants on a crashing plane who were determined to serve the beverages anyway.
 
 A woman approached a staff member and held up her phone. “I can’t reach my husband,” she said. “He’s outside town.”
 
@@ -879,7 +881,7 @@ She met his eyes then, just long enough to register the question. “We’ll kee
 
 She moved on.
 
-Robert leaned back in his chair and stared at the far wall, at the faint scuff marks where folding chairs had been dragged and rearranged countless times before. Somewhere in his pocket, his phone sat silent and unhelpful, perfectly functional and utterly useless.
+Robert leaned back in his chair and stared at the far wall, at the faint scuff marks where folding chairs had been dragged and rearranged countless times before. Somewhere in his pocket, his phone sat silent and unhelpful, perfectly functional and utterly useless. A brick of glass and lithium.
 
 Alicia leaned against him, her shoulder just touching his arm. When someone passed too close, she shifted without looking. When a space opened near the aisle, she stepped into it automatically, then frowned faintly, as if unsure why she’d moved at all.
 
@@ -895,7 +897,7 @@ Above them, the lights hummed, steady and indifferent, as if they were exactly w
 
 The room didn’t empty so much as it learned you. It rearranged itself around whoever was still inside it, shifting subtly as people tried to find positions that felt safer. Bags were pulled closer to ankles. Children were hauled onto laps, then eased back into chairs when they started to squirm, because squirming looked like trouble. Conversations flattened into murmurs that died whenever staff passed too near, then started again in careful pieces once the footsteps moved on.
 
-Robert stayed where he was, the green slip folded once and tucked into his pocket, his fingers checking it now and then without meaning to.
+Robert stayed where he was, the green slip folded once and tucked into his pocket, his fingers checking it now and then without meaning to. *Still there. Still green.*
 
 Samantha’s ankle rested on his foot, wrapped and swollen, the elastic bandage losing its fight against the bruising underneath. Even half-asleep, pain pulled at her face in quick flashes she tried to hide, and every time she shifted Robert adjusted her gently, feeling his own arms burn too quickly, as if his body had been pushed past where it wanted to stop and hadn’t been allowed to recover.
 
@@ -921,9 +923,11 @@ He stood carefully, shifting Samantha’s weight onto the chair without jarring 
 
 “I’m okay,” she said quickly.
 
-Robert nodded as if the words could make it true and walked toward the bottles. As he crossed the room, heads turned for a second and then looked away again, and conversations paused with the same quiet reflex as someone stepping around broken glass.
+Robert nodded as if the words could make it true and walked toward the bottles. As he crossed the room, heads turned for a second and then looked away again, and conversations paused with the same quiet reflex as someone stepping around broken glass. *Crunch. Crunch.*
 
-He grabbed two bottles and turned back.
+He grabbed two bottles. The plastic crinkled loudly. He froze, waiting for a reprimand. None came.
+
+He turned back.
 
 In the short time he’d been gone, Alicia had shifted into the seat he’d left, angling her body slightly so Samantha was shielded from the aisle. She hadn’t moved Samantha, exactly, but she’d tugged a backpack strap inward and pulled the edge of their things away from the walkway, the kind of small correction Robert would have missed if he hadn’t been watching her now for changes.
 
@@ -1193,7 +1197,7 @@ Another staff member stepped closer, already glancing at her tablet. “Assistan
 
 The woman looked around as if someone might argue with her. “He’s just scared,” she said. “Please.”
 
-The child kicked, shoes scraping metal.
+The child kicked, shoes scraping metal. *Scrape. Scrape.*
 
 The staff member knelt and took the child’s wrist—not roughly, but firmly enough that the movement stopped. The scream cut off mid-breath, replaced by a silence that felt heavier than the noise had.
 
@@ -1201,7 +1205,7 @@ Samantha went rigid against Robert.
 
 “Dad,” she whispered.
 
-He shifted her again, lifting higher, his arms burning now in a way he didn’t want to examine too closely.
+He shifted her again, lifting higher, his arms burning now in a way he didn’t want to examine too closely. It felt like his muscles were fraying, strand by strand.
 
 Alicia didn’t look at the family anymore.
 
@@ -1475,23 +1479,23 @@ No one disagreed.
 
 The room had learned a new rule without anyone saying it out loud: don’t complete the motion until you’re sure you’re allowed to have started it.
 
-People half-stood and sat again. Coughs died in throats. Zippers stalled mid-pull. It wasn’t silence. It was rehearsal.
+People half-stood and sat again. Coughs died in throats. Zippers stalled mid-pull. It wasn’t silence. It was rehearsal. It felt like church when the pastor stops talking and waits for the baby in the back row to shut up.
 
-Samantha leaned against Robert, her leg tucked close, foot resting on the edge of his shoe. Alicia sat upright on his other side, backpack between her feet, eyes moving in small checks like she was reading the room the way other kids read chapter books.
+Samantha leaned against Robert, her leg tucked close, foot resting on the edge of his shoe. Alicia sat upright on his other side, backpack between her feet, eyes moving in small checks like she was reading the room the way other kids read chapter books. *Left page, right page, turn.*
 
 A man near the aisle stood.
 
-He didn’t do it quickly. He smiled as he stepped sideways, palms open, already talking even though no one had asked him anything yet.
+He didn’t do it quickly. He smiled as he stepped sideways, palms open, already talking even though no one had asked him anything yet. He looked like a guy trying to explain why he didn't have his receipt at Target.
 
 “I just wanted to check—”
 
-Someone coughed again.
+Someone coughed again. A wet, hacking sound.
 
-A chair shifted. Not loudly. Enough.
+A chair shifted. Not loudly. Enough. *Scrr-aa-pee.*
 
 The man stopped with one foot still angled out, his smile holding as his eyes moved, looking for the thing he’d missed.
 
-“They said to stay with your group,” a woman murmured from behind him.
+“They said to stay with your group,” a woman murmured from behind him. She sounded like she was reciting a recipe.
 
 It didn’t sound sharp. It didn’t need to.
 
@@ -1499,9 +1503,9 @@ It didn’t sound sharp. It didn’t need to.
 
 “For everyone’s safety,” another voice added, closer this time, the words already practiced.
 
-Robert felt it then, the way attention narrowed without focusing on anything specific. The space around the man thinned, not visibly, but enough that standing there suddenly seemed like effort.
+Robert felt it then, the way attention narrowed without focusing on anything specific. The space around the man thinned, not visibly, but enough that standing there suddenly seemed like effort. Like the air had turned to gelatin.
 
-The man glanced toward the staff at the edges of the room.
+The man glanced toward the staff at the edges of the room. They were statues in khakis and polo shirts.
 
 No one was looking at him.
 
@@ -1509,13 +1513,13 @@ No one was looking at him.
 
 “It’s easier if we all stay put,” someone said.
 
-That voice came from a seat. Calm. Reasonable.
+That voice came from a seat. Calm. Reasonable. Terrifying.
 
 The man nodded too fast. “Of course. Sorry.”
 
-He stepped back the way he’d come, careful not to brush anyone, careful not to make noise, and folded himself into his chair. He kept smiling for a moment longer, then stopped.
+He stepped back the way he’d come, careful not to brush anyone, careful not to make noise, and folded himself into his chair. He kept smiling for a moment longer, then stopped. His face went slack, like a puppet whose strings had been cut.
 
-Robert felt his mouth open, the start of something reflexive, something supportive. He closed it again. He hadn’t seen when it happened, but there were already too many eyes involved. Too many people waiting to see what he would do next.
+Robert felt his mouth open, the start of something reflexive, something supportive. *Hey, buddy, it's okay.* He closed it again. He hadn’t seen when it happened, but there were already too many eyes involved. Too many people waiting to see what he would do next. It felt like high school. It felt like the moment before the fight starts in the cafeteria.
 
 Alicia didn’t look at the man.
 
@@ -1525,39 +1529,39 @@ No staff moved.
 
 A thin flicker crossed Robert’s vision.
 
-He blinked.
+He blinked. *Did I smudge my glasses? I don't wear glasses.*
 
 The words were already there.
 
 **INTERVENTION UNNECESSARY**
 
-They hovered briefly, gray and unimpressed. Robert swiped at the air. The text disappeared.
+They hovered briefly, gray and unimpressed. Robert swiped at the air. *Get away. Shoo.* The text disappeared.
 
 It hit him then that the room didn’t only punish the loud people.
 
 It graded the helpers.
 
-The man sat very still. A woman beside him leaned a fraction away, not enough to be obvious. Someone farther down pulled their bag closer, zipper whispering once and then stopping.
+The man sat very still. A woman beside him leaned a fraction away, not enough to be obvious. Someone farther down pulled their bag closer, zipper whispering once and then stopping. *Zzzzip.*
 
 “Was he in trouble?” Samantha whispered.
 
-Robert shook his head, then paused, unsure, and said nothing.
+Robert shook his head, then paused, unsure, and said nothing. He didn't know the answer. He didn't know the rules.
 
 Alicia adjusted her backpack strap and stared at the floor.
 
 Across the room, someone started to stand, hesitated, and stayed seated.
 
-No one said anything.
+No one said anything. The silence was heavy, wet, and full of teeth.
 
 # Chapter 12
 
-By now the room’s noises felt supervised—every scrape and cough starting, then thinking better of it.
+By now the room’s noises felt supervised—every scrape and cough starting, then thinking better of it. The air conditioner hummed a low, monotonous B-flat.
 
-Robert sat with Samantha tucked against his side. Her ankle was still wrapped, still swollen, but she wasn’t guarding it the way she had been. She flexed her toes once, stopped, and stared at the floor like she was counting something there.
+Robert sat with Samantha tucked against his side. Her ankle was still wrapped, still swollen, but she wasn’t guarding it the way she had been. She flexed her toes once, stopped, and stared at the floor like she was counting something there. Dust bunnies? Scuff marks? The minutes of her life ticking away?
 
 Alicia sat upright on his other side, backpack between her feet. Her eyes moved in small checks—aisles, edges, hands—never settling. When a staff member passed with a tablet held against her chest, Alicia’s gaze followed and came back again.
 
-Robert noticed Alicia’s fingers tighten on the backpack strap.
+Robert noticed Alicia’s fingers tighten on the backpack strap. White knuckles.
 
 Then loosen.
 
@@ -1567,11 +1571,11 @@ She leaned toward him as someone shifted a bag nearby, the zipper whispering onc
 
 Robert turned his head. “What—”
 
-“Alicia Hardy?” the staff member said, stopping beside their row.
+“Alicia Hardy?” the staff member said, stopping beside their row. She smelled of vanilla car freshener.
 
 “Yes,” Alicia said, already lifting her hand, small and contained, the way kids did when they knew the answer.
 
-“We just need to verify a few things,” the staff member said, eyes on the tablet.
+“We just need to verify a few things,” the staff member said, eyes on the tablet. *Tap. Tap.*
 
 “Verify what?” Robert asked, too quickly. A soft *shh* came from somewhere behind him, not sharp enough to own.
 
@@ -1579,9 +1583,9 @@ The staff member didn’t look at him. “Routine.”
 
 A chair leg dragged, louder this time, then lifted. The sound hung there, waiting.
 
-“Is there a problem?” Robert said, lowering his voice, aware of how many people were suddenly watching without turning their heads.
+“Is there a problem?” Robert said, lowering his voice, aware of how many people were suddenly watching without turning their heads. He felt sweat prickle under his collar.
 
-“No, sir,” the staff member said, stepping half aside. Robert noticed then that another staff member stood at the end of the row, not blocking anything, just present enough to make standing feel like a decision.
+“No, sir,” the staff member said, stepping half aside. Robert noticed then that another staff member stood at the end of the row, not blocking anything, just present enough to make standing feel like a decision. Like a bad decision.
 
 Alicia stood.
 
@@ -1589,11 +1593,11 @@ She moved slowly, slipping one arm through the backpack strap while a whisper st
 
 “It’s fine,” Alicia said. She still wasn’t looking at him. “I’ll be right back.”
 
-Samantha’s fingers curled into Robert’s sleeve.
+Samantha’s fingers curled into Robert’s sleeve. *Don't go. Don't go.*
 
 “Can I come with her?” Robert asked.
 
-The staff member smiled, thin and practiced. “You can stay seated.”
+The staff member smiled, thin and practiced. It was a smile that didn't reach her eyes. Her eyes were dead batteries. “You can stay seated.”
 
 Robert half-stood anyway. His knees unlocked, his weight shifting forward, and the room tightened around that motion—coughs stopping, chairs pausing, the noise pulling in on itself for half a second too long.
 
@@ -1601,7 +1605,7 @@ Alicia turned her head then. Just enough.
 
 “Please,” she said.
 
-Robert sat.
+Robert sat. He sat because she asked him to. He sat because he was a coward. He sat because the staff member's smile hadn't wavered.
 
 The chair legs whispered against the floor.
 
@@ -1609,9 +1613,9 @@ Alicia stepped into the aisle. The crowd parted without anyone actually moving, 
 
 A woman pulled her child closer. A man adjusted his foot under his chair and stared straight ahead. Someone’s phone lit up and was turned face-down immediately.
 
-The door hadn’t looked important before. It did now.
+The door hadn’t looked important before. It did now. It looked like a mouth.
 
-A badge beeped.
+A badge beeped. *Bleep.*
 
 The door opened.
 
@@ -1619,19 +1623,19 @@ Closed.
 
 Not quietly. Not loudly. Just closed.
 
-Robert stayed seated, his hand still wrapped around Samantha’s, the room’s noise filling back in around him in pieces.
+Robert stayed seated, his hand still wrapped around Samantha’s, the room’s noise filling back in around him in pieces. He felt like he was drowning in a very shallow pool.
 
 # Chapter 13
 
 After Alicia left, the room developed a new kind of quiet—less fear and more policy.
 
-Somewhere behind Robert, a voice murmured, “Mine keeps—” and stopped. Another voice answered too quickly, too quiet to catch. Robert didn’t turn around. He’d learned what turning looked like.
+Somewhere behind Robert, a voice murmured, “Mine keeps—” and stopped. Another voice answered too quickly, too quiet to catch. Robert didn’t turn around. He’d learned what turning looked like. It looked like guilt.
 
-Samantha leaned against him, warm through her sweatshirt, her wrapped ankle tucked close. She wasn’t asleep. Her eyes were open, fixed on nothing in particular, the way kids looked when they were trying not to think about pain.
+Samantha leaned against him, warm through her sweatshirt, her wrapped ankle tucked close. She wasn’t asleep. Her eyes were open, fixed on nothing in particular, the way kids looked when they were trying not to think about pain. Or fear.
 
 Alicia’s chair was empty.
 
-It wasn’t dramatic, the empty space. Just a gap that made the row look wrong. Robert kept finding himself looking at it anyway, like the room might correct itself if he watched long enough.
+It wasn’t dramatic, the empty space. Just a gap that made the row look wrong. Like a missing tooth. Robert kept finding himself looking at it anyway, like the room might correct itself if he watched long enough.
 
 A staff member walked the aisle with a tablet. Another trailed a few paces behind, not in step, not quite separate either. They weren’t rushing. They weren’t lingering. The movement had the same practiced smoothness as before, the kind that made it feel like nothing was happening.
 
@@ -1643,7 +1647,7 @@ It might have been a teenager. It might have been a woman. Robert couldn’t tel
 
 Someone else said, “Shh,” not sharply. More like reflex. Then, after a beat, as if they couldn’t help themselves: “Yeah.”
 
-Robert’s throat tightened. He stared at the floor until the moment passed.
+Robert’s throat tightened. He stared at the floor until the moment passed. *I see them. I see them.*
 
 A chair leg dragged a fraction and stopped. A phone lit up and went dark. A man rubbed his palms on his jeans like he was cleaning off something invisible.
 
@@ -1653,7 +1657,7 @@ Robert didn’t notice the beep this time. He noticed the way the room’s noise
 
 Alicia stepped through.
 
-No staff held her arm. No one guided her by the shoulder. She wasn’t being marched. She walked at the same pace she’d left, backpack on one shoulder, hair still tucked behind one ear the same way. For half a second, it was easy to pretend nothing had happened.
+No staff held her arm. No one guided her by the shoulder. She wasn’t being marched. She walked at the same pace she’d left, backpack on one shoulder, hair still tucked behind one ear the same way. For half a second, it was easy to pretend nothing had happened. Just a bathroom break. Just a drink of water.
 
 Then she looked at the aisle before she looked at Robert.
 
@@ -1673,7 +1677,7 @@ Robert leaned toward Alicia, careful with his voice. “Are you okay?”
 
 Alicia nodded.
 
-Not quick. Not reassuring. Just a single motion.
+Not quick. Not reassuring. Just a single motion. *Yes.*
 
 “What did they—” Robert started.
 
@@ -1687,7 +1691,7 @@ Robert swallowed. “Did they— did they ask you questions?”
 
 Alicia’s mouth tightened for a moment, then released. “Just… verifying.”
 
-The word sounded borrowed.
+The word sounded borrowed. Like she'd picked it up off the floor.
 
 Behind them, someone whispered, “I saw it again,” and the other person—whoever it was—answered, “Don’t.”
 
@@ -1701,7 +1705,7 @@ Then she moved on.
 
 A man two rows over stood halfway, like he was going to ask something. His mouth opened.
 
-He looked around, saw the way people didn’t look back, and sat down again without speaking. The chair legs whispered against the floor.
+He looked around, saw the way people didn’t look back, and sat down again without speaking. The chair legs whispered against the floor. *Scree.*
 
 Someone behind Robert said, too softly to be sure, “It looks like the old—”
 
@@ -1759,13 +1763,13 @@ A chair scraped, stopped, and didn’t try again.
 
 A name was called.
 
-Not loudly. Not announced. Just spoken into the room like a reminder someone had forgotten to check.
+Not loudly. Not announced. Just spoken into the room like a reminder someone had forgotten to check. *Miller. Party of two.*
 
 The man stood after a second, like he needed time to recognize himself in the sound of it. He nodded once, to no one in particular, and followed the staff member toward the side door with his hands empty and his jacket still on the back of his chair.
 
 Someone said, “He’ll be back,” and then cleared their throat like they hadn’t meant to say it out loud.
 
-The chair stayed empty.
+The chair stayed empty. A ghost made of vinyl and steel.
 
 Another name followed. Different voice. Different staff member.
 
@@ -1779,7 +1783,7 @@ The room adjusted around the gaps. Not consciously. Knees pulled in. Bags slid u
 
 Samantha shifted against Robert. “I’m hungry,” she said.
 
-Robert glanced around for a clock and didn’t see one. His phone screen was dark. He didn’t remember the last time he’d checked it.
+Robert glanced around for a clock and didn’t see one. His phone screen was dark. He didn’t remember the last time he’d checked it. Was it noon? Was it Tuesday?
 
 A staff member passed and said, “We’re still on schedule.”
 
@@ -1827,7 +1831,7 @@ Robert frowned. “Where did you hear that?”
 
 Alicia didn’t answer.
 
-He thought for a second. “It’s when things get smaller over time,” he said.
+He thought for a second. He thought about his job. He thought about spreadsheets. “It’s when things get smaller over time,” he said.
 
 “Things?”
 
@@ -1942,13 +1946,13 @@ Not all at once. Not like an alarm. It showed up in the small sounds people made
 
 Samantha’s stomach made a noise she tried to swallow with her hand. Robert felt her lean into him, not asking for comfort exactly, more like she was bracing so she wouldn’t move.
 
-A boy two rows over said, “I’m hungry,” and then immediately said he wasn’t, like the word itself had been a mistake. His mother shushed him too fast, sharp enough to cut the sound in half, and the boy cried harder after that, not because of the hunger but because the room had turned on him for saying it.
+A boy two rows over said, “I’m hungry,” and then immediately said he wasn’t, like the word itself had been a mistake. His mother shushed him too fast, sharp enough to cut the sound in half, and the boy cried harder after that, not because of the hunger but because the room had turned on him for saying it. The room had teeth now.
 
 No one came.
 
 Alicia shifted beside Robert, her head tilting a fraction, as if she were listening for a change in pitch rather than the words themselves.
 
-Across the aisle, a woman unzipped a tote bag and reached in, then froze with her hand still inside it, eyes flicking up and down the row before she pulled out a granola bar. She broke it in half, then broke one half again, the pieces uneven and crumbly, and handed them to her child with a smile that didn’t quite make it.
+Across the aisle, a woman unzipped a tote bag and reached in, then froze with her hand still inside it, eyes flicking up and down the row before she pulled out a granola bar. She broke it in half, then broke one half again, the pieces uneven and crumbly, and handed them to her child with a smile that didn’t quite make it. It was a smile made of glass.
 
 The child ate anyway.
 
@@ -2350,7 +2354,7 @@ No one moved to answer it.
 
 # Chapter 20
 
-The bell over the door rang again before the deputy finished writing.
+The bell over the door rang again before the deputy finished writing. *Ding-a-ling.*
 
 The man who came in didn’t step all the way inside, stopping just past the threshold with his hat held in both hands, twisting it slowly as if he were still deciding whether he should have come at all. He said sorry before anyone asked him anything.
 
@@ -2465,11 +2469,11 @@ The bell rang again.
 
 The bell over the door rang again.
 
-For a second nobody moved, because the sheriff’s office had become that kind of room, where the sounds kept arriving in the wrong order—phone first, then footsteps, then a sentence—and everyone had started waiting for the next noise to tell them what mattered. The deputy’s pen was still going. The printer still had its steady, irritated hum. The radio crackled with a voice that stayed calm no matter what it said.
+For a second nobody moved, because the sheriff’s office had become that kind of room, where the sounds kept arriving in the wrong order—phone first, then footsteps, then a sentence—and everyone had started waiting for the next noise to tell them what mattered. The deputy’s pen was still going. *Scratch-scratch.* The printer still had its steady, irritated hum. *Whir-clunk.* The radio crackled with a voice that stayed calm no matter what it said.
 
 A man stepped in and didn’t stop in time.
 
-He came through the doorway like he’d meant to cross it and then lost track of where his feet were, his shoulder clipping the frame, his hand missing the counter when he reached for it. He made a sound that wasn’t a word and then folded down, slow at first, like he was trying to choose a dignified way to fall.
+He came through the doorway like he’d meant to cross it and then lost track of where his feet were, his shoulder clipping the frame, his hand missing the counter when he reached for it. He made a sound that wasn’t a word—a wet, choked gasp—and then folded down, slow at first, like he was trying to choose a dignified way to fall.
 
 “Hey—” someone said.
 
@@ -2477,9 +2481,9 @@ He came through the doorway like he’d meant to cross it and then lost track of
 
 The sheriff looked up and swore under his breath. “Jesus Christ. What now?”
 
-The man’s face had gone pale in a way that didn’t match the flushed skin around his eyes. One side of his nose shone wet. He blinked hard, staring at nothing, and when he tried to inhale it hitched like it caught.
+The man’s face had gone pale in a way that didn’t match the flushed skin around his eyes. One side of his nose shone wet. He blinked hard, staring at nothing, and when he tried to inhale it hitched like it caught on a hook.
 
-The deputy’s phone rang. He picked it up without looking away from the scene. “Sheriff’s office,” he said, and then, after a pause, “Yes. Hold on.”
+The deputy’s phone rang. *Brrrring.* He picked it up without looking away from the scene. “Sheriff’s office,” he said, and then, after a pause, “Yes. Hold on.”
 
 Robert was already moving.
 
@@ -2487,7 +2491,7 @@ He didn’t decide to. His body did it the way it had in the school when chairs 
 
 “Sir,” Robert said, keeping his voice low. “Can you hear me?”
 
-The man’s eyes flicked toward him and didn’t settle.
+The man’s eyes flicked toward him and didn’t settle. They were marbles rolling on a tilted table.
 
 Robert shifted his hand, firmer, anchoring. “Breathe,” he said. “Slow. In through your nose.”
 
@@ -2503,13 +2507,13 @@ A murmur went through the room, the same shape as it had in the school—people 
 
 The sheriff stepped around the edge of the crowd, his injured arm held close, jaw clenched as if he were mad at his own body for failing him. “What the hell happened?” he demanded.
 
-The man’s lips moved. Nothing came out at first. He swallowed, and the swallow looked like work.
+The man’s lips moved. Nothing came out at first. He swallowed, and the swallow looked like work. Like swallowing a stone.
 
 “Tried,” he managed, and then stopped, eyes closing briefly like the word had cost him.
 
 “Tried what?” the sheriff snapped.
 
-The man opened his eyes again. They were bloodshot in a way that didn’t look like sleep deprivation. “To go,” he said, and his voice was thin, scraped raw. “Out.”
+The man opened his eyes again. They were bloodshot in a way that didn’t look like sleep deprivation. They looked burned. “To go,” he said, and his voice was thin, scraped raw. “Out.”
 
 A few people shifted. Someone made a short sound that might have been a laugh and then didn’t finish it.
 
@@ -2517,7 +2521,7 @@ A few people shifted. Someone made a short sound that might have been a laugh an
 
 The man blinked, slow. “Doesn’t… matter,” he said, and his gaze drifted toward the door like it was still there in his mind. “Road. Highway. Back road. I kept… kept going.”
 
-Robert kept his hand on the man’s shoulder. The skin under his palm felt damp and hot.
+Robert kept his hand on the man’s shoulder. The skin under his palm felt damp and hot. Like a fever breaking.
 
 “Okay,” Robert said. “You’re here. You’re safe. Just breathe.”
 
@@ -2529,13 +2533,13 @@ The man swallowed again, and a thin line of blood slipped from one nostril and d
 
 The sheriff stared at him. “You’re saying you got lost.”
 
-The man’s mouth twitched, not quite a smile. “I’m saying I didn’t,” he said.
+The man’s mouth twitched, not quite a smile. A grimace. “I’m saying I didn’t,” he said.
 
 The phone rang again at the front desk. No one answered it.
 
 The deputy said into his phone, “No, I can’t take that right now,” and his voice went flat with effort. “We’ve got— yes. I know.”
 
-The printer stopped, then started again.
+The printer stopped, then started again. *Whir-clunk.*
 
 Robert eased the man onto his side, careful with it, and tried to ignore how the room felt warmer near the floor, like breath and panic collected low.
 
@@ -2553,15 +2557,15 @@ A sound came from the back—radio static, then a voice. “Unit two—”
 
 Something flickered at the edge of Robert’s vision.
 
-For a moment he thought it was the fluorescent light, the way it sometimes stuttered when the building got too quiet. Then the words resolved, flat and pale, hovering just above the man’s chest like they belonged there.
+For a moment he thought it was the fluorescent light, the way it sometimes stuttered when the building got too quiet. Then the words resolved, flat and pale, hovering just above the man’s chest like they belonged there. Like a name tag.
 
-UNAUTHORIZED INTERVENTION  
-DEVIATION LOGGED  
-COMPLIANCE -1
+**UNAUTHORIZED INTERVENTION**  
+**DEVIATION LOGGED**  
+**COMPLIANCE -1**
 
-Robert blinked.
+Robert blinked. *What?*
 
-The words stayed.
+The words stayed. They burned a little, like looking at the sun.
 
 He lifted his hand off the man’s shoulder, slower than he meant to, and the man made a small sound, fingers brushing Robert’s sleeve before falling away.
 
@@ -2569,7 +2573,7 @@ The sheriff straightened, breathing hard. “I need eyes out there,” he said, 
 
 The deputy looked up. “I’ll take it.”
 
-“I’ll go,” Robert said, and surprised himself with how steady it sounded.
+“I’ll go,” Robert said, and surprised himself with how steady it sounded. It sounded like someone else’s voice.
 
 The sheriff turned. “No. You stay—”
 
@@ -2581,7 +2585,7 @@ The sheriff hesitated, jaw working. The room was still loud, phones ringing, voi
 
 Robert nodded once.
 
-He crossed the room and took Samantha’s hand. She was watching his face, waiting, and when he squeezed her fingers she squeezed back, hard.
+He crossed the room and took Samantha’s hand. She was watching his face, waiting, and when he squeezed her fingers she squeezed back, hard. Her hand felt small and sticky.
 
 “We’re going with them,” he said quietly.
 
@@ -2589,7 +2593,7 @@ He crossed the room and took Samantha’s hand. She was watching his face, waiti
 
 “Just to look,” he said.
 
-The bell over the door rang as they followed the deputy out.
+The bell over the door rang as they followed the deputy out. *Ding.*
 
 # Chapter 22
 
@@ -2611,7 +2615,7 @@ The deputy cleared his throat. “Huh.”
 
 That was all he said.
 
-They passed a mailbox, its red flag faded almost to pink. Robert noticed the dent in the side, the way the post leaned slightly away from the road, and felt the quiet click of recognition settle in his chest.
+They passed a mailbox, its red flag faded almost to pink. Robert noticed the dent in the side, the way the post leaned slightly away from the road, and felt the quiet click of recognition settle in his chest. *I know that dent.*
 
 They passed it again.
 
@@ -2630,6 +2634,503 @@ He turned the car around.
 They drove back the way they’d come, except it didn’t feel like back. The fields blurred together sooner than they should have, landmarks sliding into place out of order, and then the edge of town appeared ahead of them, too close, like it had stepped forward while they weren’t looking.
 
 The deputy swore under his breath.
+
+“What is this?” Samantha whispered.
+
+Robert didn’t answer. He watched the fuel gauge. Full. It hadn’t moved.
+
+“We’ll try the other way,” the deputy said, reversing too fast, tires kicking up gravel that hit the wheel well like hail. *Ping-ping-ping.*
+
+They drove west.
+
+West was the highway. West was the big sign for the outlet mall and the gas station with the overpriced jerky. West was out.
+
+They drove for ten minutes.
+
+The road straightened. The trees thinned.
+
+Then they were passing the school.
+
+The deputy slammed on the brakes. The car skidded, fishtailing slightly before coming to a stop in the middle of the lane.
+
+The school sat there, calm and brick and immovable. The parking lot was empty now. The cones were gone.
+
+“This isn’t—” the deputy started, and stopped.
+
+Robert felt a cold prickle at the base of his neck. “We didn’t turn,” he said.
+
+“I know we didn’t turn,” the deputy snapped.
+
+He hit the gas again.
+
+They drove past the school. Past the park. Past the church with the sign that said *ALL ARE WELCOME*.
+
+They drove for twenty minutes this time.
+
+The road curved.
+
+They were back at the sheriff’s office.
+
+The deputy didn’t stop this time. He just kept driving, hands white on the wheel, speed climbing until the engine whined a high, desperate note.
+
+They passed the grocery store.
+
+The hardware store.
+
+The mailbox with the dent.
+
+The school.
+
+The sheriff’s office.
+
+“Stop,” Robert said.
+
+The deputy didn’t stop.
+
+“Stop the car,” Robert said, louder.
+
+The deputy hit the brakes. They lurched forward, seatbelts locking hard against their chests.
+
+The car idled in the middle of the street.
+
+Silence pressed against the windows.
+
+“It loops,” the deputy said. His voice sounded hollow. “It just loops.”
+
+Robert looked out the window. A man was walking his dog on the sidewalk. He didn’t look at the car. He didn’t look at anything. He just walked, leash slack, dog trotting beside him like a mechanical toy.
+
+“Turn it off,” Robert said.
+
+The deputy turned off the car.
+
+The silence got louder.
+
+# Chapter 23
+
+They walked back to the station because the car felt like a trap now.
+
+The deputy walked fast, head down, muttering to himself. Robert held Samantha’s hand, matching his pace, trying not to look at the houses they passed. They looked too normal. The curtains were drawn. The lawns were mowed. It was a picture of a town, not a town.
+
+Inside the station, the sheriff was still at the counter. He looked up when they entered, hope flaring in his eyes for a second before it died.
+
+“Well?” he asked.
+
+The deputy walked past him, went to his desk, and sat down heavily. He put his head in his hands.
+
+“It doesn’t go anywhere,” Robert said.
+
+The sheriff frowned. “What do you mean?”
+
+“The roads,” Robert said. “They all come back here.”
+
+“That’s impossible.”
+
+“Try it,” the deputy said from his desk, voice muffled by his hands. “Go ahead. Try it.”
+
+The sheriff looked at Robert, then at the deputy. “You got turned around.”
+
+“We didn’t,” Robert said. “We drove straight. We drove north, south, west. It doesn’t matter. It’s a circle.”
+
+The sheriff stared at him. “A circle.”
+
+“A loop,” Robert corrected. “Like a track.”
+
+The phone rang.
+
+Everyone stared at it.
+
+It rang four times. Five.
+
+The sheriff picked it up. “Sheriff’s office.”
+
+He listened. His face went slack.
+
+“Who is this?” he asked.
+
+He listened again.
+
+“No,” he said. “No, that’s not—”
+
+He slammed the phone down.
+
+“Who was it?” Robert asked.
+
+The sheriff looked at him. “Me,” he whispered.
+
+“What?”
+
+“It was me,” the sheriff said. “Calling to report a disturbance.”
+
+The room seemed to tilt.
+
+“That’s not possible,” Robert said.
+
+“I know my own voice,” the sheriff said. He looked terrified.
+
+The bell over the door rang.
+
+A woman walked in. She was holding a leash. No dog. Just a leash, dragging on the floor.
+
+“I lost him,” she said. “He just... ran.”
+
+“Ran where?” the deputy asked, lifting his head.
+
+“Into the woods,” she said. “By the edge of town. He ran into the trees and then he was... gone.”
+
+“Gone how?”
+
+“Like he stepped off a cliff,” she said. “One second he was there, and then he wasn't. The leash just went slack.”
+
+Robert looked at the leash. It was cut. Clean. Like a razor.
+
+“Go home,” the sheriff said. His voice was shaking.
+
+“But my dog—”
+
+“Go home!” the sheriff shouted.
+
+The woman flinched. She looked at Robert, then at the deputy, then turned and ran out the door.
+
+Robert watched her go.
+
+“We’re trapped,” he said.
+
+“Don’t say that,” the sheriff said.
+
+“We’re trapped,” Robert repeated. “And they know it.”
+
+“Who?”
+
+“Whoever put the signs up,” Robert said. “Whoever is sending the texts.”
+
+A flicker in the corner of his eye.
+
+**AWARENESS INCREASED**  
+**STRESS LEVEL: CRITICAL**
+
+Robert swiped at it. It didn't move. It stayed there, burning.
+
+“Get out of my head,” he whispered.
+
+“What?” the sheriff asked.
+
+“Nothing,” Robert said. “I’m taking Samantha home.”
+
+“You shouldn’t be out there,” the sheriff said.
+
+“I shouldn’t be in here either,” Robert said.
+
+He grabbed Samantha’s hand and pulled her toward the door.
+
+# Chapter 24
+
+The walk home was a blur.
+
+Robert didn’t look at the houses. He didn’t look at the sky. He kept his eyes on the sidewalk, counting the cracks. *Step on a crack, break your mother's back.*
+
+Samantha was crying softly. He didn’t try to comfort her. He didn’t have any comfort left.
+
+They reached their house.
+
+It looked the same. The porch light was on. The mat said *WELCOME*.
+
+Robert unlocked the door and shoved it open.
+
+“Alicia?” he called.
+
+Silence.
+
+“Alicia!”
+
+He ran into the living room. Empty.
+
+The kitchen. Empty.
+
+Her bedroom.
+
+Empty.
+
+The bed was made. The pillows were smoothed. It looked like a hotel room.
+
+“Dad?” Samantha said from the doorway.
+
+“She’s not here,” Robert said.
+
+“Maybe she went to Mark’s?”
+
+“Maybe.”
+
+He ran to the window. Mark’s house was dark.
+
+He looked at the street. Empty.
+
+No cars. No people.
+
+Just the wind, blowing a wrapper down the asphalt. *Scrape. Scrape.*
+
+He went back to the kitchen. He saw the note on the counter.
+
+It was written on a napkin. Blue ink. Alicia’s handwriting, neat and precise.
+
+*I’m helping.*
+
+That was it.
+
+“Helping who?” Robert yelled at the empty room.
+
+The refrigerator hummed. *Hummmmmm.*
+
+He crumpled the note and threw it on the floor.
+
+“We’re leaving,” he said.
+
+“But the roads—” Samantha started.
+
+“I don’t care about the roads!” Robert shouted. “We’re walking! We’ll walk through the woods! We’ll walk until we drop!”
+
+He grabbed Samantha’s arm.
+
+“Ow!” she cried.
+
+He let go. “Sorry. Sorry. Just... get your shoes.”
+
+“I’m wearing them,” she whispered.
+
+He looked at her feet. She was.
+
+“Okay,” he said. “Okay. Let’s go.”
+
+They walked out the back door.
+
+The backyard was dark. The trees at the edge of the property looked like black teeth against the purple sky.
+
+They walked toward the woods.
+
+Robert held Samantha’s hand so tight his knuckles hurt.
+
+They reached the tree line.
+
+He stepped forward.
+
+And hit something.
+
+Not a tree. Not a wall.
+
+Something soft. Yielding. Like a heavy curtain.
+
+He pushed against it. It pushed back.
+
+“What is it?” Samantha asked.
+
+“I don’t know,” Robert said.
+
+He pushed harder.
+
+The air rippled.
+
+A text box appeared, floating in the darkness between the trees.
+
+**BOUNDARY LIMIT REACHED**  
+**RETURN TO ZONE**
+
+“No,” Robert said.
+
+He threw his shoulder against the air.
+
+It threw him back. He stumbled and fell in the grass.
+
+“Dad!”
+
+He scrambled up. “I’m getting out!” he screamed. “You hear me? I’m getting out!”
+
+**RETURN TO ZONE**
+
+The text pulsed red.
+
+Robert picked up a rock and threw it at the trees.
+
+It hit the air and stopped. It hung there for a second, suspended, and then dropped straight down. *Thud.*
+
+Gravity didn't work right here.
+
+“Come on,” he said to Samantha. His voice was dead.
+
+They walked back to the house.
+
+The back door was locked.
+
+“I didn’t lock it,” Robert said.
+
+He tried the handle. Locked.
+
+He fished for his keys. His hands were shaking so bad he dropped them. *Clatter.*
+
+He picked them up. He unlocked the door.
+
+They went inside.
+
+The kitchen was different.
+
+The note was gone. The crumpled napkin he’d thrown on the floor. Gone.
+
+The floor was clean.
+
+“I threw it right there,” Robert whispered.
+
+He looked at the counter.
+
+A new note.
+
+Same napkin. Same blue ink.
+
+*I’m helping.*
+
+And underneath it, a new line.
+
+*Don’t make it harder.*
+
+Robert stared at the words until they blurred.
+
+# Chapter 25
+
+Morning arrived like a hangover.
+
+Gray light. A headache that throbbed behind his eyes.
+
+Robert woke up on the couch. He didn’t remember lying down.
+
+He sat up. His neck cracked. *Pop.*
+
+Samantha was asleep in the armchair, curled into a ball.
+
+He looked at the clock. 7:00 AM.
+
+Monday? Tuesday? It didn't matter.
+
+He stood up. The room spun.
+
+He walked to the window.
+
+The street was busy.
+
+Cars driving. People walking dogs. A school bus stopping at the corner.
+
+It looked... normal.
+
+Too normal.
+
+He rubbed his eyes.
+
+A man was mowing his lawn. *Vroom-vroom.*
+
+A woman was jogging.
+
+Robert unlocked the front door and stepped onto the porch.
+
+The air smelled like fresh-cut grass and exhaust.
+
+“Morning, Bob!” Gary called from next door. He was getting into his car.
+
+Robert stared at him. “Gary?”
+
+“Beautiful day, huh?” Gary said. He waved.
+
+He drove away.
+
+Robert looked at the school bus. Kids were getting on.
+
+He saw Alicia.
+
+She was standing in line. Backpack on her shoulder.
+
+“Alicia!”
+
+He ran down the steps. He ran down the driveway.
+
+She turned.
+
+She looked at him.
+
+She smiled.
+
+It wasn’t her smile. It was the staff member’s smile. Thin. Practiced.
+
+She got on the bus.
+
+The doors closed. *Hiss-thump.*
+
+The bus drove away.
+
+Robert stood in the street. He was barefoot. He was wearing the same clothes he’d worn for three days.
+
+A car honked at him.
+
+“Get out of the road, asshole!” someone yelled.
+
+Robert stepped back onto the curb.
+
+He looked at his house.
+
+The front door was open.
+
+Samantha was standing there.
+
+“Dad?” she called. “Where’s Alicia?”
+
+Robert looked at the empty street where the bus had been.
+
+“She went to school,” he said.
+
+“But it’s Saturday,” Samantha said.
+
+Robert looked at his phone.
+
+The screen lit up.
+
+**Tuesday.**
+
+“No,” he whispered.
+
+He looked at the text message notification.
+
+*Anne: 7:05 AM*
+*Have a good day!*
+
+He stared at it.
+
+He laughed. A dry, hacking sound.
+
+He walked back to the house.
+
+“Get dressed, Sam,” he said.
+
+“Why?”
+
+“We’re going to school,” he said.
+
+“But my ankle—”
+
+“It’s fine,” he said. “Look.”
+
+She looked down.
+
+The wrap was gone. The swelling was gone.
+
+Her ankle was perfect.
+
+“How?” she whispered.
+
+“It’s handled,” Robert said.
+
+The word tasted like ash in his mouth.
+
+**It’s handled.**
+
+He walked into the house and closed the door.
+
+The lock clicked.
+
+*Click.*
 
 He pulled over again, got out, and stood in the road with his hands on his hips, turning slowly, looking down the shoulder, then back toward town, then up at the sky as if the problem might be written there instead.
 
@@ -2961,15 +3462,15 @@ He stayed until there was nothing left to listen to.
 
 Robert woke to the sound of voices outside.
 
-Not shouting. Not panic. Just people, close enough that their words didn’t carry cleanly through the window, only the cadence of them, the rise and fall of sentences that kept getting interrupted by other sentences. That alone was enough to pull him out of bed.
+Not shouting. Not panic. Just people, close enough that their words didn’t carry cleanly through the window, only the cadence of them, the rise and fall of sentences that kept getting interrupted by other sentences. That alone was enough to pull him out of bed. It was the sound of a cocktail party in a graveyard.
 
-He stood in the hallway for a moment, listening to the house. The refrigerator hummed. The heat clicked on and off like it couldn’t decide if it was needed. Somewhere down the street a car door shut and then nothing followed it, the quiet after it hanging there too long.
+He stood in the hallway for a moment, listening to the house. The refrigerator hummed. *Hummmmm.* The heat clicked on and off like it couldn’t decide if it was needed. Somewhere down the street a car door shut and then nothing followed it, the quiet after it hanging there too long.
 
 Sam’s bedroom door was open a crack.
 
 He pushed it wider with two fingers.
 
-She was awake, curled on her side with her hair in her face, the blanket twisted around her legs. Her ankle was propped on a pillow the way he’d left it. The sprain looked less angry in the gray light that wasn’t quite morning light.
+She was awake, curled on her side with her hair in her face, the blanket twisted around her legs. Her ankle was propped on a pillow the way he’d left it. The sprain looked less angry in the gray light that wasn’t quite morning light. It looked like a bruise on an apple.
 
 “Stay inside,” he said. “If anyone knocks, don’t answer.”
 
@@ -2977,11 +3478,11 @@ Sam nodded, watching his face like she was waiting for the rest of the instructi
 
 He waited a second longer than he needed to, then left.
 
-Outside, the air was cold and stale, like it had been used too many times. The street held that same thin gray light, not bright enough to call daytime, not dark enough to call night. A few porch lights were still on. Others were off. Some houses looked awake. Some looked sealed.
+Outside, the air was cold and stale, like it had been used too many times. It tasted like old pennies. The street held that same thin gray light, not bright enough to call daytime, not dark enough to call night. A few porch lights were still on. Others were off. Some houses looked awake. Some looked sealed.
 
 A small crowd had formed two houses down near the corner, gathered in the street the way people did after a storm or a fire when they needed to see something together before they could decide what it meant. Eight, maybe ten people. A couple more arriving slowly as Robert watched, drawn by sound more than intention.
 
-He walked over.
+He walked over. His shoes scraped on the asphalt. *Scritch. Scritch.*
 
 As he got closer, the words began to separate.
 
@@ -3043,7 +3544,7 @@ Not dramatically. Just a blanking out, like he’d lost his place. He blinked on
 
 For a second, no one moved.
 
-He took a step backward and sat down hard on the curb. His other hand fumbled at his jacket zipper.
+He took a step backward and sat down hard on the curb. His other hand fumbled at his jacket zipper. *Zip-zip-zip.*
 
 “Hey,” someone said. “You alright?”
 
@@ -3055,7 +3556,7 @@ Robert crossed the space and knelt beside him. He hovered for half a second, try
 
 A phone came out. “It’s ringing,” the younger guy said. After a beat: “It’s still ringing.”
 
-Robert pressed two fingers to the man’s neck. There was a pulse. Not steady.
+Robert pressed two fingers to the man’s neck. There was a pulse. Not steady. It felt like a trapped moth.
 
 “How long has he been like this?” someone asked.
 
@@ -3077,7 +3578,7 @@ The siren changed pitch slightly, warbling as it found a path.
 
 # Chapter 27
 
-The siren reached them unevenly, the sound wobbling as it came down the street like it had started from farther away than it meant to.
+The siren reached them unevenly, the sound wobbling as it came down the street like it had started from farther away than it meant to. *Wee-ooo-wee-ooo.*
 
 By the time the ambulance pulled in, the shape of the crowd had already changed. Someone had folded a jacket under the older man’s shoulders. Someone else was holding his wrist with two fingers, watching their own watch like it could help. Robert was still kneeling, his hand where the pulse kept fluttering and refusing to settle into anything that felt useful.
 
@@ -3085,7 +3586,7 @@ The EMTs moved with practiced speed that didn’t quite line up. One of them ask
 
 “That’s not—” she said, then stopped. “Okay. We’ll work with it.”
 
-They opened bags. Gloves snapped. The rhythm of it was familiar enough that people loosened a little, the way they always did once something official arrived.
+They opened bags. Gloves snapped. *Snap. Snap.* The rhythm of it was familiar enough that people loosened a little, the way they always did once something official arrived.
 
 Then one of the EMTs looked down the sidewalk and frowned.
 
@@ -3143,7 +3644,7 @@ He counted driveways without meaning to. One. Two. Three.
 
 “Here,” he called back, lifting his arm.
 
-The ambulance turned. The siren flickered on for half a second and cut off again.
+The ambulance turned. The siren flickered on for half a second and cut off again. *Blip.*
 
 They moved another stretch. Robert kept his pace steady, telling himself that was all he needed to do. He glanced back once, then stopped doing that, trusting that if there were a problem someone would call out.
 
@@ -3156,6 +3657,452 @@ The number didn’t anchor the way it should have. He tried to remember whether 
 “Little farther,” the EMT called.
 
 He nodded and kept going.
+
+The air smelled like rain and old leaves.
+
+He passed a mailbox with a number painted on the side. The paint was chipped. It looked like a *7*. Or maybe a *1*.
+
+He walked until his legs burned.
+
+When he finally stopped, he wasn’t sure why. Just a feeling that the distance had stretched too thin. He turned around.
+
+The street was empty.
+
+No ambulance. No EMTs. No crowd.
+
+Just the long, gray stretch of pavement disappearing back toward where he’d started.
+
+He stood there for a second, listening.
+
+Silence.
+
+He started to walk back.
+
+He walked faster. Then he jogged.
+
+He passed the mailbox with the chipped number. He passed the red car.
+
+He kept going.
+
+The houses started to repeat.
+
+Not identical. Just… rhyming. A blue house with white trim. Then another blue house, slightly lighter. Then a third one, the color of a bruise.
+
+He stopped.
+
+He looked at the house closest to him. The curtains were drawn. The lawn was mowed in straight, even lines.
+
+He walked up the driveway and knocked on the door.
+
+No answer.
+
+He knocked again. *Bang-bang-bang.*
+
+“Hello?” he called.
+
+Nothing.
+
+He tried the handle. Locked.
+
+He stepped back and looked at the window.
+
+Inside, a lamp was on. A book lay open on a table. A glass of water sat beside it.
+
+It looked like someone had just stepped out of the room.
+
+He backed away.
+
+He ran back to the street.
+
+He ran until his lungs burned.
+
+He didn’t find the ambulance.
+
+He found his own house.
+
+It was exactly where it was supposed to be.
+
+The woman he’d asked to watch Sam was still on her porch. She lifted a hand when she saw him.
+
+“Find them?” she called.
+
+Robert stopped at the edge of his yard, hands on his knees, gasping for air.
+
+“No,” he wheezed.
+
+“That’s okay,” she said, smiling. “They probably just took another route.”
+
+She went back inside.
+
+Robert stared at his front door.
+
+He didn’t want to open it.
+
+He opened it anyway.
+
+Sam was on the couch. She looked up when he came in.
+
+“Did you help?” she asked.
+
+Robert closed the door and leaned against it.
+
+“I tried,” he said.
+
+“That’s good,” Sam said.
+
+She turned back to the TV.
+
+The screen was blue. No picture. No sound.
+
+She watched it anyway.
+
+# Chapter 28
+
+The car died three days later.
+
+It didn’t make a noise. It didn’t smoke. It just stopped.
+
+Robert was driving to the grocery store, because the cupboards were empty and the fridge smelled like something had died in the crisper drawer. Sam was in the passenger seat, staring out the window at the houses that all looked like they were holding their breath.
+
+The engine cut out at the stop sign on Main.
+
+The silence was sudden and absolute.
+
+Robert turned the key. Nothing. Not a click. Not a whine. Just dead weight in his hand.
+
+“Dad?” Sam said.
+
+“It’s fine,” Robert said. He tried again.
+
+Nothing.
+
+He hit the steering wheel. “Come on.”
+
+He tried again.
+
+“Dad,” Sam whispered.
+
+“I said it’s fine!” Robert shouted.
+
+Sam flinched.
+
+He closed his eyes. “Sorry. I’m sorry.”
+
+He got out and opened the hood.
+
+The engine looked normal. Belts intact. Battery connected.
+
+He checked the oil. It was full.
+
+He got back in the car.
+
+“We’ll walk,” he said.
+
+“It’s far,” Sam said. Her ankle was better—too better—but she still hesitated.
+
+“We’ll walk slow,” Robert said.
+
+They walked.
+
+The grocery store was open. The automatic doors slid apart with a groan that sounded like a dying animal. *Errrr-chhh.*
+
+Inside, the shelves were half-empty.
+
+Not picked over. Just… thinned. Like someone had come through and removed every third item.
+
+Robert grabbed a cart. One wheel wobbled. *Squeak-squeak-squeak.*
+
+He threw cans into the cart. Beans. Soup. Corn. Anything that would last.
+
+He reached for a box of pasta.
+
+His hand hit something.
+
+Invisible. Solid.
+
+He pulled back.
+
+He reached again.
+
+His fingers stopped an inch from the box. The air felt thick. Gelatinous.
+
+He pushed.
+
+It pushed back.
+
+**ITEM RESTRICTED**
+
+The text hovered in front of the pasta. Red letters.
+
+“What?” Robert whispered.
+
+He tried the can next to it.
+
+**ITEM RESTRICTED**
+
+He tried the jar of sauce.
+
+**ITEM RESTRICTED**
+
+He spun around.
+
+Sam was standing by the cereal aisle. She was holding a box of Cheerios.
+
+“Dad?” she said.
+
+“Put it back,” Robert said.
+
+“Why?”
+
+“Just put it back!”
+
+She dropped the box. It hit the floor with a soft thud.
+
+Robert grabbed her hand. “We’re leaving.”
+
+“But we need food,” Sam said.
+
+“We have food at home,” Robert lied.
+
+They walked out.
+
+The automatic doors didn’t open.
+
+Robert pushed on the glass.
+
+Locked.
+
+He pushed harder.
+
+“Hey!” he shouted. “Let us out!”
+
+A man in a blue vest was sweeping the floor near the registers. He looked up. He smiled.
+
+“Store hours are eight to five,” he said.
+
+“It’s two in the afternoon!” Robert yelled.
+
+“Store hours are eight to five,” the man repeated.
+
+He went back to sweeping.
+
+Robert kicked the door. The glass shuddered but didn’t break.
+
+“Dad,” Sam cried.
+
+Robert looked around.
+
+The fire exit.
+
+He grabbed Sam and ran to the back of the store.
+
+The fire exit bar was red. *PUSH TO EXIT.*
+
+He pushed.
+
+The alarm didn’t sound.
+
+The door opened.
+
+They spilled out into the alley.
+
+The air smelled of rotting garbage and ozone.
+
+They ran.
+
+They ran all the way home.
+
+When they got inside, Robert locked the door. He shoved a chair under the knob.
+
+He went to the kitchen.
+
+He opened the pantry.
+
+It was full.
+
+Pasta. Sauce. Cans of beans. Cans of soup.
+
+“I checked,” he whispered. “It was empty.”
+
+Sam stood in the doorway.
+
+“Maybe you forgot,” she said.
+
+Robert looked at her.
+
+Her eyes were dark. Too dark.
+
+“Maybe,” he said.
+
+He didn’t believe it.
+
+# Chapter 29: Back to the School
+
+The summons came on a Tuesday.
+
+Or a day that felt like Tuesday.
+
+It wasn’t a letter. It wasn’t a phone call.
+
+It was a knock.
+
+Robert opened the door.
+
+A woman in a gray suit stood on the porch. She held a clipboard.
+
+“Samantha Torres,” she said.
+
+“Yes?” Robert said.
+
+“She is required at the school.”
+
+“Required?”
+
+“Educational assessment,” the woman said.
+
+“School is closed,” Robert said.
+
+“School is open,” the woman said. “Assessment is mandatory.”
+
+“She’s not going,” Robert said.
+
+The woman looked at him. Her eyes were the color of wet pavement.
+
+“Non-compliance is not an option,” she said.
+
+“Get off my porch,” Robert said.
+
+The woman didn’t move.
+
+“Failure to comply will result in escalation,” she said.
+
+“Escalation of what?”
+
+“Status,” she said.
+
+She turned and walked away.
+
+Robert slammed the door.
+
+“Dad?” Sam asked.
+
+“Pack your bag,” Robert said.
+
+“Where are we going?”
+
+“Away,” he said. “We’re leaving.”
+
+“But the roads—”
+
+“We’re trying again,” Robert said. “Now.”
+
+They got in the car. It started this time.
+
+Robert drove fast. He didn’t look at the houses. He didn’t look at the people.
+
+He drove toward the highway.
+
+He passed the gas station.
+
+He passed the sign that said *LEAVING TOWN*.
+
+He kept driving.
+
+The road straightened. The trees thinned.
+
+They drove for an hour.
+
+Two hours.
+
+Robert’s hands started to shake.
+
+“We’re out,” Sam whispered.
+
+“Maybe,” Robert said.
+
+Then he saw it.
+
+The sign.
+
+*WELCOME TO TOWN.*
+
+He slammed on the brakes.
+
+The car skidded to a stop.
+
+Ahead of them, the school sat on a hill.
+
+It wasn’t the same school.
+
+It was bigger. Newer.
+
+The windows were dark.
+
+But the front doors were open.
+
+And people were walking in.
+
+“No,” Robert whispered.
+
+The car engine died.
+
+“Dad,” Sam said.
+
+He looked at her.
+
+She was unbuckling her seatbelt.
+
+“Don’t,” he said.
+
+“I have to go,” she said.
+
+“No!”
+
+She opened the door.
+
+“Sam!”
+
+She got out.
+
+She started walking toward the school.
+
+Robert scrambled out of the car. He ran after her.
+
+“Sam! Stop!”
+
+She didn’t stop.
+
+He grabbed her arm.
+
+She turned.
+
+Her face was blank. Empty.
+
+“I’m late,” she said.
+
+“Sam, please.”
+
+“Let go,” she said.
+
+Her voice wasn’t her voice. It was the voice of the room. The voice of the staff.
+
+Robert let go.
+
+She turned and walked away.
+
+She walked up the hill. She walked through the open doors.
+
+She didn’t look back.
+
+Robert stood in the road.
+
+He was alone.
+
+He looked at the school.
+
+It looked like a mouth.
+
+And it had just swallowed his daughter.
 
 They reached a corner sooner than he expected. Or later. He slowed automatically, scanning for the street sign. It was there. The right name. The letters looked normal enough that he didn’t linger on them.
 
@@ -3473,97 +4420,73 @@ He put the car in reverse, backed out of the space, and drove out of the lot wit
 
 # Chapter 30 — Selective Non-Intervention
 
-Alicia was sitting at a table she didn’t remember choosing, which wasn’t unusual on its own, except that the missing moment didn’t slide away the way it normally did. It stayed with her, faint but present, like she’d paused mid-step and only realized it afterward.
+Alicia sat at a table she didn’t remember choosing. That wasn’t unusual—kids drift through school like dandelion seeds most days, carried by bells and schedules—but the missing moment didn’t slide away the way it normally did. It stuck in her throat like a small, sharp fishbone.
 
-The room was smaller than her classroom, though it tried to feel the same, with the same chairs and the same scuffed floor and a clock on the wall that ticked loud enough to notice once you stopped ignoring it. A woman stood near the door holding a clipboard flat against her chest, not writing anything, just holding it there, while another adult sat behind a desk with a computer that hadn’t been turned on yet.
+The room was smaller than her classroom, trying too hard to look friendly and failing, the way a dentist’s office tries to look friendly with a few outdated *Highlights* magazines and a poster of a smiling cat. The floor was scuffed beige tile, the kind that smells of industrial cleaner and hopelessness. A clock on the wall ticked loud enough to drive a nail into your skull: *tick... tick... tick*.
 
-Alicia’s hands were folded on the table.
+A woman stood near the door holding a clipboard against her chest like a shield. She wasn’t writing anything. She was just holding it, staring at Alicia with the dead-eyed patience of a DMV employee on a Tuesday. Another adult sat behind a desk, tapping at a computer that hummed with a sound on the very edge of hearing, a mosquito-whine that made Alicia’s teeth ache.
 
-She noticed that because they hadn’t moved in a while, fingers lined up neatly, thumbs touching the way teachers liked without ever asking for it, and she considered unfolding them before the thought wandered off and left the decision unfinished.
+Alicia’s hands were folded on the table. She noticed them suddenly—fingers interlaced, thumbs touching. The perfect little student. She thought about pulling them apart, maybe scratching her nose, but the thought withered and died before it reached her muscles.
 
-The computer screen came on without a sound. Not bright. Just enough that her eyes adjusted. A set of boxes appeared and shifted slightly, as if they were being arranged by something patient, and Alicia leaned forward a fraction before stopping when the chair pressed against the backs of her legs, a quiet reminder that she was already where she needed to be.
+*Good dog,* something whispered in the back of her head. *Sit. Stay.*
 
-No one told her not to move.
-
-The woman with the clipboard shifted her weight, the paper making a soft noise that reminded Alicia of test days, the kind where everyone went quiet without being told.
-
-“We’ll let this run,” the woman said, not looking at Alicia when she spoke. “She’s already close.”
-
-The other adult didn’t answer right away. He watched the screen for a moment longer than necessary, then nodded once.
-
-Something loosened behind Alicia’s eyes.
-
-Not pain. Not relief. Just a sense of space, like when you realize you’ve been squinting and stop without remembering when you started.
-
-The boxes on the screen changed. Some faded. Others stacked. A thin line appeared along the edge, pale and steady.
+The computer screen flared to life. Not bright, but sudden. A set of boxes shifted on the glass, rearranging themselves with a fluid, liquid grace that didn’t look like any operating system Alicia had ever seen. It looked like something alive.
 
 BUFFER ALIGNMENT: PARTIAL  
 PRIORITY ROUTING: ACTIVE
 
-Alicia read the words without trying to understand them. They didn’t feel like instructions. They felt like something that had already happened.
+The words didn't just appear on the screen. They burned themselves onto the back of her retinas, a neon-blue afterimage that tasted faintly of copper and ozone. Alicia swallowed bile.
 
-The woman glanced at the screen, then at the door, as if checking a list that didn’t need to be written down.
+"We'll let this run," the clipboard woman said. Her voice was dry as old leaves. "She's already close."
 
-“That should reduce noise,” she said.
+The man at the computer nodded. He didn’t look at Alicia. He looked at the data stream reflecting in his glasses.
 
-No one asked Alicia how she felt.
+Something loosened behind Alicia's eyes. It wasn't relief. It was the feeling you get when the dentist finally pulls the tooth—the pressure is gone, but now there's a hole where something used to be. A hollow space.
 
-The space outside the room was wider than a hallway and louder in a way that never settled, folding chairs set in uneven rows, coats draped over backs, bags gathered at people’s feet as if everyone had planned to move again soon and kept postponing it. Adults sat with children angled close, conversations looping, the same phrases repeated with small variations and no endings.
+The boxes on the screen stacked and locked. A thin line appeared, pulsing like a vein.
 
-Alicia stepped into it and waited.
+Alicia watched it. She didn't feel fear anymore. She felt... optimized.
 
-A staff member passed her and slowed just long enough to glance at a tablet. The woman’s thumb moved once. Nothing else happened. She continued on without looking back.
+The woman checked her watch—a Timex with a leather band that looked chewed on—and glanced at the door. "That should reduce the noise floor," she said.
 
-Another staff member adjusted a stanchion near the doors, unhooking the strap and letting it retract with a soft snap, opening a narrow channel that hadn’t been there before. People near it didn’t move.
+The door opened. Not by a hand, but with a pneumatic *hiss* that sounded like a snake exhaling.
 
-Alicia walked toward it.
+Outside, the hallway was chaos, but it was a muffled, underwater kind of chaos. Parents stood in uneven rows, clutching coats and bags like refugees from a war that hadn't started yet. The air smelled of damp wool, sweat, and cheap coffee.
 
-As she passed, a man rubbing his knee paused, his hand hovering where it had been moving. A woman murmuring to her daughter lowered her voice until the words flattened into sound.
+Alicia stepped out.
 
-Near the doors, a woman with a lanyard glanced down at Alicia, then stepped half a pace aside. Her hand touched the door bar only long enough to release it.
+A staff member walked past, eyes glued to a tablet. He didn't see her. He didn't see anyone. He was just a cog in a machine that had suddenly decided to spin faster.
 
-The door swung open on its own.
+Alicia walked to the exit. A mother was crying near the water fountain, a silent, heaving sob that shook her shoulders. A little boy in a Paw Patrol t-shirt tugged at her hand, but she didn't look down.
 
-Alicia stepped through.
+Alicia didn't look down either.
 
-Outside, the air pressed differently. The building settled behind her. She crossed the edge of the lot and waited because there was space to do so.
-
-The words appeared after that, a single pale line.
+She pushed through the double doors and the outside air hit her like a wet towel. The sky was a bruised purple, the sun hiding behind a layer of clouds that looked like dirty cotton batting.
 
 OBSERVATION WINDOW ACTIVE
 
-She read it once and kept moving.
+The text floated in the air, overlaid on the parking lot. It wasn't hallucination. It was clearer than the cracked asphalt.
 
-Alicia crossed the street where the paint had worn thin and followed the sidewalk until it narrowed and widened again. Halfway down the block, a woman stood in her driveway with a phone pressed to her ear.
+Alicia started walking. She crossed the street where the crosswalk paint had faded to gray ghosts. Halfway down the block, Mrs. Gable—who usually sat on her porch judging everyone’s lawn care—was standing in her driveway, phone pressed to her ear.
 
-“I know,” the woman said. “I know, but they said—”
+"I know," Mrs. Gable was saying, her voice shrill. "I know, but they said—"
 
-She stopped when she saw Alicia.
+She stopped when she saw Alicia. Her eyes widened, rimmed with red. "Alicia? You shouldn't be out here alone, honey."
 
-“You shouldn’t be out here by yourself,” the woman said, forcing a smile.
+Alicia stopped. She looked at Mrs. Gable. She looked at the garage door gaping open behind her like a hungry mouth. Inside, boxes of canned peaches and bottled water were stacked in precarious towers. A freezer hummed loudly, hoarding meat that would be rotten in a week.
 
-Alicia nodded.
+Alicia knew Mrs. Gable lived alone. She knew which houses had generators. She knew Mrs. Gable had a shotgun she kept wrapped in an oil cloth in the hall closet.
 
-Behind her, the garage door stood open. Boxes were stacked unevenly. A freezer hummed too loudly. A bin of canned food lay tipped on its side.
+She could have said something. *Go inside, Mrs. Gable. Lock the door.*
 
-Alicia knew how long it would last. She knew which houses still had generators. She could have said something.
-
-She didn’t.
-
-The woman waited a moment, then turned back to the phone.
-
-Alicia walked on.
-
-The words appeared later, after the corner, clean and unadorned.
+She didn't.
 
 ACHIEVEMENT LOGGED: SELECTIVE NON-INTERVENTION  
 TRAIT ADJUSTMENT: PERCEPTION (MINOR)
 
-There was no feeling attached to it.
+The notification popped with a sound like a glass rod snapping. It felt good. It felt correct.
 
-Alicia adjusted her pace and felt the path ahead clarify.
-
-She didn’t look back.
+Alicia adjusted her backpack and kept walking. She didn't look back.
 
 # Chapter 31 — The Long Way Around
 
@@ -3573,21 +4496,21 @@ The school doors closed behind them without comment, glass settling into frame, 
 
 “They said later,” Samantha said.
 
-“I know,” he said, and heard how quickly it came out.
+“I know,” he said, and heard how quickly it came out. *Later. Later. The favorite word of liars and mechanics.*
 
 The lot was half full. Cars sat angled across their spaces, some too far forward, some not far enough, as if people had stopped caring about straight lines. A trunk stood open a few rows over. No one was near it. A scrap of paper slid across the asphalt and caught under a tire, tearing when the wind pulled it free again.
 
-Robert unlocked the car before they reached it. The sound carried farther than it should have.
+Robert unlocked the car before they reached it. The sound carried farther than it should have. *Chirp-chirp.*
 
 Samantha went around to the passenger side, climbing in on her own, bracing a hand on the door frame as she swung her legs inside. Robert watched long enough to make sure she settled, then got in and shut his door.
 
 He started the engine and pulled out of the lot, the road bending the way it always did, his hands following without instruction. Samantha leaned her head against the window and traced a shape in the fog with her finger, then erased it with the side of her hand and started again.
 
-Robert adjusted his grip on the steering wheel. His jaw ached, and when he forced it loose the movement sent a tight line of sensation down into his neck.
+Robert adjusted his grip on the steering wheel. His jaw ached, and when he forced it loose the movement sent a tight line of sensation down into his neck. He felt like he was driving a car made of glass.
 
 “This isn’t—” he said, and stopped.
 
-The sentence didn’t finish itself.
+The sentence didn’t finish itself. This isn't *what*? Fair? Legal? Real?
 
 He took the turn toward the sheriff’s office, corrected halfway through, and felt the irritation spike without anywhere to settle. The building came into view sooner than he expected, low and plain, the flag out front hanging slack against the pole.
 
@@ -3595,11 +4518,11 @@ He parked near the side and shut the engine off.
 
 “Come on,” he said, opening his door.
 
-Inside, the building smelled faintly of cleaner and old paper. A radio murmured from somewhere out of sight, not loud enough to make out words. The front desk was empty, the chair pushed back at an angle that suggested it hadn’t been meant to stay that way.
+Inside, the building smelled faintly of cleaner and old paper, that government smell that always reminded him of the DMV and unpaid taxes. A radio murmured from somewhere out of sight, not loud enough to make out words. The front desk was empty, the chair pushed back at an angle that suggested it hadn’t been meant to stay that way.
 
 They waited.
 
-Samantha leaned against the counter, careful with her ankle. Robert rested his hands on the edge of the laminate, feeling the raised seam where two pieces met and didn’t quite line up.
+Samantha leaned against the counter, careful with her ankle. Robert rested his hands on the edge of the laminate, feeling the raised seam where two pieces met and didn’t quite line up. He picked at it with his thumb. *Pick, pick, pick.* If he could just flatten it, maybe the world would make sense again.
 
 Footsteps sounded from the hallway. The sheriff appeared with a folder tucked under one arm. He slowed when he saw them, recognition settling in without needing to be named.
 
@@ -3629,7 +4552,7 @@ The sheriff didn’t answer right away.
 
 “If they told you she was safe,” he said finally, “then she probably is.”
 
-“Probably,” Robert said.
+“Probably,” Robert said. The word tasted like ash. *Probably.* Like *maybe* the parachute will open. Like *possibly* the brakes will work.
 
 The sheriff nodded, as if that settled the matter enough to move past it. “They’ve got protocols. Sometimes they don’t communicate well while those are in motion.”
 
@@ -3637,7 +4560,7 @@ The sheriff nodded, as if that settled the matter enough to move past it. “The
 
 “I don’t have that information.”
 
-Robert waited.
+Robert waited. He stared at the Sheriff's badge. It was slightly crooked. He wanted to reach out and fix it. He wanted to reach out and shake the man until his teeth rattled.
 
 Samantha shifted beside him, straightening from the counter. She looked toward the door, then back at Robert, her foot angled slightly off the floor.
 
@@ -3673,7 +4596,7 @@ Not loose. Not bunched. Gone entirely, the ankle bare above the sock, a faint in
 
 Samantha looked down, then back at him. “I thought it was still on.”
 
-Robert closed the door carefully. He stood there for a moment longer than necessary, keys still in his hand.
+Robert closed the door carefully. He stood there for a moment longer than necessary, keys still in his hand. He looked at the keys. *Toyota.* A good, reliable brand. *Why can't life be a Toyota?*
 
 “We need to get another one,” he said.
 
@@ -3693,7 +4616,7 @@ The light changed. He turned into the lot.
 
 Only a few cars sat near the entrance, spaced farther apart than usual. The doors slid open as he slowed, reacting before he fully stopped.
 
-Inside, the lights were on. The air was cool and steady. A basket lay tipped on its side near the entrance. A cart stood in the first aisle with one wheel turned wrong.
+Inside, the lights were on. The air was cool and steady, smelling of rubbing alcohol and that fake cherry scent they put in cheap soap. A basket lay tipped on its side near the entrance. A cart stood in the first aisle with one wheel turned wrong.
 
 Robert stepped in and stopped.
 
@@ -3720,17 +4643,17 @@ He noticed how many were gone.
 Not the names.  
 The amounts.
 
-The thought slid in before he could stop it, half-formed, already moving. His fingers curled against the metal. He realized he was counting.
+The thought slid in before he could stop it, half-formed, already moving. His fingers curled against the metal. He realized he was counting. *One, two, three... empty. One, two... empty.*
 
 He stopped.
 
-Samantha scuffed her shoe lightly against the tile.
+Samantha scuffed her shoe lightly against the tile. *Scritch.*
 
 Robert straightened. He turned away from the cabinet, picked up the last wrap that would work, and carried it to the register. He waited.
 
 Nothing happened.
 
-He closed the drawer and left the money on the counter.
+He closed the drawer and left the money on the counter. A twenty. It felt like a prop from a play. *Here is the money, shopkeeper. I am performing the transaction.*
 
 As they walked back out, the music cut off mid-note.
 
@@ -4199,7 +5122,7 @@ He opened the driver’s door.
 
 # Chapter 36 — What He Had
 
-Robert carried Samantha inside without turning on any more lights than he needed. The house looked the way it always did at this hour, furniture in its places, the faint smell of whatever they’d last cooked lingering in the air. Nothing had shifted while they were gone. That felt stranger than it should have.
+Robert carried Samantha inside without turning on any more lights than he needed. The house looked the way it always did at this hour, furniture in its places, the faint smell of whatever they’d last cooked lingering in the air. Nothing had shifted while they were gone. That felt stranger than it should have. It felt like the house was holding its breath.
 
 He set Samantha down on the couch and knelt in front of her, easing her shoe off carefully. The ankle was swollen, the skin stretched and shiny, and she sucked in a breath when he touched it, then let it out again, jaw set.
 
@@ -4219,17 +5142,17 @@ Samantha came in and sat at the table, her leg stretched out carefully in front 
 
 “Is Alicia home?” she asked, like she was asking about something ordinary.
 
-“Not yet,” Robert said. “She’s probably ahead of us. She does that.”
+“Not yet,” Robert said. “She’s probably ahead of us. She does that.” *Liar, liar, pants on fire.* The thought sizzled in his brain.
 
 Samantha nodded, accepting it, and didn’t ask anything else.
 
-The water boiled. He stirred the pasta and lowered the heat, moving on autopilot. When it was ready, he portioned it out onto two plates, adding sauce without measuring, just enough to cover. He carried the plates to the table and sat across from Samantha, the chair scraping softly against the floor.
+The water boiled. *Bubble, bubble, toil and trouble.* He stirred the pasta and lowered the heat, moving on autopilot. When it was ready, he portioned it out onto two plates, adding sauce without measuring, just enough to cover. He carried the plates to the table and sat across from Samantha, the chair scraping softly against the floor.
 
 They ate quietly. The food was hot and plain and filling enough. Robert noticed the empty space on the table where a third plate would usually go and looked away from it without making a thing of it.
 
 Halfway through the meal, there was a knock at the door.
 
-Not loud. Not tentative. Just a knock, the kind that assumed it would be answered.
+Not loud. Not tentative. Just a knock, the kind that assumed it would be answered. *Knock. Knock. Knock.*
 
 Robert paused with his fork halfway to his mouth. He waited a beat, listening, then set the fork down and stood. He glanced at Samantha.
 
@@ -4239,7 +5162,7 @@ She nodded, already focused back on her plate.
 
 At the door, he hesitated long enough to know what that meant and then opened it anyway.
 
-A man stood on the porch, about Robert’s age, hands shoved into the pockets of his jacket. He smiled when Robert opened the door, a quick, practiced thing that didn’t quite settle.
+A man stood on the porch, about Robert’s age, hands shoved into the pockets of his jacket. He smiled when Robert opened the door, a quick, practiced thing that didn’t quite settle. It was a smile you wore to a funeral.
 
 “Hey,” the man said. “Sorry to bother you.”
 
@@ -4265,7 +5188,7 @@ When he returned, the man’s shoulders relaxed visibly.
 
 “That’s fine,” Robert said.
 
-The man nodded too many times. “People will remember this,” he said, like it was reassurance.
+The man nodded too many times. “People will remember this,” he said, like it was reassurance. Like it was currency.
 
 Robert didn’t answer.
 
@@ -4301,13 +5224,13 @@ It recalculated once, then again, the blue dot sliding forward while the map shi
 
 After a while, the landmarks didn’t line up.
 
-A diner she remembered seeing on this stretch wasn’t there. The feed store on the corner had been replaced by an empty lot with tall grass pushing through the gravel. She slowed, glancing at the screen again, and watched the route redraw itself with quiet insistence.
+A diner she remembered seeing on this stretch wasn’t there. The feed store on the corner had been replaced by an empty lot with tall grass pushing through the gravel. She slowed, glancing at the screen again, and watched the route redraw itself with quiet insistence. *Recalculating. Recalculating.*
 
 She took the next turn and then the one after that, the road narrowing as it went, trees crowding closer than she liked. When the phone chimed to reroute again, she sighed and turned it off, setting it face down in the console.
 
 She tried calling Robert.
 
-The line clicked and then went straight to a busy signal, the old kind, sharp and steady. She frowned and hung up, waiting a few seconds before trying again. The same sound met her ear.
+The line clicked and then went straight to a busy signal, the old kind, sharp and steady. She frowned and hung up, waiting a few seconds before trying again. The same sound met her ear. *Beep-beep-beep-beep.* It sounded angry.
 
 She slowed at a stop sign and checked the number, even though she knew it was right.
 
@@ -4349,13 +5272,13 @@ She would try again then.
 
 # Chapter 38 — What People Do
 
-There were voices outside, not raised exactly and not urgent either, just present in a way they hadn’t been earlier, the sound of people lingering and talking past the point where they normally would have gone back inside. Robert stood in the kitchen longer than he needed to, listening without quite meaning to, trying to decide whether it was anything or just one of those evenings when no one seemed in a hurry.
+Robert stood in the kitchen longer than he needed to, listening to the voices outside. They weren’t raised, but they weren’t casual either. It was the low, persistent hum of people who didn’t want to be indoors but didn’t know where else to go. Like cows before a storm, he thought. Just standing there, chewing on their own anxiety.
 
-He crossed the living room and looked out through the front window. A couple of people stood near the curb, talking with their hands in their pockets. Someone else leaned against a car that was parked too close to the corner, the engine still running, the headlights washing the side of a house that didn’t need the light. No one seemed to be in charge of it, but no one was leaving either.
+He crossed the living room and looked out through the front window, peering through the slats of the blinds. A couple of people stood near the curb, talking with their hands in their pockets. Someone else leaned against a car that was parked too close to the corner, the engine still running, the headlights washing the side of a house that didn’t need the light. No one seemed to be in charge of it, but no one was leaving either.
 
 Samantha sat on the couch with her ankle propped up, the television on and muted. She watched him the way she had been watching him all evening, quietly, like she was keeping track of where he was in the room in case she needed him again.
 
-The knock came while he was still standing there.
+The knock came while he was still standing there. *Rap-rap.*
 
 When he opened the door, it was a man from a few houses down, someone Robert recognized but had never really talked to beyond a wave or a comment about the weather. He smiled right away, easy and familiar, like this was a continuation of something Robert had missed.
 
@@ -4371,7 +5294,7 @@ Robert looked back into the house. Samantha had pushed herself a little more upr
 
 “Yeah,” the man said quickly. “Of course. She can stay here.” He hesitated, then added, almost as an afterthought, “People will expect you, though.”
 
-Robert didn’t respond.
+Robert didn’t respond. *Expect me?* Like he was a prop in their little town play? *Enter Stage Left: Concerned Father.*
 
 The man waited a beat, then said, “Since you already helped,” in the same tone someone might use to remind you of a detail you’d forgotten to include.
 
@@ -4381,7 +5304,7 @@ Robert followed.
 
 Out there, it didn’t feel like a meeting yet, but it didn’t feel casual either. People stood closer together than they normally did, conversations bending inward as new voices joined them. Someone laughed and then stopped. A woman said something about keeping things fair, and another person nodded like they’d already been thinking the same thing.
 
-No one asked Robert anything when he reached the edge of it. Someone shifted to make space for him without saying so. He stood there longer than he meant to, listening as ideas surfaced and drifted, never quite landing but never going away either.
+No one asked Robert anything when he reached the edge of it. Someone shifted to make space for him without saying so. He stood there longer than he meant to, listening as ideas surfaced and drifted, never quite landing but never going away either. It was like watching laundry tumble in a dryer—round and round, the same shirts, the same socks, going nowhere.
 
 “We’re just trying to get a sense of what everyone has,” a woman said from somewhere near the middle. She spoke calmly, like she was explaining a process she’d used before. “Nothing specific. Just generally.”
 
@@ -4411,19 +5334,19 @@ That seemed to be enough.
 
 People began to drift away in small groups, conversations continuing as they walked back toward their houses, plans implied but not written down. Doors opened. Lights shifted. The street didn’t empty so much as rearrange itself, settling into a new shape that felt temporary and permanent at the same time.
 
-Robert turned back toward his porch.
+Robert turned back toward his porch. He felt heavy, like he was walking through water.
 
 Samantha sat just inside the doorway now, the door cracked open, her shoulder leaning against the frame. She watched him approach, her expression careful.
 
 “Everything okay?” she asked.
 
-“I think so,” Robert said.
+“I think so,” Robert said. He lied. It was a reflex now.
 
 Behind him, the talking went on, quieter than before but steadier, threaded with the sound of relief. Someone laughed again, the way people did when they believed something difficult had been handled.
 
 Robert stepped inside and closed the door.
 
-The voices carried on through the walls.
+The voices carried on through the walls. *Buzz, buzz, buzz.*
 
 # Chapter 39 — Home
 
@@ -4435,7 +5358,7 @@ Not a knock this time, not the pause that usually came with it, just the sound o
 
 Her voice sounded like it always had.
 
-He dried his hands on the towel and stepped into the living room. Alicia stood just inside the doorway, her backpack still on one shoulder, her hand resting on the strap as if she hadn’t finished deciding what came next.
+He dried his hands on the towel and stepped into the living room. Alicia stood just inside the doorway, her backpack still on one shoulder, her hand resting on the strap as if she hadn’t finished deciding what came next. She looked... polished. That was the word. Like a stone that had been in a tumbler.
 
 “You’re home,” he said, and felt stupid for how much relief there was in it.
 
@@ -4479,7 +5402,7 @@ Alicia thought about it. Not long. Just enough.
 
 She shrugged again. “I don’t know. Watching, I guess.”
 
-Robert nodded, even though that didn’t explain anything. He told himself it didn’t have to yet. She was home. That was what mattered.
+Robert nodded, even though that didn’t explain anything. He told himself it didn’t have to yet. She was home. That was what mattered. *She's home. She's safe. Stop picking at it.*
 
 “Go get ready for bed,” he said. “We’ll talk more tomorrow.”
 
@@ -4491,7 +5414,7 @@ Samantha pulled the blanket higher around her leg.
 
 Robert gathered the dishes from the table and carried them to the sink, rinsing them one at a time.
 
-“She’s tired,” he said finally. “It’s been a long day.”
+“She’s tired,” he said finally. “It’s been a long day.” *And maybe she's in shock. Maybe we all are.*
 
 Samantha didn’t respond.
 
@@ -4533,7 +5456,7 @@ The voices rose and fell, sometimes sharp, sometimes almost conversational, the 
 
 He pushed himself up and sat on the edge of the bed.
 
-From down the hall came the quiet sound of movement. Not hurried. Not surprised. Drawers opening. The soft rasp of fabric. A zipper pulled smooth and sure.
+From down the hall came the quiet sound of movement. Not hurried. Not surprised. Drawers opening. The soft rasp of fabric. A zipper pulled smooth and sure. *Zzzzzip.*
 
 “Alicia,” he called, already standing.
 
@@ -4575,7 +5498,7 @@ She reached for the handle anyway.
 
 Robert stepped forward and caught her arm.
 
-She didn’t jerk away. She didn’t tense. She just continued moving, and his grip slid down from her sleeve to her wrist and then to nothing as she stepped out of reach.
+She didn’t jerk away. She didn’t tense. She just continued moving, and his grip slid down from her sleeve to her wrist and then to nothing as she stepped out of reach. It was like trying to hold onto water.
 
 “Dad,” she said, not unkindly. “You can’t.”
 
@@ -4625,7 +5548,7 @@ He turned back inside.
 
 The voices were still out there.
 
-They hadn’t stopped after Alicia left. If anything they’d gotten louder, not in a steady climb, more in waves, as if people kept trying to calm down and failing, then remembering what they were upset about and starting again. Robert stood in the living room long enough to hear the same tone rise twice from different mouths, that particular edge people got when they weren’t yelling but were close to it.
+They hadn’t stopped after Alicia left. If anything they’d gotten louder, not in a steady climb, more in waves, as if people kept trying to calm down and failing, then remembering what they were upset about and starting again. Robert stood in the living room long enough to hear the same tone rise twice from different mouths, that particular edge people got when they weren’t yelling but were close to it. It sounded like a teakettle about to whistle.
 
 Samantha shifted on the couch. Her ankle was propped on a pillow and the blanket was pulled up to her waist, but her eyes kept going to the window as if she could see sound.
 
@@ -4633,7 +5556,7 @@ Samantha shifted on the couch. Her ankle was propped on a pillow and the blanket
 
 “I know,” Robert said.
 
-He didn’t add anything else, because he didn’t have anything that didn’t sound like a lie.
+He didn’t add anything else, because he didn’t have anything that didn’t sound like a lie. *She's fine. She's coming back. It's just a phase.*
 
 “I’m going to see,” he said, already moving.
 
@@ -4645,9 +5568,9 @@ Sam made a face at that, the kind that said she didn’t want to yell for anythi
 
 Robert stepped onto the porch and stopped.
 
-The street was full in a way it hadn’t been the day before. Not packed exactly. No one was shoulder-to-shoulder. But there were people everywhere you didn’t normally see people—standing in the street itself, half in driveways, gathered around open car doors with engines running. Someone had parked too close to the corner and nobody said anything about it. A dog barked from a yard and kept barking, like it had figured out that the usual rules didn’t apply.
+The street was full in a way it hadn’t been the day before. Not packed exactly. No one was shoulder-to-shoulder. But there were people everywhere you didn’t normally see people—standing in the street itself, half in driveways, gathered around open car doors with engines running. Someone had parked too close to the corner and nobody said anything about it. A dog barked from a yard and kept barking, like it had figured out that the usual rules didn’t apply. *Woof. Woof. Woof.*
 
-Robert walked toward the clusters, trying to find the center of it, and realized there wasn’t one.
+Robert walked toward the clusters, trying to find the center of it, and realized there wasn’t one. It was just noise.
 
 A folding table sat crooked in the street, dragged out at an angle that made it more of a boundary than a tool. A woman stood near it with a notebook open, her pen moving quickly, then stopping as she looked up and tried to track three conversations at once.
 
@@ -4665,7 +5588,7 @@ No one answered that part.
 
 People started naming what they had, not because anyone demanded it but because the question kept floating back around. Freezers. Generators. How much formula. How many kids. Who had insulin. Who had a neighbor with a chest freezer full of meat that was going to go bad if the power stayed weird.
 
-The notebook filled unevenly, the list already messy. A name would get written down and then someone would call out another detail and the woman would scratch it into the margin. Robert watched that and felt, stupidly, a small sense of relief that someone was writing anything at all, because writing it down made it feel like a problem you could solve.
+The notebook filled unevenly, the list already messy. A name would get written down and then someone would call out another detail and the woman would scratch it into the margin. Robert watched that and felt, stupidly, a small sense of relief that someone was writing anything at all, because writing it down made it feel like a problem you could solve. *If it's on paper, it's real. If it's real, we can fix it.*
 
 Someone glanced at him and then said his name, and it took him a second to realize it was a question.
 
@@ -4679,7 +5602,7 @@ The woman with the notebook didn’t ask what happened. She just nodded and wrot
 
 “Okay,” she said. “So limited mobility.”
 
-That wasn’t what he’d meant to offer. He’d meant I can’t do what you think I can do, but that wasn’t how it landed. The list moved on without waiting for him to fix it.
+That wasn’t what he’d meant to offer. He’d meant *I can’t do what you think I can do*, but that wasn’t how it landed. The list moved on without waiting for him to fix it.
 
 Someone said, “We need to decide what’s fair.”
 
@@ -4811,7 +5734,7 @@ Robert stood with Samantha near the doorway, not fully inside, not fully out. He
 
 She was watching faces. Not the sheriff. The faces.
 
-The door opened again.
+The door opened again. *Ding-dong.*
 
 At first, nothing happened. Someone finished a sentence. Someone else started another. The noise didn’t stop so much as tilt, like a radio losing signal for a half second and then settling on a different station.
 
@@ -4819,7 +5742,7 @@ Robert felt it before he saw anything change. A small, unpleasant drop in his st
 
 Then he noticed the three people standing just inside the doorway.
 
-They weren’t deputies. They weren’t teachers. They weren’t anyone Robert recognized, and that bothered him more than if they had been. Their clothes were plain in a way that didn’t call attention to itself—clean, practical, unremarkable. No badges visible. No bags. No papers. They didn’t push forward or raise their voices. They just stood there, waiting, like the room would eventually catch up to them.
+They weren’t deputies. They weren’t teachers. They weren’t anyone Robert recognized, and that bothered him more than if they had been. Their clothes were plain in a way that didn’t call attention to itself—clean, practical, unremarkable. Gray windbreakers. No badges visible. No bags. No papers. They didn’t push forward or raise their voices. They just stood there, waiting, like the room would eventually catch up to them. They looked like librarians who had just murdered someone.
 
 The sheriff looked at them.
 
@@ -4829,7 +5752,7 @@ Someone near Robert whispered, “Who are they?”
 
 Another voice, uncertain, answered, “They’re… with the lab. I think.”
 
-The word lab didn’t ripple the way school would have. It didn’t bring up faces or names or familiarity. It landed heavy instead, undefined, and stayed there.
+The word *lab* didn’t ripple the way *school* would have. It didn’t bring up faces or names or familiarity. It landed heavy instead, undefined, and stayed there.
 
 One of the women stepped forward just enough that she didn’t have to raise her voice.
 
@@ -4843,7 +5766,7 @@ Someone tried to jump in immediately, and another voice cut across it, sharper, 
 
 “I understand people are concerned,” she said. “But uncoordinated groups create confusion. They interfere with assessment.”
 
-Assessment.
+*Assessment.*
 
 Robert found himself thinking about the notebook out on the folding table in the street. The half-finished list. The way the woman writing it had stopped once no one could agree what the list was even for. Assessment sounded like something that didn’t care whether the list made sense.
 
@@ -4911,7 +5834,7 @@ He waited.
 
 The parking lot wasn’t full, but it wasn’t empty either. A truck idled near the curb with no one inside it. Someone sat in the driver’s seat of a sedan scrolling on their phone, thumb moving fast. No one looked up when Robert parked.
 
-Inside, the smell was the same.
+Inside, the smell was the same. *Antiseptic and old magazines.*
 
 The waiting room wasn’t.
 
@@ -5019,7 +5942,7 @@ Her face had gone pale. The ankle was bigger than it had been when they came in.
 
 He looked back at the counter.
 
-The woman was already writing again.
+The woman was already writing again. *Scratch-scratch.*
 
 He waited for something to happen. For someone to say something. For the pen to stop.
 
@@ -5041,13 +5964,13 @@ Robert opened the car door one-handed and lowered her into the seat, careful wit
 
 # Chapter 44
 
-Robert parked at the curb because the driveway was full. The garage door was open and the light was on, and Mark was inside moving things around without much purpose. Plastic bins stacked near the wall, lids half on. Masking tape labels peeling. A radio murmured somewhere toward the back, mostly static, the voice coming and going.
+Robert parked at the curb because the driveway was full. The garage door was open and the light was on, and Mark was inside moving things around without much purpose. Plastic bins stacked near the wall, lids half on. Masking tape labels peeling. A radio murmured somewhere toward the back, mostly static, the voice coming and going like a ghost in the wires.
 
 Mark looked up when Robert shut the car door. His eyes went past him to the back seat.
 
 “Hey,” he said. “Sam okay?”
 
-“She twisted her ankle,” Robert said. He stayed where he was instead of coming closer. “She’s fine. I just didn’t want to haul her out again.”
+“She twisted her ankle,” Robert said. He stayed where he was instead of coming closer. He felt contagious. Like the failure at the clinic was something he could pass on by touch. “She’s fine. I just didn’t want to haul her out again.”
 
 “Yeah,” Mark said. “Yeah, that makes sense.”
 
@@ -5071,7 +5994,7 @@ Mark frowned slightly. “Handled how.”
 
 “That’s the thing,” Robert said. “They didn’t say. Just told me to keep an eye on it. Like it was finished.”
 
-Mark picked up a rag and wiped his hands. They weren’t dirty. He wiped them anyway.
+Mark picked up a rag and wiped his hands. They weren’t dirty. He wiped them anyway. *Wipe, wipe, wipe.* Erasing the grease that wasn't there.
 
 “You tell them it was worse.”
 
@@ -5091,7 +6014,7 @@ The radio clicked. The voice dropped out, came back thinner. Mark reached for a 
 
 Mark looked at him. “Like you knew her.”
 
-“Like I should,” Robert said. “But I don’t.”
+“Like I should,” Robert said. “But I don’t. It’s like when you see a face in a dream and you wake up and can’t name it.”
 
 Mark nodded once. “Yeah.”
 
@@ -5155,9 +6078,9 @@ Not loud. Not sharp. Just finished.
 
 He’d heard it at the clinic. And before that, something close enough at the school that it slid when he tried to separate the two.
 
-It wasn’t the words. It was the way they closed things.
+It wasn’t the words. It was the way they closed things. Like a heavy book slamming shut.
 
-By the time he pulled into his driveway, the research lab had a place in his head it hadn’t had before.
+By the time he pulled into his driveway, the research lab had a place in his head it hadn’t had before. It sat there like a tumor.
 
 # Chapter 45
 
@@ -5191,7 +6114,7 @@ Relief came fast enough that he had to sit down.
 
 “Drive safe,” she said, and the line went dead.
 
-He wrote the hospital’s name on a scrap of paper even though he knew it, folded it once, and put it in his pocket like it mattered.
+He wrote the hospital’s name on a scrap of paper even though he knew it, folded it once, and put it in his pocket like it mattered. Like a talisman.
 
 Sam dozed in the passenger seat as he drove, her head tipped toward the window, breath shallow and uneven. He followed the road out of town without thinking about it at first, because this was a route he knew and knowing something felt important right now, and he let himself believe that familiarity would carry them the rest of the way if he didn’t interfere with it.
 
@@ -5237,7 +6160,7 @@ A translucent overlay blinked into place near the edge of his vision.
 **Priority Allocation: Maintained**  
 **Compliance Logged**
 
-It was the same font, the same spacing, the same quiet confidence as before, and it stayed there long enough for him to notice it without acknowledging him at all.
+It was the same font, the same spacing, the same quiet confidence as before, and it stayed there long enough for him to notice it without acknowledging him at all. It was an itch he couldn't scratch, right behind his eyes.
 
 “Dad?” Sam said.
 
@@ -5249,7 +6172,7 @@ He slowed as the familiar stretch of road opened in front of him again, the one 
 
 # Chapter 46
 
-Mark’s driveway looked the same as it had an hour ago, which shouldn’t have mattered but did. The bins were still stacked near the garage, the ladder still leaning at an angle that made Robert think it might fall if someone breathed wrong near it, and the garage door was still open, light on, like nothing had moved since he’d left.
+Mark’s driveway looked the same as it had an hour ago, which shouldn’t have mattered but did. The bins were still stacked near the garage, the ladder still leaning at an angle that made Robert think it might fall if someone breathed wrong near it, and the garage door was still open, light on, like nothing had moved since he’d left. It looked like a stage set where the actors had gone home.
 
 He pulled in anyway.
 
@@ -5271,7 +6194,7 @@ He lifted her again, slower this time, adjusting when she made a small sound tha
 
 Mark frowned. “Turned around how.”
 
-“I don’t know,” Robert said. “I just kept ending up back here.”
+“I don’t know,” Robert said. “I just kept ending up back here.” He rubbed his forehead. *Back here. Always back here.* It felt like walking into a mirror.
 
 “That doesn’t—” Mark stopped. Looked at Sam instead. “She got a fever?”
 
@@ -5313,7 +6236,7 @@ Sam opened her eyes again.
 
 “You’re not going far, right?”
 
-“No,” he said. “I’ll be back.”
+“No,” he said. “I’ll be back.” *I promise. I hope.*
 
 She nodded, satisfied with that, then said, “My shoe’s in the car.”
 
@@ -5321,7 +6244,7 @@ She nodded, satisfied with that, then said, “My shoe’s in the car.”
 
 Robert turned toward the door before either of them could say anything else. He realized as he stepped outside that he hadn’t said where he was going, and then that he wasn’t going to.
 
-He got back into the car alone.
+He got back into the car alone. The silence in the cabin was heavy, pressed down by the roof.
 
 The driveway narrowed behind him as he backed out, the house shrinking in the mirror in a way that felt wrong for how close it still was. He straightened the wheel and pulled away, keeping his eyes on the road this time, like looking back might make it harder to keep going.
 
@@ -5343,7 +6266,7 @@ He didn’t do any of that.
 
 He watched her reach the door. He watched it open for her without hesitation. He watched her step inside and disappear as easily as anyone else heading into work.
 
-The engine ticked softly as it cooled.
+The engine ticked softly as it cooled. *Tick... tick... tick.* Like a bomb.
 
 Robert stayed where he was, still and quiet, like stillness might keep the moment from solidifying into something he had to respond to. A car pulled into the space two spots over and the driver glanced at him, then looked away. A woman got out carrying a tote bag. A man in a jacket Robert didn’t recognize walked beside her, and the two of them went toward the same door Alicia had used without speaking, absorbed by the building in a way that looked ordinary until Robert tried to place his daughter inside it and couldn’t make the picture sit flat.
 
@@ -5357,7 +6280,7 @@ He went farther than he meant to, then less far than he thought, and ended up on
 
 Nothing.
 
-No sirens. No shouting. No alarms. Just the faint hum of traffic and the wind in bare branches.
+No sirens. No shouting. No alarms. Just the faint hum of traffic and the wind in bare branches. The smell of pine needles was sharp, almost chemical, cutting through the exhaust fumes.
 
 He got out and shut the door carefully, as if sound itself might draw attention.
 
@@ -5391,7 +6314,7 @@ He didn’t laugh.
 
 He looked back at the loading dock, at the men still moving crates with the steady pace of routine, at the doors opening and closing like breathing, and he tried to picture Alicia in there again, not as a hostage or a patient or a lost kid, but as someone who had walked in without looking back.
 
-The thought sat in his chest and didn’t move.
+The thought sat in his chest and didn’t move. It sat there like a stone.
 
 He stayed another few minutes, then another, the quiet discomfort returning in waves, because every extra second made it less like observation and more like waiting, and he wasn’t sure what he was waiting for. A third group came out of the same side door—two this time, not three—and they walked in opposite directions as soon as their feet hit the pavement, like they’d already decided not to look like a group.
 
@@ -5601,7 +6524,7 @@ Sam dies in the afternoon, and later Robert will think that part matters, though
 
 She has been quiet all morning. Not asleep exactly. Just lying there, eyes half open, the television murmuring to itself in a way neither of them is really listening to. When he asks if she hurts, she shakes her head without looking at him. When he asks if she wants water, she says later, and he nods as if later is a real, scheduled thing instead of a vague promise they keep making to each other.
 
-He adjusts the ankle brace again. He knows he’s already done it, but the sound of the Velcro feels like progress, like evidence of care. She flinches when he tightens it, then says it doesn’t hurt, and he lets go of the strap more slowly than he means to, trying to decide which of those things to believe.
+He adjusts the ankle brace again. He knows he’s already done it, but the sound of the Velcro feels like progress, like evidence of care. *Rrrrip. Scritch.* She flinches when he tightens it, then says it doesn’t hurt, and he lets go of the strap more slowly than he means to, trying to decide which of those things to believe.
 
 The fever doesn’t spike. It just exists. He notices it the way you notice a room getting stuffy, not all at once but in increments, until you can’t remember when it was comfortable. He puts a cloth on her forehead and counts her breaths, because counting gives his hands something to do and keeps his mind from skipping too far ahead.
 
@@ -5623,7 +6546,7 @@ Nothing.
 
 The word *no* comes out of his mouth without him deciding to say it. He shakes her, immediately too hard, her head moving in a way that feels wrong, and something inside him recoils at the sight even as his hands keep going.
 
-He starts CPR because his body remembers that much, even if his mind doesn’t. His hands are unsteady. He pushes too gently, afraid of hurting her, then harder, because hurting her suddenly seems preferable to this empty stillness. He counts out loud and loses his place and starts again.
+He starts CPR because his body remembers that much, even if his mind doesn’t. His hands are unsteady. He pushes too gently, afraid of hurting her, then harder, because hurting her suddenly seems preferable to this empty stillness. He counts out loud and loses his place and starts again. Sweat drips from his nose onto her shirt. *One, two, three, four. One, two, three, four.*
 
 The phone slips from his hand when he tries to dial. When he picks it up, the screen refuses to cooperate, blank and unhelpful, and for a moment he finds himself staring at it with something like betrayal. He tries again. Same result. He doesn’t scream. He just exhales and presses his forehead briefly against the mattress, as if that might reset something.
 
@@ -5675,7 +6598,7 @@ Alicia is home.
 
 Alicia stands in the doorway longer than she needs to, her backpack still on one shoulder, like she’s waiting for the room to finish deciding what shape it’s going to be.
 
-Robert doesn’t notice her at first. He’s sitting on the edge of Sam’s bed, one hand resting on the mattress near her knee, not touching her exactly, just close enough to reassure himself she’s still there. Sam is eating a piece of toast she found somewhere, crumbs scattered across the blanket, her feet tucked under her like she’s comfortable enough to make a mess.
+Robert doesn’t notice her at first. He’s sitting on the edge of Sam’s bed, one hand resting on the mattress near her knee, not touching her exactly, just close enough to reassure himself she’s still there. Sam is eating a piece of toast she found somewhere, crumbs scattered across the blanket, her feet tucked under her like she’s comfortable enough to make a mess. It smells like burnt toast. It smells like a miracle.
 
 “You’re home,” Robert says eventually, when Alicia clears her throat.
 
@@ -5763,7 +6686,7 @@ Sam doesn’t leave right away, and Robert notices that the way you notice the r
 
 She eats breakfast. She takes her time with it, which should be comforting, except it isn’t. She rinses her plate and stands at the sink with the water running too long, staring into it like she expects something to appear if she waits.
 
-Alicia is in the kitchen too, leaning against the counter with her arms folded, not really part of the room and also very much in the middle of it. If Robert shifts, she shifts. Not obviously. Just enough that he can’t get a clean line to the door without going around her. It feels accidental until it happens twice.
+Alicia is in the kitchen too, leaning against the counter with her arms folded, not really part of the room and also very much in the middle of it. If Robert shifts, she shifts. Not obviously. Just enough that he can’t get a clean line to the door without going around her. It feels accidental until it happens twice. It feels like she's a piece of furniture he keeps bumping into.
 
 Sam wipes her hands on her pajama shirt and says, “I’m going out.”
 
@@ -5941,7 +6864,7 @@ They don’t talk much. They don’t need to. Alicia walks slightly ahead, not l
 
 The building is easy to miss. Sam would have walked past it if Alicia hadn’t slowed just enough for her to notice the door, a subtle hitch in her stride that says *here* without saying anything at all.
 
-Inside, the air feels heavier, though not in a way Sam can measure. Not colder. Not warmer. Just weighted, like sound behaves differently, like her body is being asked to acknowledge something it hasn’t before.
+Inside, the air feels heavier, though not in a way Sam can measure. Not colder. Not warmer. Just weighted, like sound behaves differently, like her body is being asked to acknowledge something it hasn’t before. It smells metallic. Like aluminum foil.
 
 A woman meets them and smiles like this is routine.
 
@@ -6167,7 +7090,7 @@ She flips the phone facedown.
 
 There’s a knock at the door.
 
-Light. Careful. The kind of knock you give when you’re not sure you should be knocking at all.
+Light. Careful. The kind of knock you give when you’re not sure you should be knocking at all. *Rap-rap.*
 
 Anne doesn’t move at first. No one knocks like that at motels. She stands slowly, knees stiff, and crosses the room without turning on another light. She looks through the peephole.
 
@@ -6267,5 +7190,5 @@ The light changes.
 
 Anne presses the gas.
 
-In the mirror, her daughters watch the road unfold behind them.
+In the mirror, her daughters watch the road unfold behind them. Their reflections don't blink.
 
