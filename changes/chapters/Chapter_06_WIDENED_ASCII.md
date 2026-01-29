@@ -75,6 +75,8 @@ Pain detonated behind her eyes, sudden and punishing, like a nail driven too dee
 
 "Stop," she hissed, fury breaking through fear. "Stop doing that."
 
+Not a voice. A word pressed into her skull: No.
+
 The nausea loosened slowly, like a leash being relaxed one notch.
 
 Rachel stood there shaking, staring at the fork. Left was a no. Right was a maybe.

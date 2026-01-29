@@ -28,6 +28,8 @@ Not her body.
 
 Her.
 
+The latch felt deliberate, like a hand closing around her ribs from the inside.
+
 Rachel gasped and choked as heat and cold tore through her head, impressions flashing too fast and too close together to separate, white-hot fragments piling up without order or edge.
 
 The figure at the center of the circle watched without moving.
@@ -53,6 +55,8 @@ Her vision tunneled.
 Something screamed.
 
 Something else answered.
+
+The answer did not feel like hers.
 
 The light under her skin changed, not dimming, not flaring, but sinking deeper, growing heavier and slower, pulsing in time with her heartbeat and tugging at her thoughts whenever she tried to move.
 

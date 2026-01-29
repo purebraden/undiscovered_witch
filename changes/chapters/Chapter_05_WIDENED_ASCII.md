@@ -101,6 +101,7 @@ The flesh was smooth and darkened, the skin marked by a faint circular scar that
 Rachel touched it.
 
 The light under her skin answered immediately, flaring low and heavy, tugging hard enough to make her stagger.
+A cold attention rode the flare, patient and not hers.
 
 She jerked her hand back and leaned against the wall, breathing hard.
 
