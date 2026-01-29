@@ -1,123 +1,55 @@
 # Chapter 24
 
-Rachel hit stone again, harder this time, the impact snapping through her shoulder and up into her jaw, teeth clacking as the surface beneath her finally leveled out and stopped trying to throw her sideways.
+They did not rush her. They hovered instead, stopping short of the etched lines as if the floor were a fence.
 
-She stayed there for a second, stunned, the world still moving even though she wasn't, her stomach rolling late like it had missed a step. The pressure inside her twisted and settled, not easing, not surging, just rearranging itself like it hadn't decided whether the ride was over yet.
+Someone swore under their breath. Another voice said, "Secondary," and the word chilled the air.
 
-Light came on.
+"No contact," a woman said, louder. "Back up."
 
-Not a flash. Not a search.
+Boots scraped stone. Space opened around Rachel, too wide, too bright.
 
-Just on.
+The pressure inside her shifted, restless, like it did not like the distance.
 
-The pressure tightened and then loosened, quick and reflexive, like it recognized the shape of the room and didn't object.
+A seam split along one wall.
 
-Rachel pushed herself onto one elbow and nearly gagged as the floor tilted under her. She squeezed her eyes shut until it steadied, breath tearing in and out of her chest, and then forced them open again.
+Something spilled out low and fast. Not smoke. Not liquid. It hugged the floor, dense and heavy, swallowing light where it passed.
 
-The room was wide and clean, the stone cut straight and precise, the walls too smooth for handholds. Lines ran along the floor in careful patterns, faintly etched, catching the light at certain angles and disappearing at others. No frames. No straps. No obvious places to lock someone down.
+Cold punched through Rachel's boots, biting and wrong. She tried to scramble back and the pressure slammed down, crushing and sudden, pinning her in place hard enough that her vision went white at the edges.
 
-Her chest tightened.
+"No," she gasped.
 
-A door slid open across the room with a quiet hiss.
+The dark climbed her calves. Burning and freezing at once.
 
-Footsteps followed. Not heavy. Not careful. Just normal.
+"Rollback," someone shouted.
+"We cannot," another voice answered, high and thin. "It is already engaged."
 
-Rachel dragged herself upright and pressed her back to the wall, heart hammering. The pressure stayed coiled under her ribs, quiet and watchful, like it was waiting to see what she would be handed.
+The etched lines flared.
 
-Two people entered.
+Rachel clawed at the stone. The pressure inside her surged wild and jagged, heat bursting through her chest in uneven pulses that made everything worse.
 
-They wore light gear, clean and fitted, nothing bulky or reinforced. One carried a slate tucked under their arm. The other rolled a low cart stacked with equipment that looked delicate in a way Rachel didn't trust.
+Then it shifted.
 
-Neither of them reacted to seeing her.
+Not gone. Different.
 
-"Delivered," the one with the slate said, glancing down. "Late."
+The heat under her skin steadied, no longer bursting at random. The dark slowed, then hesitated, as if it had met something it could not calculate.
 
-The other nodded, already guiding the cart closer. "Within tolerance."
+"Hold," the woman said. "Do not touch her."
 
-Rachel stared. "I-"
+The cold pulled back an inch. Then another.
 
-"Stay where you are," the slate-holder said mildly, still not looking up. "You're shaking."
+Rachel sagged forward, gasping, legs burning as feeling crept back in uneven waves.
 
-Rachel bit down hard and stayed still, jaw clenched until it hurt.
+The dark drained toward the seam, retreating in ripples until stone ground shut over it again.
 
-The pressure shifted, faint and tight.
+Silence hit the room. Not empty. Loaded.
 
-The slate-holder tapped once. "Classification?"
+"Clear the sector," the woman said.
 
-"Low," the other said without hesitation. "Routine."
+"We cannot leave her-"
+"We cannot keep her," another voice snapped.
 
-The word landed wrong, like a dropped plate that hadn't shattered yet.
+Rachel lay on her side, shaking, listening to boots retreat, to equipment being rolled back, to the door sealing.
 
-"No," Rachel said. Her voice came out thin. "That's wrong."
+The lights dimmed. The etched lines dulled.
 
-The slate-holder finally looked at her. Not alarmed. Not afraid. Just curious, like she'd said something out of order.
-
-"Speak when prompted," they said. "It'll go faster."
-
-The pressure flickered, sharp and brief, and Rachel felt it under her sternum like a held breath.
-
-"I'm not-" she started.
-
-"Unscheduled arrivals often experience confusion," the other said, reaching toward her arm. "We'll get you stabilized."
-
-Rachel flinched back hard enough that her shoulder hit the wall and pain flashed white behind her eyes.
-
-The etched lines in the floor brightened.
-
-Both handlers froze.
-
-The slate-holder glanced down. Then back up. "Did you see that?"
-
-"Probably reflex," the other said, hand still hovering. "She's flagged low."
-
-Rachel laughed once, ugly and breathless. "You shouldn't touch me."
-
-The pressure tightened.
-
-The slate-holder exhaled through their nose. "Proceed. We're already behind."
-
-The other nodded and stepped in again, fingers closing around Rachel's wrist.
-
-The instant contact was made, the room seemed to lurch.
-
-Heat ripped through Rachel's arm and chest, a tearing sensation that felt like being pulled apart and shoved back together wrong, and she screamed as force burst outward, not directional, not precise, just there.
-
-The handler flew backward, hit the floor hard, and didn't get up right away. The cart tipped, equipment clattering across stone.
-
-The floor lines flared bright.
-
-No alarms sounded.
-
-The slate-holder stared at the fallen body, then at Rachel, then at the slate, mouth opening slightly.
-
-"That's not-" they said, stopping themselves.
-
-Rachel sagged against the wall, gasping, vision dimming around the edges. The pressure coiled tight inside her, heavy and present, humming faintly.
-
-The fallen handler groaned, rolling onto their side, eyes wide and unfocused.
-
-The slate-holder took one step back. Then another.
-
-They tapped the slate again, harder this time. "Reclassify."
-
-Nothing happened.
-
-The pressure pulsed once.
-
-Somewhere deeper in the building, stone shifted.
-
-Rachel slid down the wall until she was sitting on the floor, shaking, hands pressed flat against the stone to keep herself upright.
-
-"I told you," she whispered, not sure who she meant.
-
-The door hissed open again.
-
-More footsteps. Faster now. Too many.
-
-The slate-holder looked up, panic finally cracking through the calm. "We have a problem."
-
-Rachel closed her eyes.
-
-Whatever rules had failed to follow her here had finally arrived.
-
-And they were already behind.
+She was alone again, but the air was no longer calm. It hummed with something that had been woken and did not want to go back to sleep.

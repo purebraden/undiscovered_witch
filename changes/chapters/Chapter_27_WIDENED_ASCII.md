@@ -1,127 +1,49 @@
 # Chapter 27
 
-They argued over her like she wasn't there.
+The maintenance run ended in a junction that had been lit for no one.
 
-Not loudly. Not yet. The voices stayed low and fast, overlapping just enough that words tangled together and lost their edges, but she could hear the shape of it anyway, the pull and counter-pull of people trying to decide whose fault something was before anyone finished bleeding.
+Lines in the floor glowed faintly. Doors to either side sat half open, as if the corridor could not decide which route was safe.
 
-Someone knelt near her feet and then thought better of it and shifted back again, hands hovering uselessly in the air. Another voice snapped something about exposure windows. Someone else said rollback again, like saying it enough times might make it retroactive.
+Rachel stepped into the junction and felt the pressure tighten, alert and ready.
 
-She lay on her side and stared at the floor. The etched lines were dull now, almost invisible unless she tilted her head just right. Her legs burned in uneven patches, sensation crawling back in fits and starts that made her breath hitch. Every time she tried to move her toes the pressure inside her stirred, tight and watchful, and she stopped.
+Someone was waiting.
 
-Boots scraped closer.
+Three people in dark coats stood at the far end, spaced out, hands visible, a strip of pale material stretched between two of them like a leash.
 
-A man crouched just outside the lines, his knees creaking as he settled into an awkward half-squat, like he didn't trust the floor to keep its promises. He smelled faintly of oil and metal and something sour underneath.
+"Stop," one said, calm and flat.
 
-"Can you move?" he asked.
+Rachel froze.
 
-She swallowed. "Define move."
+The strip on the floor brightened. A shallow groove lit beneath her boots, hemming her in.
 
-His mouth twitched and then flattened again. "Don't."
+She looked left. The pressure shoved hard and she gagged, vision tunneling.
 
-She nodded once and stayed still.
+She looked right. The same. The pressure was not letting her near the doors.
 
-Behind him, someone said, "We need to document injuries."
+The nearest person took one step forward. The strip between them hummed.
 
-"Document the room first," another voice shot back. "Before it resets."
+Rachel's chest burned. The pressure coiled, hot and tight, like a fist held back.
 
-"It already reset," someone else said. "That's the problem."
+"Do not touch her," someone said from farther back. "If she spikes, drop it."
 
-The man leaned closer, careful not to cross the etched boundary. "Do you feel cold?"
+The strip hummed again.
 
-She thought about it. Her legs were still numb in places, the cold lingering deep and unpleasant, but the heat under her skin hadn't gone away either. The pressure coiled tighter when she focused on it.
+Rachel took one step backward. The groove behind her lit.
 
-"Yes," she said. "And no."
+She realized then that the only unlit path was forward, toward the strip.
 
-He exhaled through his nose. "Of course."
+She breathed in, then moved.
 
-A woman pushed past him, sharp and impatient. "We can't leave her here."
+The pressure flared, not in refusal but in defense, and the stone under the strip warped with a low groan. The person holding it staggered as the floor dipped.
 
-"We can't move her," the man said.
+Rachel did not wait. She lunged into the gap, shoulder down, and the strip snapped as she passed, its pale material tearing with a sharp, dry sound.
 
-"We can't not," the woman snapped.
+"Now," someone shouted.
 
-She closed her eyes. The argument rose a notch, voices overlapping, words clipped and tense.
+The corridor ahead opened into a cart lane, rails set into the floor, a slow-moving line of empty carts sliding by.
 
-"She triggered it-"
+Rachel threw herself onto the nearest one. Her leg screamed. She bit down and held on as the cart pulled her forward.
 
-"She was misfiled-"
+Behind her, the floor lines flared. A shout broke. Something slammed into the stone where she had been.
 
-"That protocol hasn't been active in-"
-
-"Doesn't matter-"
-
-The pressure inside her shifted, restless, like it didn't like the noise.
-
-"Stop," she said.
-
-The room stilled, not because she'd shouted, she hadn't, but because something in her voice scraped wrong.
-
-Everyone looked at her.
-
-She opened her eyes and immediately regretted it as the room tilted again, the lights too bright, the faces too sharp.
-
-"You're making it worse," she said, breath shallow. "When you argue."
-
-A beat of silence followed.
-
-The woman who'd pushed forward earlier stared at her, jaw tight. "How would you know that?"
-
-She almost laughed. "I can feel it."
-
-The pressure pulsed once, heavy and close.
-
-Someone muttered, "That's not possible."
-
-"Log it," someone else said automatically.
-
-The man nodded slowly, eyes never leaving her. "Okay," he said. "Okay. We're going to slow this down."
-
-"We don't have time," the woman snapped.
-
-"We didn't have time before either," he shot back. "And look how that went."
-
-A low groan came from across the room.
-
-She turned her head and saw the handler who'd been thrown earlier being half-dragged upright by two others, their face pale and slick with sweat. One arm hung wrong, bent at an angle that made her stomach roll.
-
-The pressure tightened.
-
-She looked away.
-
-"We need med support," someone said.
-
-"Medical won't come in here," another voice answered. "Not after-"
-
-"Then bring the barriers," the woman said. "Full separation."
-
-"No," the man said sharply. "Not yet."
-
-Her heart kicked. "What are barriers?"
-
-No one answered her.
-
-The man rubbed a hand over his face. "We need to move her," he said finally, quieter now. "But not like before."
-
-The woman scoffed. "With what?"
-
-He looked at the etched lines, at the walls, at the ceiling. "With distance."
-
-The pressure inside her shifted, alert.
-
-"What does that mean?" she asked.
-
-He met her eyes. "It means we clear everything else first."
-
-Someone laughed, short and brittle. "You want to evacuate the sector?"
-
-"I want her alone," he said. "And I want everything that reacts to her gone."
-
-The room went very quiet.
-
-"That's not protocol," the woman said.
-
-"No," he agreed. "It isn't."
-
-The pressure settled, heavy and close, like it was listening.
-
-She lay there, heart pounding, pain humming through her body, and wondered which of them was more afraid, the people trying to decide what to do with her, or whatever had decided to stay.
+The cart carried her into the next corridor, and the pressure settled heavy and focused, not toward safety but toward motion.

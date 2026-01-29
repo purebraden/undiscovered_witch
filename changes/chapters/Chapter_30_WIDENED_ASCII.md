@@ -1,133 +1,43 @@
 # Chapter 30
 
-The first indicator was not an alarm.
+The corridor ended at a junction cut into older stone, the walls pocked with bolt holes and old seams that had been sealed and reopened too many times.
 
-It was a light that came on in an empty corridor.
+Rachel stopped and felt the pressure tighten, uncertain, as if the place did not have a clear rule for what she was supposed to do next.
 
-A thin strip along the ceiling, pale and steady, the kind of illumination meant for routine movement. No sirens. No flashing red. Just the quiet, clinical acknowledgment that something had entered a category it didn't belong in.
+A thin device slid from a slit in the wall.
 
-In the control bay, a woman looked up from her slate and frowned.
+It was no larger than her forearm, a pale rod with a faint blue line along its edge. It hovered, humming softly, and the line flickered as it turned toward her.
 
-"That line shouldn't be active," she said.
+Rachel froze.
 
-No one answered right away. The room was half-staffed, the way it got when a sector was being cleared. Fewer chairs occupied. Fewer voices. Less warmth in the air.
+The pressure went still, the held breath absence that made her teeth ache.
 
-The woman tapped the slate again, harder this time. The display refreshed. The light stayed on.
+The rod drifted closer.
 
-A man two stations down leaned back in his chair, eyes narrowed, and said, "Which corridor?"
+She took one step back.
 
-She tilted the slate so he could see.
+The rod paused. The line brightened.
 
-He stared for a beat, then sat forward, the movement abrupt enough to rattle his chair. "That's... no. That's not on a live route."
+Rachel felt heat rise under her skin, the pressure coiling hard, ready to flare. She forced herself still, jaw clenched, arms shaking.
 
-"It is now," she said, and hated how calm her voice sounded.
+The rod retracted a fraction. The hum changed, higher now, curious.
 
-Someone behind them laughed once, short and tired. "Everything is live today."
+From somewhere beyond the wall, a voice carried, muffled and urgent. "It is on the fallback line."
 
-The woman didn't laugh back. She watched the strip of corridor on her slate, the clean overhead line, and waited for it to turn off.
+"Keep it moving," another voice answered. "No contact."
 
-It didn't.
+The pressure twitched at the word contact, a reflexive refusal.
 
-A second light came on adjacent to the first.
+The rod extended again.
 
-Then a third.
+Rachel broke.
 
-Like stepping stones.
+She shoved herself sideways into a narrow service gap, shoulder scraping stone, and the pressure flared just enough to shove the rod back against the wall. It clattered, its light stuttering.
 
-The man swore under his breath. "That sector is supposed to be dark."
+A tone chirped once. Not an alarm. A signal.
 
-"It is dark," someone else said, already scrolling. "Mostly."
+Rachel kept moving, slipping through the gap into a darker run that smelled of dust and old oil. Behind her, the hum shifted, and she heard the rod retreat, the slit sealing with a soft click.
 
-The woman felt her stomach tighten. "Pull the power map."
+The pressure did not ease. It pushed her on, away from the voices, away from the line of light that now traced the corridor she had left.
 
-A different display came up, slower, clunkier, the kind that belonged to older systems. It showed the facility as a layered grid, blocks and corridors and nodes that didn't match the newer overlays, as if two versions of the same place were being forced to agree with each other.
-
-The lights that had come on were marked with small pale indicators.
-
-More of them appeared as they watched.
-
-"What's feeding those?" she asked.
-
-The man leaned in. "Nothing should be feeding those."
-
-The display disagreed.
-
-A line brightened on the map, thin as a hair, running from an interior node toward the cleared sector. It wasn't a straight path. It wandered through places that were supposed to be disconnected, bridging gaps with old connections that had been sealed for a reason.
-
-The woman stared at it, throat dry. "That's not a route."
-
-"That's a fallback," the man said quietly.
-
-They didn't look at each other when he said it. Saying it out loud made it more real.
-
-A tone chimed. Not an alarm. A notification.
-
-The slate in the woman's hands updated with a single status line she hadn't seen in a long time.
-
-She didn't read it aloud.
-
-Her fingers went cold anyway.
-
-Across the room, someone said, "We've got a pressure irregularity in the walls."
-
-"Where?" the man snapped.
-
-"Cleared sector," the voice answered. "It's... it's spreading."
-
-The woman looked back down at the map and watched the thin hairline route brighten another inch.
-
-The man's jaw worked as if he was chewing something hard. "Shut down the feed."
-
-"I can't," the woman said, and hated how the words sounded.
-
-He leaned over her slate, tapped twice, swiped, entered a code. The display blinked, considered, and rejected him without comment.
-
-He tried again.
-
-The same result.
-
-Someone across the room said, "We're getting a temperature report."
-
-"Cold?" a voice asked.
-
-"No," the answer came back after a beat. "Hot. Then not. Then hot again. Like it can't decide."
-
-The woman's skin prickled.
-
-The man pulled his hand back from the slate slowly, as if the screen might bite him.
-
-"What's the source node?" he asked.
-
-The woman swallowed and enlarged the map, tracing the route backward with her finger until she reached the point where all the lines converged.
-
-A single block pulsed faintly on the display.
-
-Not labeled. Not in the new overlay.
-
-It sat like a dead tooth in the grid, present but unacknowledged.
-
-"That's inside the cleared sector," she said.
-
-"Nothing should be active in there," the man replied.
-
-"Then why is it-"
-
-A hard click came from somewhere in the control bay, sharp enough to cut through the low noise of the room. Everyone froze for a half second, looking around, as if the sound had come from inside the walls.
-
-Another click answered it, deeper, farther away.
-
-Then a third.
-
-The older display flickered once.
-
-When it steadied, three more corridor lights had come on.
-
-The man stood up so fast his chair skidded back. "Seal the fallbacks."
-
-"They're already engaged," someone said, voice thin.
-
-The woman stared at the map, at the brightening line that kept crawling through dead corridors, and realized with a sinking certainty that whatever had been turned off was not staying off.
-
-She opened her mouth to speak and didn't know what to say.
-
-Because the manual didn't have a section for systems that woke up on their own.
+She limped into the dark, and the lights followed at a distance she could feel.
