@@ -50,6 +50,8 @@ Silence hit the room. Not empty. Loaded.
 
 Rachel lay on her side, shaking, listening to boots retreat, to equipment being rolled back, to the door sealing.
 
+She needed a way out before they decided to cut her.
+
 The lights dimmed. The etched lines dulled.
 
 She was alone again, but the air was no longer calm. It hummed with something that had been woken and did not want to go back to sleep.

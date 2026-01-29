@@ -4,6 +4,8 @@ Rachel did not scream when the recess sealed. She did not have air to waste on i
 
 She pressed a hand to the wall where Lena had pushed her and felt for a seam. Smooth. Cold. No give. The pressure inside her tightened, not a shove, a warning.
 
+Lena's last look stayed with her, hard and instructive.
+
 Somewhere deeper in the stone, a hum woke, low and unsteady. A line of light stitched itself across the floor, thin as chalk.
 
 The pressure leaned toward it.

@@ -122,6 +122,8 @@ The person took a slow step closer and stopped outside arm's reach.
 
 "You're not alone," they said.
 
+It was the first thing in this place that sounded like a promise.
+
 Rachel's stomach tightened.
 
 "Don't say it," the person added. "If you name it, they'll hear it faster."

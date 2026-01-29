@@ -34,6 +34,8 @@ Rachel swallowed and forced the sound out, felt it scrape its way free.
 
 "Rachel."
 
+She held the name in her mouth, the last thing that still pointed at home.
+
 The pressure loosened.
 
 The man marked something on the slate and asked if she could walk, his tone unchanged, and Rachel shifted her weight, pain flaring hot and sharp in her leg before sinking back into a dull pull, and said yes, watching his face for any sign that the answer mattered more than the sound of it.

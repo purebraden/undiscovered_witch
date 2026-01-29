@@ -26,6 +26,8 @@ From somewhere beyond the wall, a voice carried, muffled and urgent. "It is on t
 
 "Keep it moving," another voice answered. "No contact."
 
+She needed out. Daylight. Anything that was not this.
+
 The pressure twitched at the word contact, a reflexive refusal.
 
 The rod extended again.
