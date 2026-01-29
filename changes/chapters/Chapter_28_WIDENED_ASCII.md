@@ -16,7 +16,7 @@ Rachel lay on cold stone, gasping, and realized the pressure had not saved her f
 
 She pushed herself up and found a narrow passage, low and wet, the floor slick. Water pooled in the center, black and still.
 
-On the wall, someone had scratched a line with something sharp.
+On the wall, someone had scratched a line with something sharp. The marks were not letters she knew, but the meaning slid into her head anyway.
 
 DO NOT LET THEM SEE YOU.
 

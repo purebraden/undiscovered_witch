@@ -4,11 +4,15 @@ The hatch resisted, metal warped and stiff, until she leaned her shoulder into i
 
 She pulled herself into a narrow courtyard. The air smelled arranged, smoke without heat. The pressure loosened.
 
+Above the walls, a slice of sky showed wrong stars and a pale ring she had never seen.
+What the fuck.
+She swallowed and kept moving.
+
 The street beyond was empty by design, shutters drawn, doors marked with a simple line in dull white. A man at the far end carried a crate, saw her, and turned away without a word.
 
 Rachel limped forward. The pressure tightened when she angled toward the brighter street to her right, where voices and market noise carried on a steady hum. Nausea bit hard behind her eyes. She veered back to the quiet.
 
-A calm voice drifted from somewhere nearby. "Hold positions. No contact."
+A calm voice drifted from somewhere nearby. The words were not hers, but she understood them anyway. "Hold positions. No contact."
 
 She saw them then, not as a line of soldiers but as shapes at doorways, people who did not look at her but did not leave. The city was pretending she was not there while it watched her pass.
 

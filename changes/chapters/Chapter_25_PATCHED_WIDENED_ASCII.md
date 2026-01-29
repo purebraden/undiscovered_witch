@@ -28,7 +28,7 @@ She did not argue. She did not have breath to waste.
 
 The side passage dipped and tightened. Pipes ran along the ceiling, damp and rusted. A grate on her right opened into a lower run where a pair of workers hurried past, glancing up without seeing her.
 
-Rachel took one step toward the grate. She opened her mouth to warn them.
+Rachel took one step toward the grate. She opened her mouth to warn them, and no sound came out the way she meant it.
 
 Nausea knifed through her. The pressure locked her knees and she sagged against the wall until it eased.
 

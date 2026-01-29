@@ -26,6 +26,8 @@ A man approached from the far side carrying a slate under one arm and set it dow
 
 "Name," he said.
 
+Not her language. She understood anyway, which should have been impossible.
+
 Rachel opened her mouth and felt the pressure tighten, sudden and firm, her throat closing around the word until it stuck behind her teeth.
 
 The man did not move or repeat himself.
