@@ -7,6 +7,7 @@ Rachel clung to the rail as the corridor angled upward, the air warming, the sou
 She could hear them now. People. Too many. A market hum, or a shift change, or something that meant open space.
 
 The pressure slammed hard.
+Not a voice. A single word pressed into her skull: Away.
 
 Rachel cried out and tumbled off the cart as a side gate flashed open beside her. She hit the floor, rolled, and the gate snapped shut behind her with a heavy clang.
 

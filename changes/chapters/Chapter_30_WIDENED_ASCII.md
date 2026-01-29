@@ -11,6 +11,7 @@ It was no larger than her forearm, a pale rod with a faint blue line along its e
 Rachel froze.
 
 The pressure went still, the held breath absence that made her teeth ache.
+Something inside her listened.
 
 The rod drifted closer.
 
