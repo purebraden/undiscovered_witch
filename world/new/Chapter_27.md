@@ -12,11 +12,7 @@ The pressure stayed close to Rachel’s ribs, not pushing, not pulling, just the
 
 Rachel replayed the rules without meaning to.
 
-Stay seated.  
-Don’t watch.  
-Don’t step in.  
-Don’t resist.  
-Don’t anticipate.
+Stay seated. Don’t watch. Don’t step in. Don’t resist. Don’t anticipate.
 
 They all pointed at the same thing without naming it.
 

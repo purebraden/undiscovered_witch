@@ -76,9 +76,7 @@ They moved again.
 
 The corridor narrowed, then widened into a long rectangular hall lined with doors. Real doors this time—metal-faced, edges scarred from use. Each had a small placard mounted beside it. Most were blank. A few weren’t.
 
-ARCHIVE  
-INTAKE  
-HOLD
+ARCHIVE. INTAKE. HOLD.
 
 Rachel’s gaze snagged on the last one. The pressure did too, lingering there like it was tasting the word.
 
