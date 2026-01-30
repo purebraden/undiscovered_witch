@@ -210,7 +210,7 @@ The pressure shifted, uneasy.
 
 “You’re not from here,” Rachel said.
 
-Lena glanced at her. “Neither are you.”
+Lena glanced at her. “Neither are you. Not after a circle spits you out.”
 
 “Where are you from?”
 

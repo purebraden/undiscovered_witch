@@ -128,6 +128,8 @@ The older woman stepped closer than she had before. Not close enough to touch. C
 
 “These rules don’t protect you,” she said. “They protect everyone else.”
 
+She didn’t have to say from what. Rachel could feel it sitting under her own skin, warm and wrong, like a brand that wouldn’t cool.
+
 Rachel nodded.
 
 “And if they don’t?” Rachel asked.

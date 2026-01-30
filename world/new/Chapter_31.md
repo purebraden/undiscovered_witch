@@ -64,6 +64,8 @@ Lena stepped back, arms folding too tight across her chest.
 
 “They’ll note it,” she said.
 
+Everything got noted once you were managed. Once you were something on a clipboard instead of a person who’d been in the wrong place when the wrong circle lit up.
+
 Rachel swallowed. “They didn’t ask how.”
 
 Lena’s jaw set. “They don’t.”

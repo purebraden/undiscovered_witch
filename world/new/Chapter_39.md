@@ -64,6 +64,8 @@ A pause that didn’t belong to technical systems, stretched just long enough to
 
 “Adjacent sector,” the voice said. “Pattern similarity flagged.”
 
+Not here, then. Somewhere else. Somebody else’s floor arriving late. Somebody else eating the cost.
+
 The pressure shifted, dense and curious, not leaving Rachel, only changing its angle as if the room had opened a second point of interest somewhere beyond the stone.
 
 The structure held steady around the chair.

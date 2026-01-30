@@ -76,11 +76,11 @@ They moved again.
 
 The corridor narrowed, then widened into a long rectangular hall lined with doors. Real doors this time—metal-faced, edges scarred from use. Each had a small placard mounted beside it. Most were blank. A few weren’t.
 
-ARCHIVE  
-INTAKE  
-HOLD
+ARCHIVE. INTAKE. HOLD.
 
 Rachel’s gaze snagged on the last one. The pressure did too, lingering there like it was tasting the word.
+
+INTAKE snagged too, for a different reason. Intake was what you called it when you didn’t want to say summoned, when you didn’t want to say dragged.
 
 The older woman stopped in front of a door without a label. She unlocked it with a key that looked worn thin, the grooves shallow from use.
 

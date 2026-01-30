@@ -40,7 +40,7 @@ Rachel felt the pressure press outward, unfocused, brushing the edges of the roo
 
 “We won’t stay,” Rachel said. The words came out fast, overlapping themselves. “We just need to pass through.”
 
-The man’s gaze stayed on her, steady and unhappy. “That’s what the last one said.”
+The man’s gaze stayed on her, steady and unhappy. “That’s what the last one said. The last off-worlder.”
 
 Lena’s jaw tightened. “She’s injured.”
 

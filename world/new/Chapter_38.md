@@ -24,6 +24,8 @@ Sound arrived late. Light followed after. The pressure slid in last, compressed 
 
 “Containment holding,” the voice said.
 
+Containment. Not comfort. Not safety. Just making sure the rest of the building didn’t start doing what this room was doing.
+
 Mara swallowed. “She’s—”
 
 “Within parameters,” the voice cut in. “Maintain position.”
@@ -31,6 +33,8 @@ Mara swallowed. “She’s—”
 The wall plate dimmed.
 
 The hum stayed.
+
+Footsteps passed in the corridor outside—fast, too many, and then gone again, like someone had realized this door was the wrong door and kept moving.
 
 Time moved without markers. The structure didn’t pulse again. It didn’t need to. Its responses had shortened, corrections landing faster each time, clean and exact.
 
@@ -53,6 +57,10 @@ The structure answered.
 The room followed late.
 
 “Variance resolved,” the voice said when it returned, softer now. “Proceeding to extended monitoring.”
+
+“Resolved here,” Mara said under her breath. She didn’t look at Rachel when she added it. She didn’t need to.
+
+The wall plate brightened by a fraction. “Transfer team en route. Maintain position.”
 
 The light cooled another degree.
 

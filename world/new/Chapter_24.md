@@ -116,6 +116,8 @@ The woman stepped back a pace. Then another, careful not to turn her back.
 
 “We don’t touch you,” she said. “We don’t stand close. We don’t close you into smaller spaces than we have to.”
 
+She said it like she’d said it before. Like she’d watched a room decide it didn’t like a person and fix the problem in the quickest way available.
+
 Lena let out a short breath that might have been a laugh. “Safehouse.”
 
 The word sat badly in the room.
