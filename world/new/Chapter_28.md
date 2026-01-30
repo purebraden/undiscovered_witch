@@ -24,13 +24,15 @@ The pen scratched. The sound cut through the room sharper than it should have. R
 
 “Origin,” the woman said.
 
-Rachel hesitated. “I don’t know.”
+Rachel hesitated. The room wanted a clean label, a box you could close and stack.
+
+“Earth,” she said. The word tasted stupid in her mouth, like she was naming a place off a brochure. “Just… Earth.”
 
 The pen paused. Then continued.
 
 “Method of arrival.”
 
-“I woke up.”
+“A circle,” Rachel said. She kept her hands flat, because her hands had started answering questions on their own. “Chanting. A knife. Then it broke and everybody started screaming like they were the ones who’d been dragged in.”
 
 The woman nodded as if she’d expected that. The pressure drifted a fraction closer, curious.
 

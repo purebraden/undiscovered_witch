@@ -54,7 +54,7 @@ The pressure swelled without direction, dense and clumsy. A crate slid an inch a
 
 Rachel tried to still herself and failed. The pressure didn’t care about intent.
 
-“You know what happens next,” the woman said. “You know how fast they trace this.”
+“You know what happens next,” the woman said. “You know how fast they trace a summoning spill.”
 
 “I know,” Lena said, too quickly.
 

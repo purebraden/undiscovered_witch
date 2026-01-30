@@ -76,7 +76,7 @@ Rachel’s heart hammered, but her hands were still. Her breathing had already e
 
 Lena turned toward the room.
 
-Light hummed softly inside. Clean panels. A body against the far wall, limbs bent where they shouldn’t bend. Blood spread slowly, following the grooves cut into the floor.
+Light hummed softly inside. Clean panels. The kind of room you woke up in when the summon held and nobody panicked. A body against the far wall, limbs bent where they shouldn’t bend. Blood spread slowly, following the grooves cut into the floor.
 
 Rachel stared at the blood, not the person.
 
