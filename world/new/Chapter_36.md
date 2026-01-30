@@ -8,6 +8,8 @@ The wall plate lit without a click, a soft glow that didn’t throw much shadow,
 
 “We are initiating a stabilizing protocol,” the voice said, even and distant, as if it were reading from a line that didn’t care who stood on the other side of it. “Remain in place.”
 
+Stabilizing sounded almost kind until you heard it delivered like an order to a machine.
+
 Rachel stayed seated.
 
 The chair didn’t creak, and the absence sat there, unhelpful.

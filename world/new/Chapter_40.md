@@ -38,6 +38,8 @@ The wall plate stayed lit.
 
 “Environmental correction underway,” the voice said, attention already angled elsewhere.
 
+Elsewhere meant someone was paying for it. That was how this place talked when it didn’t want you picturing the body.
+
 Rachel’s breath stayed even.
 
 The pressure stayed quiet.

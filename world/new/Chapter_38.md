@@ -24,6 +24,8 @@ Sound arrived late. Light followed after. The pressure slid in last, compressed 
 
 “Containment holding,” the voice said.
 
+Containment. Not comfort. Not safety. Just making sure the rest of the building didn’t start doing what this room was doing.
+
 Mara swallowed. “She’s—”
 
 “Within parameters,” the voice cut in. “Maintain position.”
