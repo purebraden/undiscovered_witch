@@ -22,6 +22,8 @@ Lena didn’t look at it.
 
 Rachel kept her eyes on the wall instead.
 
+Back home, a chair was a chair. It didn’t have rules. It didn’t have consequences.
+
 The smell in the room sharpened when she inhaled too deeply—metal, cleaner, something dry and old underneath. She eased her breath back again and let her shoulders sink a fraction.
 
 The pressure shifted.

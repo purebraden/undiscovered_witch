@@ -4,6 +4,8 @@ They didn’t call it a procedure.
 
 They moved like people who didn’t want words sticking to anything.
 
+Procedure was what you called it when you were calm enough to pretend it wasn’t panic. Nobody in this room looked that calm.
+
 The older woman shifted the table first, dragging it a few inches farther from Rachel’s chair without asking. The legs shrieked against the floor. Rachel flinched and stopped herself from adjusting the chair again.
 
 Miri stood up too fast and knocked her knee against the toolbox. She swore under her breath, pressed her palm hard against the bruise, and didn’t look at Rachel when she crossed the room.

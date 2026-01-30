@@ -80,6 +80,8 @@ ARCHIVE. INTAKE. HOLD.
 
 Rachel’s gaze snagged on the last one. The pressure did too, lingering there like it was tasting the word.
 
+INTAKE snagged too, for a different reason. Intake was what you called it when you didn’t want to say summoned, when you didn’t want to say dragged.
+
 The older woman stopped in front of a door without a label. She unlocked it with a key that looked worn thin, the grooves shallow from use.
 
 Inside, the room felt finished in a way the others hadn’t. Smooth floor. Even lighting. A narrow bed bolted to the wall. A chair placed precisely across from it, legs squared to the lines in the stone.
