@@ -12,6 +12,8 @@ Mara turned toward it, then hesitated, as if the space between her and the stone
 
 The voice on the other side didn’t adjust for the delay. “Proceed. Secondary escort reassigned.”
 
+Proceed meant they’d decided the room could keep its damage as long as it stayed in the right place.
+
 The plate went dark again.
 
 Lena didn’t move, and for a moment it wasn’t clear whether the words had reached her at all, because her mouth opened and closed without sound, her head tilting slightly like she was trying to catch something that had already passed.

@@ -10,7 +10,7 @@ The door opened.
 
 A woman stepped in, younger than Lena, hair pulled back too tight, eyes already moving before she’d fully crossed the threshold. She didn’t stop to take the room in. She skimmed it instead, fast and practiced, like she was checking whether something had drifted while no one was looking.
 
-“Mara Kline,” she said. “Escort. Third rotation.”
+“Mara Kline,” she said. “Railroad escort. Third rotation.”
 
 Lena nodded and shifted half a step back. “She’s been here since last shift,” she said. “They told me to watch her.”
 
