@@ -86,6 +86,12 @@ No one spoke.
 
 The space held its shape like it was waiting to see if anyone would argue.
 
+Somewhere beyond the door, down the corridor where the sound should have been ordinary, something metal shrieked and then stopped too cleanly. A heartbeat later came a wet thud.
+
+Mara went pale.
+
+Rachel didn’t move. She couldn’t tell if that mattered anymore.
+
 Rachel sat very still.
 
 She understood it then—not as a thought, not cleanly.

@@ -30,6 +30,10 @@ Mara stared. “That isn’t—”
 
 “Do not interfere,” the voice said.
 
+Mara’s nose started bleeding.
+
+Not a gush. Just a slow dark line that took a second to register, like her body had lagged too. She wiped it with the back of her hand and stared at the smear like it was someone else’s problem.
+
 The structure pulsed once, and the pressure shifted sideways, not away, not gone, just redirected. Rachel’s hands tightened against her thighs as the air thickened, movement through it taking more effort than it should have, and the chair answered with a faint vibration, not sliding, only responding.
 
 The structure pulsed again.
@@ -44,7 +48,7 @@ A pause.
 
 Long enough to stretch wrong.
 
-“Monitoring will correct,” the voice said.
+“Monitoring will correct,” the voice said. “If correction fails, transfer will proceed.”
 
 The structure brightened by a fraction, the hum sharpening, and the chair creaked—small, soft, insistent. The structure responded immediately, panels tightening, timing clean and exact, while the room lagged behind it, sound slipping first, light following, the pressure arriving late again, heavier, compressed.
 

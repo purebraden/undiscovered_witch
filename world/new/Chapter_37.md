@@ -6,67 +6,43 @@ Mara didn’t leave. She stood near the wall with her back half-turned, attentio
 
 The pressure stayed close to Rachel’s ribs, not pressing, not pulling, just present in the way that made breathing have to negotiate around it.
 
-Time slid without markers. The light didn’t change. The hum didn’t rise or fall. The structure didn’t pulse again, and the lack of response made its presence heavier, more deliberate, as if it had settled into a posture it expected the room to maintain.
+The first time her breath shortened, she thought it was nerves.
 
-Rachel stayed seated, the chair answering with a faint vibration that didn’t move it anywhere, just acknowledged something too low to hear.
-
-Her breath shortened before there was a reason she could point to, not sharp, not panicked, just less room at the end of it, the air pushing back sooner than it should have. The pressure adjusted after, a fraction late, crowding closer as if it were filling the space she hadn’t taken.
-
-The structure answered immediately, panels tightening by a degree almost invisible, the hum sharpening in clean response, timing exact in a way the room never quite managed.
-
-Sound arrived late. Light followed after. The pressure came last, heavier now, compressed into a shape that felt less patient.
+The second time, the structure answered before she could even decide whether to fight it, panels tightening like a jaw.
 
 Rachel’s shoulders lifted without permission.
 
-The chair vibrated again.
+Mara’s head came up. “Rachel—”
 
-Mara’s head came up. “Rachel—” She stopped herself and looked at the structure instead, jaw tightening.
+Rachel didn’t look at her. Looking felt like motion. Motion felt like permission.
 
-The hum steadied.
+The chair vibrated.
 
-Rachel let her shoulders drop.
+The structure tightened.
 
-The pressure eased back into place, not gone, not satisfied, and the structure loosened by the same small degree, panels adjusting with quiet efficiency like it had received confirmation it could trust.
+Sound arrived late. Light followed after. The pressure came last, heavier now, compressed into a shape that didn’t want to fit.
 
-The room caught up.
+Mara took one step toward the wall plate and stopped. Her hand hovered. “It’s learning your rhythm,” she said, and her voice came out too fast, like she was trying to get the words through before the room could rearrange them.
 
-Rachel’s breath reached farther again.
+“Or it’s learning yours,” Rachel said, and hated that the sentence sounded like blame.
 
-Time slid.
+The wall plate stayed dark.
 
-The next breath shortened sooner.
+Mara swore and made a decision.
 
-The pressure crowded in again, closer this time, denser, arriving late and staying too long, and the structure tightened immediately in response, the chair answering with a faint complaint that didn’t count as movement.
+She crossed the room in three careful steps and yanked the door open.
 
-Mara took a step forward and stopped, her foot hovering before she set it back down, the motion abandoned halfway through. Her eyes flicked to Rachel’s chest and then away.
+The corridor outside was lit wrong—bright where it should have been dim, dim where it should have been bright—and the air out there had a bite of colder metal, like the building was bleeding into itself. A figure down the hall turned at the sound and froze.
 
-“Don’t—” she said, and didn’t finish.
+Then the floor under that figure arrived a fraction late.
 
-Rachel stayed seated.
+Their feet shot sideways. Their shoulder hit the wall with a crack loud enough to make Mara flinch. The figure slid down, boneless, like the timing had been cut.
 
-Her breath stayed shallow.
+Mara slammed the door shut hard enough to make the hinges complain.
 
-The pressure settled into the space she hadn’t taken.
+Rachel’s breath came back in shallow pulls.
 
-The structure held.
-
-The room adjusted around it, timing scraping as it tried to line up with something that didn’t wait.
-
-Rachel’s hands pressed flat against her thighs. She tried to draw a deeper breath, the attempt stretching and stalling at the same time.
-
-The structure responded faster this time, panels tightening, hum sharpening, and the pressure surged dense and exact, crowding her ribs until the air stalled halfway in.
-
-Rachel gasped and caught it, breath breaking short, the chair vibrating as the room lurched a fraction out of step and snapped back again, light and sound and pressure misaligned for a beat too long.
-
-Mara swore under her breath and turned toward the wall plate.
-
-It stayed dark.
-
-The structure loosened.
-
-The pressure eased.
-
-Rachel’s breath came back in shallow pulls, each one shorter than the last, the space around her narrowing by increments too small to argue with.
+Mara stood with her back against the door, eyes wide. “Okay,” she said, voice thin. “Okay. That’s not just you.”
 
 The hum held steady.
 
