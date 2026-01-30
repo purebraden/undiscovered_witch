@@ -1,5 +1,7 @@
 # Chapter 40
 
+After “Prepare transfer,” baseline didn’t mean much.
+
 The structure stayed where it was.
 
 Panels held their distance from the chair, neither tightening nor easing, the hum flattened into a narrow band that didn’t scrape anymore, didn’t hunt for correction. It ignored the faint vibration under the chair and the small changes in Rachel’s breath, as if it had already decided what counted.
@@ -109,3 +111,67 @@ Not forward.
 The hum stayed flat.
 
 The sound of Mara’s breath reached the room before her chest finished rising.
+
+Then came the footsteps.
+
+Not the careful ones. Not escort shoes trying not to make a room notice them. These were heavier, confident, synchronized in a way that made Rachel’s stomach clench. A transfer team didn’t sneak.
+
+The wall plate brightened, and the voice returned with that same calm that didn’t belong in a place where time was coming apart.
+
+“Door opening. Maintain position.”
+
+Mara backed away from the seam without meaning to, hand lifting and dropping again like she couldn’t find a safe place to put it. Her knee twinged, and the pain arrived late, like a reminder the room was practicing on her too.
+
+The lock released.
+
+The door slid open.
+
+Corridor light cut across the floor in a hard stripe and stopped short of Rachel’s boots, as if the line itself didn’t want to cross into the room.
+
+Three figures stood outside. Helmets. Face shields. Gloves that looked too thick. The kind of gear you wore when you didn’t trust the air, or the person, or the space between.
+
+One of them carried a frame—light metal, jointed, folded flat like it could become a chair or a cage depending on what the room allowed.
+
+“Subject,” the front one said, voice flattened by the mask. “On count.”
+
+Rachel didn’t look at the person. She looked at the frame, at the hinges, at how it waited to become a shape.
+
+The pressure leaned in, attentive.
+
+“No sudden movement,” the mask said, and it sounded rehearsed. Not for her. For the building.
+
+Mara swallowed. “She’s seated. She stays seated.”
+
+The front figure’s head turned a fraction. A visor caught the light. “We were told ‘manageable.’”
+
+Mara’s mouth tightened. “That word doesn’t mean what you think it means.”
+
+The structure didn’t pulse.
+
+That was the worst part.
+
+It held steady, quiet, like it was listening from somewhere just out of sight.
+
+“Count,” the mask said.
+
+Rachel felt her body brace for the number before it arrived. The room braced with her, a fraction late.
+
+“One.”
+
+The floor beneath the threshold hesitated.
+
+“Two.”
+
+One of the team’s boots slid an inch sideways like the corridor had lost its grip. The figure recovered too fast, stiffness in the movement like they’d trained for it.
+
+“Three.”
+
+Rachel’s breath caught.
+
+The structure tightened.
+
+Not by much. Not dramatic. Just enough that the hum changed pitch, a thin, high note that made Mara flinch and the transfer team freeze.
+
+Rachel stayed seated.
+
+But the pressure shifted, not inward—outward—leaning toward the open door like it recognized an exit and didn’t care who else got crushed in the rush.
