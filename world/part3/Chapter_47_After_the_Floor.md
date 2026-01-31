@@ -9,6 +9,7 @@ Then sound came back wrong.
 A low rushing, like breath dragged through a crack too small for it, followed by a wet thud that knocked the air from her chest when she hit again. This surface didn’t bend. It answered hard and stayed that way, pain blooming across her back and ribs and refusing to break apart into manageable pieces.
 
 She lay still because moving required permission she didn’t have.
+No answering voice followed her down.
 
 The air tasted used. Not old. Handled. Like something had breathed it first and decided not to give it back.
 

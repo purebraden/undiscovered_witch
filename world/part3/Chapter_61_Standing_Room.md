@@ -14,7 +14,7 @@ Not a wall. Not a push. Just the floor failing to finish the job, like it forget
 
 “Okay,” Lena says, then again, quieter. “Okay.”
 
-She’s leaning on you, the voice said.  
+Inside her head, the voice said, She’s leaning on you.  
 You can feel it.
 
 Rachel hadn’t noticed how hard she was gripping Lena’s sleeve until her fingers ache.

@@ -11,6 +11,7 @@ The ground slopes just enough to make it feel like momentum instead of choice, a
 They stop near the edge of the road where the pavement breaks and turns to churned mud. The lights behind them are louder now, closer, but still wrong—voices overlapping without shape, urgency without direction.
 
 Lena looks back once, then forward. “We should get off the road.”
+“Find cover,” Rachel says. “A roof. Anything that isn’t open.”
 
 Rachel follows her gaze.
 

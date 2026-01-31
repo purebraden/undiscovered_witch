@@ -26,7 +26,7 @@ Rachel stops.
 
 Lena stops with her. “Who are you talking to?”
 
-Rachel doesn’t answer yet.
+Rachel doesn’t answer yet. The voice in her head stays quiet.
 
 The figure smiles, not kindly, not cruelly. Just… familiarly. “I wondered when you’d show back up.”
 

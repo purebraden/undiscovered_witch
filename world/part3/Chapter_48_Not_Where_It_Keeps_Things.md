@@ -71,6 +71,7 @@ Behind her, the ground shuddered.
 
 Not collapsing.  
 Sealing.
+Below, whatever had opened sealed. Above, the outer doors must have been thrown wide for evacuation.
 
 A deep, final sound rolled through the earth, like a vault door closing somewhere she couldn’t see. The lights steadied. The shouting changed pitch, urgency reorganizing itself.
 
