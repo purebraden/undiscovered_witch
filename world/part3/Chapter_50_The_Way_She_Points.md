@@ -1,4 +1,4 @@
-# Chapter 50 — The Way She Points
+# Chapter 49 — The Way She Points
 
 Rachel takes a step before she means to.
 

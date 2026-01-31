@@ -1,4 +1,4 @@
-# Chapter 55 — Somewhere That Holds
+# Chapter 54 — Somewhere That Holds
 
 They keep moving without saying why, the kind of motion that doesn’t feel chosen so much as required, like breathing through pain until it dulls into something you can carry. The trees thin and thicken again, ground changing under Rachel’s feet—mud to gravel to something harder she doesn’t want to look at too closely—and the ringing stays tucked behind her eyes, not gone, just quieter, like it’s learned where to sit without being noticed.
 

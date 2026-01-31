@@ -1,4 +1,4 @@
-# Chapter 51 — The Easy Way
+# Chapter 50 — The Easy Way
 
 Rachel’s foot comes down and the ground answers it cleanly, no slip, no hollow delay, and the wrongness of that makes her stumble anyway, breath hitching as her ankle flares hot and bright. She waits for the rest of it—for the lag, the sway, the world deciding whether to keep her upright—but it doesn’t come. The road holds. It keeps holding.
 
