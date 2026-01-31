@@ -1,107 +1,107 @@
 # Chapter 54 — Not Waiting
 
-The ground doesn’t give her anything this time.
+The ground didn't give her anything this time.
 
-It isn’t hostile, exactly, but it stops cooperating, roots catching her bad ankle after she’s already leaned into the step, slopes tilting late so her weight lands wrong and pain snaps sharp enough to make her breath hitch. The ringing tightens with it, not louder so much as closer, threading itself behind her eyes in a way that makes every misstep feel deliberate.
+It wasn't hostile, exactly, but it stopped cooperating, roots catching her bad ankle after she'd already leaned into the step, slopes tilting late so her weight landed wrong and pain snapped sharp enough to make her breath hitch. The ringing tightened with it, not louder so much as closer, threading itself behind her eyes in a way that made every misstep feel deliberate.
 
-Lena slows, glancing back over her shoulder. “Do you want to rest?”
+Lena slowed, glancing back over her shoulder. "Do you want to rest?"
 
-“No,” Rachel says, already moving again, because stopping feels like opening a door she can’t see. The night presses in, wet and close, rain slipping through the leaves in thin, persistent lines. The world holds together just enough to keep her upright, uneven and loud and real in a way she doesn’t trust.
+"No," Rachel said, already moving again, because stopping felt like opening a door she couldn't see. The night pressed in, wet and close, rain slipping through the leaves in thin, persistent lines. The world held together just enough to keep her upright, uneven and loud and real in a way she didn't trust.
 
-She shifts her weight and the ringing flares, a thin white pressure that makes her vision fuzz at the edges.
+She shifted her weight and the ringing flared, a thin white pressure that made her vision fuzz at the edges.
 
-**You’re doing it again**, the voice says, not accusing, just interested.
+**You're doing it again**, the voice said, not accusing, just interested.
 
-Rachel catches herself on a branch, bark scraping skin from her palm. “Doing what,” she mutters, breath coming too fast.
+Rachel caught herself on a branch, bark scraping skin from her palm. "Doing what," she muttered, breath coming too fast.
 
-The answer doesn’t come right away. It slides in with the ringing, timed to the next wrong step.
+The answer didn't come right away. It slid in with the ringing, timed to the next wrong step.
 
 **Stopping before you have to.**
 
-“I’m injured,” she snaps, not looking at Lena, not slowing. “That’s not the same thing.”
+"I'm injured," she snapped, not looking at Lena, not slowing. "That's not the same thing."
 
-The ground dips late and her ankle screams, heat flashing bright enough that she has to grit her teeth to keep moving. The ringing spikes with it, then eases, like it’s learned something useful.
+The ground dipped late and her ankle screamed, heat flashing bright enough that she had to grit her teeth to keep moving. The ringing spiked with it, then eased, like it had learned something useful.
 
-They break out of the trees onto the road without meaning to, the space opening too suddenly, sound stretching farther than it should. Rachel’s chest tightens before she knows why.
+They broke out of the trees onto the road without meaning to, the space opening too suddenly, sound stretching farther than it should. Rachel's chest tightened before she knew why.
 
-Lena slows. “Someone could see us.”
+Lena slowed. "Someone could see us."
 
-“I know.”
+"I know."
 
-Rachel keeps walking.
+Rachel kept walking.
 
-The ringing smooths just a fraction, enough to notice.
+The ringing smoothed just a fraction, enough to notice.
 
 **You know how to keep space now.**
 
-Her stomach drops. “Don’t.”
+Her stomach dropped. "Don't."
 
-**I didn’t say use it.**
+**I didn't say use it.**
 
-“That’s worse,” she says, because it is.
+"That's worse," she said, because it was.
 
-Something shifts at the far end of the road, a shape moving where there shouldn’t be one yet, and the memory of footsteps closes around her ribs. Lena’s hand tightens on her arm, a reflex she doesn’t even seem to notice.
+Something shifted at the far end of the road, a shape moving where there shouldn't have been one yet, and the memory of footsteps closed around her ribs. Lena's hand tightened on her arm, a reflex she didn't even seem to notice.
 
-“I see it,” Rachel says, stopping without meaning to.
+"I see it," Rachel said, stopping without meaning to.
 
-The ringing tightens instantly, bright and alert, threading straight through her skull.
+The ringing tightened instantly, bright and alert, threading straight through her skull.
 
-**That moment**, the voice says, close enough to feel. **Right before.**
+**That moment**, the voice said, close enough to feel. **Right before.**
 
-The figure takes a step closer. Still wrong. Still distant.
+The figure took a step closer. Still wrong. Still distant.
 
-“I don’t want to hurt anyone,” Rachel says, and the words feel thin even to her.
+"I don't want to hurt anyone," Rachel said, and the words felt thin even to her.
 
-The voice hums, indulgent.
+The voice hummed, indulgent.
 
-**You didn’t.  
+**You didn't.  
 You made space.**
 
-“That doesn’t mean—” She swallows. “You don’t know that.”
+"That doesn't mean—" She swallowed. "You don't know that."
 
 **They stayed behind.**
 
-The figure moves again and Lena shifts beside her, ready to do something human and useless, to step in front, to slow this down, to negotiate.
+The figure moved again and Lena shifted beside her, ready to do something human and useless, to step in front, to slow this down, to negotiate.
 
-The choice opens sharp and immediate in Rachel’s chest, not framed, not explained.
+The choice opened sharp and immediate in Rachel's chest, not framed, not explained.
 
 Wait.  
 Or decide.
 
-The ringing warms, insistent, almost encouraging.
+The ringing warmed, insistent, almost encouraging.
 
-**You don’t have to wait for them to be closer.**
+**You don't have to wait for them to be closer.**
 
-Rachel jerks sideways instead, pulling Lena with her off the road and back into the trees. The ground fights it, slick and uneven, catching her foot hard enough that pain snaps bright up her leg and she hisses through her teeth.
+Rachel jerked sideways instead, pulling Lena with her off the road and back into the trees. The ground fought it, slick and uneven, catching her foot hard enough that pain snapped bright up her leg and she hissed through her teeth.
 
-The ringing spikes, sharp and irritated.
+The ringing spiked, sharp and irritated.
 
-**That’s slower.**
+**That's slower.**
 
-“I don’t care,” Rachel says, breath tearing out of her.
+"I don't care," Rachel said, breath tearing out of her.
 
-Branches claw at them as they push into the dark, sound folding back in on itself, the road disappearing behind leaves and rain. She doesn’t look back, but she feels the hesitation behind them, the wrong pause where pursuit should be.
+Branches clawed at them as they pushed into the dark, sound folding back in on itself, the road disappearing behind leaves and rain. She didn't look back, but she felt the hesitation behind them, the wrong pause where pursuit should have been.
 
-She keeps moving until her lungs burn and her vision swims, leaning into a tree when her legs finally refuse to cooperate.
+She kept moving until her lungs burned and her vision swam, leaning into a tree when her legs finally refused to cooperate.
 
-The ringing settles into a tight, dissatisfied whine.
+The ringing settled into a tight, dissatisfied whine.
 
 **You could have ended that already.**
 
-Rachel presses her forehead to wet bark, chest heaving. “I’m not doing this for you.”
+Rachel pressed her forehead to wet bark, chest heaving. "I'm not doing this for you."
 
-The pause is longer this time. Closer.
+The pause was longer this time. Closer.
 
 **Of course not.  
-You’re doing it because it works.**
+You're doing it because it works.**
 
-The words lodge somewhere she doesn’t touch.
+The words lodged somewhere she didn't touch.
 
-Lena’s hand finds her shoulder, solid and warm. “We need to keep going,” she says quietly. “Next time—just tell me what you need.”
+Lena's hand found her shoulder, solid and warm. "We need to keep going," she said quietly. "Next time—just tell me what you need."
 
-Rachel nods without opening her eyes.
+Rachel nodded without opening her eyes.
 
-The ringing stays.
+The ringing stayed.
 
 Not loud.  
 Not fading.
