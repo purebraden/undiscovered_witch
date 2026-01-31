@@ -1,83 +1,83 @@
 # Chapter 58 — The Short Way
 
-They walk long enough that the rain changes character, thinning and then thickening again as the trees shift around them, branches catching it in uneven patches that leave Rachel soaked one minute and barely damp the next. Her ankle burns steadily now, not sharp enough to stop her, not dull enough to forget, every step a small negotiation she keeps having to win.
+They walked long enough that the rain changed character, thinning and then thickening again as the trees shifted around them, branches catching it in uneven patches that left Rachel soaked one minute and barely damp the next. Her ankle burned steadily now, not sharp enough to stop her, not dull enough to forget, every step a small negotiation she kept having to win.
 
-Lena keeps pace a half step behind her, quiet, listening. The silence stretches, not empty, just full of things neither of them wants to name yet.
+Lena kept pace a half step behind her, quiet, listening. The silence stretched, not empty, just full of things neither of them wanted to name yet.
 
-The voice stays with Rachel.
+The voice stayed with Rachel.
 
 Not speaking.  
 Just present.
 
-Lena lifts a hand without turning. “Stop.”
+Lena lifted a hand without turning. "Stop."
 
-Rachel does, a beat late. Her boot slides before she catches herself. The sound behind them lands again, heavier now, too measured to be rain.
+Rachel did, a beat late. Her boot slid before she caught herself. The sound behind them landed again, heavier now, too measured to be rain.
 
-Lena lowers her voice. “That’s footsteps.”
+Lena lowered her voice. "That's footsteps."
 
-Rachel waits for the ringing.
+Rachel waited for the pressure.
 
-Nothing comes.
+Nothing came.
 
-Her throat tightens.
+Her throat tightened.
 
-**Left**, the voice says.
+**Left**, the voice said.
 
-Lena whispers, “Uphill. Trees are thicker.”
+Lena whispered, "Uphill. Trees are thicker."
 
-**Longer**, the voice replies, already dismissing it.
+**Longer**, the voice replied, already dismissing it.
 
-Rachel stares into the dark to the left. The ground drops away sharply there, uneven and slick, the kind of descent that hurts if you misjudge it.
+Rachel stared into the dark to the left. The ground dropped away sharply there, uneven and slick, the kind of descent that hurt if you misjudged it.
 
-“There’s a break,” she says quietly. “We can cut down.”
+"There's a break," she said quietly. "We can cut down."
 
-Lena hesitates. “That’s not safer.”
+Lena hesitated. "That's not safer."
 
-Rachel turns anyway.
+Rachel turned anyway.
 
-Mud gives under her boots immediately, ankle flaring hot enough to make her gasp. She catches herself on a low branch and keeps moving, heart hammering, breath ragged. Behind her Lena swears and slides, grabbing Rachel’s jacket for a second before letting go and finding her own balance.
+Mud gave under her boots immediately, ankle flaring hot enough to make her gasp. She caught herself on a low branch and kept moving, heart hammering, breath ragged. Behind her Lena swore and slid, grabbing Rachel's jacket for a second before letting go and finding her own balance.
 
-They don’t stop until they reach the bottom, crouching behind a tangle of fallen trees and wet brush. Rachel presses her palm into the mud, grounding herself, rain ticking softly against bark overhead.
+They didn't stop until they reached the bottom, crouching behind a tangle of fallen trees and wet brush. Rachel pressed her palm into the mud, grounding herself, rain ticking softly against bark overhead.
 
-The footsteps don’t follow.
+The footsteps didn't follow.
 
-Lena stays crouched, breathing hard. “You could’ve warned me.”
+Lena stayed crouched, breathing hard. "You could've warned me."
 
-Rachel nods. “I’m sorry.”
+Rachel nodded. "I'm sorry."
 
-**You didn’t stop**, the voice says.
+**You didn't stop**, the voice said.
 
-Lena looks up at her. “How did you know that was there?”
+Lena looked up at her. "How did you know that was there?"
 
-Rachel opens her mouth. Closes it. Her jaw tightens. “I didn’t. I just… went.”
+Rachel opened her mouth. Closed it. Her jaw tightened. "I didn't. I just… went."
 
-Lena studies her face longer than she needs to, then looks away. “Next time, say something.”
+Lena studied her face longer than she needed to, then looked away. "Next time, say something."
 
-They move again, slower now, ground flattening into something almost walkable. The rain thins under thicker cover, sound changing shape again. Rachel counts steps, keeps her weight light, lets the ache in her ankle pull her attention outward instead of in.
+They moved again, slower now, ground flattening into something almost walkable. The rain thinned under thicker cover, sound changing shape again. Rachel counted steps, kept her weight light, let the ache in her ankle pull her attention outward instead of in.
 
-The voice breaks the quiet.
+The voice broke the quiet.
 
 **Not the path.**
 
-Ahead, a narrow trail cuts through the trees, worn enough to be visible even in the dark.
+Ahead, a narrow trail cut through the trees, worn enough to be visible even in the dark.
 
-“That’s the first clear thing we’ve seen,” Lena says. “That’s actual ground.”
+"That's the first clear thing we've seen," Lena said. "That's actual ground."
 
-Rachel hesitates.
+Rachel hesitated.
 
-**They’ll expect it**, the voice says, calm.
+**They'll expect it**, the voice said, calm.
 
-She angles left.
+She angled left.
 
-Lena stops short. “Rachel.”
+Lena stopped short. "Rachel."
 
-Rachel keeps going, brushing past low branches, ground narrowing fast enough that Lena has to follow single-file.
+Rachel kept going, brushing past low branches, ground narrowing fast enough that Lena had to follow single-file.
 
-“Hey.” Lena catches her arm. “Stop. You’re limping worse. You’re not thinking straight.”
+"Hey." Lena caught her arm. "Stop. You're limping worse. You're not thinking straight."
 
-The contact is warm, real. For a second the voice goes quiet.
+The contact was warm, real. For a second the voice went quiet.
 
-Rachel breathes.
+Rachel breathed.
 
 Rain.  
 Mud.  
@@ -85,34 +85,34 @@ The weight of her body.
 
 Then—
 
-**She’s slowing you down.**
+**She's slowing you down.**
 
-Rachel pulls her arm free. Not hard. Just enough. “Trust me.”
+Rachel pulled her arm free. Not hard. Just enough. "Trust me."
 
-Lena stares at her. “I am trusting you. I just need to know why you’re so sure.”
+Lena stared at her. "I am trusting you. I just need to know why you're so sure."
 
-Rachel doesn’t answer. She turns back into the trees.
+Rachel didn't answer. She turned back into the trees.
 
-The ground narrows again, roots thick and close, branches catching at their clothes. Rachel moves faster than she should, guided by something that isn’t sight, not exactly, just a sense of where the ground will hold and where it won’t.
+The ground narrowed again, roots thick and close, branches catching at their clothes. Rachel moved faster than she should, guided by something that wasn't sight, not exactly, just a sense of where the ground would hold and where it wouldn't.
 
-“Rachel,” Lena says behind her. “Slow down. I can’t see.”
+"Rachel," Lena said behind her. "Slow down. I can't see."
 
-Rachel stops and turns. The distance between them feels larger than it should.
+Rachel stopped and turned. The distance between them felt larger than it should.
 
-Lena steps closer, rain dripping from her hair. “Don’t do that,” she says quietly. “Don’t disappear on me.”
+Lena stepped closer, rain dripping from her hair. "Don't do that," she said quietly. "Don't disappear on me."
 
-Rachel nods. “I won’t.”
+Rachel nodded. "I won't."
 
-They stand there longer than necessary, rain ticking overhead, the trail lost behind them, the trees pressed close enough to feel like they’re listening.
+They stood there longer than necessary, rain ticking overhead, the trail lost behind them, the trees pressed close enough to feel like they were listening.
 
-The voice doesn’t comment.
+The voice didn't comment.
 
-They start moving again, slower, closer together this time, but the direction doesn’t change.
+They started moving again, slower, closer together this time, but the direction didn't change.
 
-Rachel keeps choosing turns she can’t explain.
+Rachel kept choosing turns she couldn't explain.
 
-Lena keeps following.
+Lena kept following.
 
-The night keeps folding inward around them.
+The night kept folding inward around them.
 
-And every step after that feels shorter than it should have been.
+And every step after that felt shorter than it should have been.

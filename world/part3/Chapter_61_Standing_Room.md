@@ -1,185 +1,185 @@
 # Chapter 61 — Standing Room
 
-The room doesn’t open so much as *already be there*.
+The room didn't open so much as *already be there*.
 
-Concrete underfoot, too smooth, walls curving wrong, ceiling low enough that Rachel feels it in her shoulders even before she notices the unlit fluorescent housings hanging there like dead things. Light leaks from seams that don’t cast shadows properly. It makes her eyes ache if she stares.
+Concrete underfoot, too smooth, walls curving wrong, ceiling low enough that Rachel felt it in her shoulders even before she noticed the unlit fluorescent housings hanging there like dead things. Light leaked from seams that didn't cast shadows properly. It made her eyes ache if she stared.
 
-She steps in.
+She stepped in.
 
-The floor takes her weight like it remembers her.
+The floor took her weight like it remembered her.
 
-Lena steps in after and stops short.
+Lena stepped in after and stopped short.
 
-Not a wall. Not a push. Just the floor failing to finish the job, like it forgets the last step of being solid.
+Not a wall. Not a push. Just the floor failing to finish the job, like it forgot the last step of being solid.
 
-“Okay,” Lena says, then again, quieter. “Okay.”
+"Okay," Lena said, then again, quieter. "Okay."
 
-**She’s leaning on you.  
+**She's leaning on you.  
 You can feel it.**
 
-Rachel hadn’t noticed how hard she was gripping Lena’s sleeve until her fingers ache.
+Rachel hadn't noticed how hard she'd been gripping Lena's sleeve until her fingers ached.
 
-They aren’t alone. That’s obvious immediately, not because anyone moves toward them but because the room already feels occupied.
+They weren't alone. That was obvious immediately, not because anyone moved toward them but because the room already felt occupied.
 
-Figures scattered like people killing time. One against the wall, arms crossed, posture casual until it shifts and the elbows bend wrong. Another on a crate, knees too wide, legs too long, boots flat despite joints that shouldn’t allow it. Someone near the light seams whose face won’t stay finished, eyes catching brightness and throwing it back too sharp.
+Figures scattered like people killing time. One against the wall, arms crossed, posture casual until it shifted and the elbows bent wrong. Another on a crate, knees too wide, legs too long, boots flat despite joints that shouldn't allow it. Someone near the light seams whose face wouldn't stay finished, eyes catching brightness and throwing it back too sharp.
 
 Human.  
 Almost.
 
-“Hey,” Lena whispers. “Rachel.”
+"Hey," Lena whispered. "Rachel."
 
-One of them looks up.
+One of them looked up.
 
-“There you are.”
+"There you are."
 
-Lena flinches hard enough that Rachel feels it through the grip.
+Lena flinched hard enough that Rachel felt it through the grip.
 
-“Oh my god,” Lena breathes.
+"Oh my god," Lena breathed.
 
-“You’re late,” the demon says, like it’s commenting on weather.
+"You're late," the demon said, like it was commenting on weather.
 
-“I didn’t mean to come here,” Rachel says, because it feels like the right thing to say.
+"I didn't mean to come here," Rachel said, because it felt like the right thing to say.
 
-A couple of them smile. Not cruel. Not kind. Familiar.
+A couple of them smiled. Not cruel. Not kind. Familiar.
 
-“You never do,” says the one on the crate, voice warm in a way its face isn’t. When it shifts, the skin at its neck stretches instead of wrinkling. “But you always find us.”
+"You never do," said the one on the crate, voice warm in a way its face wasn't. When it shifted, the skin at its neck stretched instead of wrinkling. "But you always find us."
 
-Lena’s fingers twist in Rachel’s sleeve. “They’re— they’re talking.”
+Lena's fingers twisted in Rachel's sleeve. "They're— they're talking."
 
-“I know,” Rachel says.
+"I know," Rachel said.
 
-Another demon tilts its head, studying Rachel openly. Its ears sit a little too high, subtle enough that Rachel only sees it because she’s not moving.
+Another demon tilted its head, studying Rachel openly. Its ears sat a little too high, subtle enough that Rachel only saw it because she wasn't moving.
 
-“You look steadier,” it says. “Less static.”
+"You look steadier," it said. "Less static."
 
-“What does that mean,” Lena snaps. “Stop saying things like that.”
+"What does that mean," Lena snapped. "Stop saying things like that."
 
-No one looks at her.
+No one looked at her.
 
-“She brought company,” the demon on the crate says, eyes never leaving Rachel.
+"She brought company," the demon on the crate said, eyes never leaving Rachel.
 
-“She’s with me.”
+"She's with me."
 
-“Yes,” it hums. “We can see that.”
+"Yes," it hummed. "We can see that."
 
-Lena shifts her weight and the floor answers badly, pressure blooming behind her eyes. She sucks in a breath through her teeth.
+Lena shifted her weight and the floor answered badly, pressure blooming behind her eyes. She sucked in a breath through her teeth.
 
-**She can’t stand on her own here.  
+**She can't stand on her own here.  
 Not without you.**
 
-Rachel tightens her grip. “She’s not okay.”
+Rachel tightened her grip. "She's not okay."
 
-“That’s not surprising,” someone says. “This isn’t her layer.”
+"That's not surprising," someone said. "This isn't her layer."
 
-“Then why can I see you,” Lena says, sharp, angry, scared.
+"Then why can I see you," Lena said, sharp, angry, scared.
 
-A laugh from near the light seams. Teeth too even. “Because you’re close enough to matter.”
+A laugh from near the light seams. Teeth too even. "Because you're close enough to matter."
 
-**She only hears them because she’s close to you.  
-That won’t last.**
+**She only hears them because she's close to you.  
+That won't last.**
 
-“What do you want,” Rachel asks, too fast.
+"What do you want," Rachel asked, too fast.
 
-“We’re not asking,” the one on the crate says, leaning forward. Its jacket falls open and for a second there’s something dark and glossy where skin should be. “We’re noticing.”
+"We're not asking," the one on the crate said, leaning forward. Its jacket fell open and for a second there was something dark and glossy where skin should be. "We're noticing."
 
-Another steps closer. Not to Lena. To Rachel.
+Another stepped closer. Not to Lena. To Rachel.
 
-“You always bring someone,” it says mildly. “You don’t like being alone.”
+"You always bring someone," it said mildly. "You don't like being alone."
 
-Lena goes still.
+Lena went still.
 
-“That’s not true,” Rachel says, immediately.
+"That's not true," Rachel said, immediately.
 
-The demon smiles. “You say that every time.”
+The demon smiled. "You say that every time."
 
-Lena makes a sound she doesn’t finish and bends slightly, hand braced on her thigh.
+Lena made a sound she didn't finish and bent slightly, hand braced on her thigh.
 
-**She’s getting worse.  
+**She's getting worse.  
 You waited too long.**
 
-“Look at me,” Rachel says, turning fully toward her. “Hey.”
+"Look at me," Rachel said, turning fully toward her. "Hey."
 
-“I’m fine,” Lena says, breath shallow. “I just—”
+"I'm fine," Lena said, breath shallow. "I just—"
 
-“Don’t let go yet,” someone says conversationally. “She’s borrowing your balance.”
+"Don't let go yet," someone said conversationally. "She's borrowing your balance."
 
-“Borrowing?” Lena snaps.
+"Borrowing?" Lena snapped.
 
-Rachel’s grip tightens until the fabric twists.
+Rachel's grip tightened until the fabric twisted.
 
-“If you move,” the narrow-shouldered one says, gesturing lazily, “she’ll get worse. If you stay right there, she’ll plateau.”
+"If you move," the narrow-shouldered one said, gesturing lazily, "she'll get worse. If you stay right there, she'll plateau."
 
-“Plateau,” Lena repeats, almost laughing. “Great.”
+"Plateau," Lena repeated, almost laughing. "Great."
 
-“You could make this easier,” another says.
+"You could make this easier," another said.
 
-“How,” Rachel asks.
+"How," Rachel asked.
 
-“Stand there.” A nod, a few steps away. “The room likes you better there.”
+"Stand there." A nod, a few steps away. "The room likes you better there."
 
-**You’re standing in the wrong place.  
+**You're standing in the wrong place.  
 It hurts her when you do.**
 
-“No,” Lena says immediately. “Rachel, don’t.”
+"No," Lena said immediately. "Rachel, don't."
 
-Rachel doesn’t move.
+Rachel didn't move.
 
-“If you step over,” the demon continues, patient, “the pressure will ease. For you.”
+"If you step over," the demon continued, patient, "the pressure will ease. For you."
 
-“And for her,” Rachel says.
+"And for her," Rachel said.
 
-“No.”
+"No."
 
-Silence stretches. Not empty. Expectant.
+Silence stretched. Not empty. Expectant.
 
-Rachel looks at Lena. Sweat at her hairline. Teeth clenched. Still trusting her.
+Rachel looked at Lena. Sweat at her hairline. Teeth clenched. Still trusting her.
 
-**If you don’t move now, she’s going to fall.**
+**If you don't move now, she's going to fall.**
 
-Rachel loosens her grip.
+Rachel loosened her grip.
 
 Barely.
 
 **There.  
 See?**
 
-The room answers immediately.
+The room answered immediately.
 
-Pressure slams into Lena like a wave. She gasps, knees buckling.
+Pressure slammed into Lena like a wave. She gasped, knees buckling.
 
-“Rachel—!”
+"Rachel—!"
 
-Rachel steps forward on instinct and the space opens for her like it’s been waiting, smooth and easy and wrong.
+Rachel stepped forward on instinct and the space opened for her like it had been waiting, smooth and easy and wrong.
 
-Behind her Lena chokes on a sound and the pressure spikes again, sharper now, punishing.
+Behind her Lena choked on a sound and the pressure spiked again, sharper now, punishing.
 
-Rachel freezes.
+Rachel froze.
 
 **That was easier.  
 Not for her.**
 
-She turns back, heart stuttering as she realizes the distance is already doing the work.
+She turned back, heart stuttering as she realized the distance was already doing the work.
 
-She steps back.
+She stepped back.
 
-The pressure eases. Lena collapses into her, shaking.
+The pressure eased. Lena collapsed into her, shaking.
 
-Rachel wraps both arms around her and holds on like if she lets go the room will take something it’s already measuring.
+Rachel wrapped both arms around her and held on like if she let go the room would take something it was already measuring.
 
-The demons watch.
+The demons watched.
 
-“You always test it first,” one of them says, almost fond.
+"You always test it first," one of them said, almost fond.
 
-“I didn’t mean to,” Rachel says, tears hot and angry.
+"I didn't mean to," Rachel said, tears hot and angry.
 
-“I know,” it replies. “You never do.”
+"I know," it replied. "You never do."
 
-Lena stays pressed against her, breathing shallow, eyes closed.
+Lena stayed pressed against her, breathing shallow, eyes closed.
 
-Rachel stands exactly where the room allows her to stand, holding exactly what it will tolerate her holding.
+Rachel stood exactly where the room allowed her to stand, holding exactly what it would tolerate her holding.
 
 **You can hold her again.  
 Just not the same way.**
 
-The light hums.  
-The room waits.
+The light hummed.  
+The room waited.

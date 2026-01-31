@@ -1,168 +1,168 @@
 # Chapter 59 — Still Active
 
-The voice doesn’t wait for the ground to decide.
+The voice didn't wait for the ground to decide.
 
-**Here**, it says, and this time it isn’t directional in the way it’s been before. Not left or down or faster. Just a point in space that suddenly feels finished, like the end of a sentence Rachel didn’t realize she was in the middle of.
+**Here**, it said, and this time it wasn't directional in the way it had been before. Not left or down or faster. Just a point in space that suddenly felt finished, like the end of a sentence Rachel didn't realize she'd been in the middle of.
 
-She slows without stopping, eyes lifting to what looks like nothing at first. A low concrete structure half-swallowed by brush, rain-darkened and unlit, the kind of place you pass without noticing because it doesn’t advertise itself as anything worth entering. A service access, maybe. A maintenance building. The sort of thing that used to matter and doesn’t anymore.
+She slowed without stopping, eyes lifting to what looked like nothing at first. A low concrete structure half-swallowed by brush, rain-darkened and unlit, the kind of place you passed without noticing because it didn't advertise itself as anything worth entering. A service access, maybe. A maintenance building. The sort of thing that used to matter and didn't anymore.
 
-Lena squints at it. “What is that.”
+Lena squinted at it. "What is that."
 
-Rachel doesn’t answer right away. The pressure in her chest eases as she steps closer, not relief exactly, more like alignment, the feeling of a joint sliding back into place without pain.
+Rachel didn't answer right away. The pressure in her chest eased as she stepped closer, not relief exactly, more like alignment, the feeling of a joint sliding back into place without pain.
 
-**Cross**, the voice says.
+**Cross**, the voice said.
 
-“There’s no door,” Lena says. “And if there was, it’d be locked.”
+"There's no door," Lena said. "And if there was, it'd be locked."
 
-Rachel steps forward anyway.
+Rachel stepped forward anyway.
 
-Nothing stops her.
+Nothing stopped her.
 
-No resistance, no catch, no hesitation in the space itself. The air shifts slightly as she passes the threshold she hadn’t seen, rain dulling behind her, sound flattening out like someone turned a dial down a fraction too far.
+No resistance, no catch, no hesitation in the space itself. The air shifted slightly as she passed the threshold she hadn't seen, rain dulling behind her, sound flattening out like someone had turned a dial down a fraction too far.
 
-Behind her, Lena swears softly.
+Behind her, Lena swore softly.
 
-“Rachel— wait.”
+"Rachel— wait."
 
-Rachel turns. Lena is still outside, one hand braced against the concrete, brow furrowed. She takes a step forward and stops short, like she’s walked into something invisible and elastic.
+Rachel turned. Lena was still outside, one hand braced against the concrete, brow furrowed. She took a step forward and stopped short, like she'd walked into something invisible and elastic.
 
-“What the hell,” Lena mutters, pushing gently. Then harder. The space doesn’t give.
+"What the hell," Lena muttered, pushing gently. Then harder. The space didn't give.
 
-Rachel feels it then — not the barrier, but the difference. Where Lena meets resistance, Rachel feels none. Standing where she is feels effortless, like the place already knows how to hold her weight.
+Rachel felt it then — not the barrier, but the difference. Where Lena met resistance, Rachel felt none. Standing where she was felt effortless, like the place already knew how to hold her weight.
 
-The voice doesn’t comment.
+The voice didn't comment.
 
-“Try again,” Rachel says, and hears the wrongness in it immediately.
+"Try again," Rachel said, and heard the wrongness in it immediately.
 
-Lena looks at her. “I am trying.”
+Lena looked at her. "I am trying."
 
-She shifts sideways instead, searching for an edge that isn’t there. The air presses back at her shoulders, her arms, her chest, not painful, just insistent. Like a hand on the sternum that says no further without raising its voice.
+She shifted sideways instead, searching for an edge that wasn't there. The air pressed back at her shoulders, her arms, her chest, not painful, just insistent. Like a hand on the sternum that said no further without raising its voice.
 
-Rachel steps back toward her and the pressure vanishes instantly, the boundary dissolving like it was never there.
+Rachel stepped back toward her and the pressure vanished instantly, the boundary dissolving like it had never been there.
 
-Lena exhales sharply. “Okay.”
+Lena exhaled sharply. "Okay."
 
-Rachel swallows. “I think… I think I’m supposed to go first.”
+Rachel swallowed. "I think… I think I'm supposed to go first."
 
-“That’s not how doors work.”
+"That's not how doors work."
 
-Rachel looks past her then, really looks, and realizes the space beyond the concrete is deeper than it should be. Corridors intersecting at odd angles, light sources she can’t quite locate, a low hum that feels infrastructural rather than mechanical. The place isn’t empty.
+Rachel looked past her then, really looked, and realized the space beyond the concrete was deeper than it should have been. Corridors intersecting at odd angles, light sources she couldn't quite locate, a low hum that felt infrastructural rather than mechanical. The place wasn't empty.
 
-It’s active.
+It was active.
 
-They’re already there.
+They were already there.
 
-Figures move through the space with purpose, shapes that register as wrong only if she stares too hard. No one looks at her twice. No one stops.
+Figures moved through the space with purpose, shapes that registered as wrong only if she stared too hard. No one looked at her twice. No one stopped.
 
-A presence passes close enough that she smells iron and ozone and something old underneath. It doesn’t acknowledge her. It does adjust its path around her without breaking stride.
+A presence passed close enough that she smelled iron and ozone and something old underneath. It didn't acknowledge her. It did adjust its path around her without breaking stride.
 
-Lena sees something too — enough to stiffen. “Rachel.”
+Lena saw something too — enough to stiffen. "Rachel."
 
-Lena steps forward again.
+Lena stepped forward again.
 
-The space reacts this time.
+The space reacted this time.
 
 Not violently. Not dramatically.
 
-A tightening. A firm pressure at Lena’s chest.
+A tightening. A firm pressure at Lena's chest.
 
-A figure turns its head.
+A figure turned its head.
 
 Not toward Rachel.
 
 Toward Lena.
 
-It doesn’t speak. It lifts one long, precise hand and makes a small, contained gesture Rachel understands as pause.
+It didn't speak. It lifted one long, precise hand and made a small, contained gesture Rachel understood as pause.
 
-Lena freezes.
+Lena froze.
 
-Rachel doesn’t.
+Rachel didn't.
 
-The figure looks at Rachel then, eyes dark and reflective, expression unreadable because it isn’t interested. It shifts aside, opening a clearer line through the corridor.
+The figure looked at Rachel then, eyes dark and reflective, expression unreadable because it wasn't interested. It shifted aside, opening a clearer line through the corridor.
 
-Rachel moves.
+Rachel moved.
 
-“Rachel,” Lena says sharply. “Don’t—”
+"Rachel," Lena said sharply. "Don't—"
 
-Rachel stops and turns back.
+Rachel stopped and turned back.
 
-The figure has adjusted its stance, body angled just enough to block Lena without touching her. Not aggressive. Just occupying the correct amount of space.
+The figure had adjusted its stance, body angled just enough to block Lena without touching her. Not aggressive. Just occupying the correct amount of space.
 
-Lena looks between them. “What is this place.”
+Lena looked between them. "What is this place."
 
-Rachel opens her mouth.
+Rachel opened her mouth.
 
-Nothing comes.
+Nothing came.
 
-“I don’t know,” she says. “But they’re not stopping me.”
+"I don't know," she said. "But they're not stopping me."
 
-“That’s not reassuring.”
+"That's not reassuring."
 
-Another presence passes close enough that the air ripples. Rachel feels the space adjust around her, lanes shifting with practiced ease. No friction. No scrutiny.
+Another presence passed close enough that the air rippled. Rachel felt the space adjust around her, lanes shifting with practiced ease. No friction. No scrutiny.
 
-Lena takes a careful step forward.
+Lena took a careful step forward.
 
-The pressure returns immediately.
+The pressure returned immediately.
 
-The figure makes the same small gesture again.
+The figure made the same small gesture again.
 
 Wait.
 
-Lena’s jaw tightens. “You’re just… allowed.”
+Lena's jaw tightened. "You're just… allowed."
 
-Rachel’s throat tightens. “I didn’t ask.”
+Rachel's throat tightened. "I didn't ask."
 
-“I didn’t say you did.”
+"I didn't say you did."
 
-The figure shifts its weight.
+The figure shifted its weight.
 
 Not away. Not forward.
 
-It makes room.
+It made room.
 
-The pressure on Lena eases by a fraction.
+The pressure on Lena eased by a fraction.
 
-Rachel steps closer to Lena without thinking. The space loosens further as she does, corridor widening just enough.
+Rachel stepped closer to Lena without thinking. The space loosened further as she did, corridor widening just enough.
 
-Lena tests it with a careful step.
+Lena tested it with a careful step.
 
-The resistance is still there — lighter now, uneven, like walking against a current instead of a wall. She pushes through, jaw set.
+The resistance was still there — lighter now, uneven, like walking against a current instead of a wall. She pushed through, jaw set.
 
-Rachel reaches for her.
+Rachel reached for her.
 
-The moment their hands touch, the pressure redirects.
+The moment their hands touched, the pressure redirected.
 
-Lena stumbles forward and catches herself.
+Lena stumbled forward and caught herself.
 
-The figure steps aside.
+The figure stepped aside.
 
-They’re inside.
+They were inside.
 
-The space settles again. Corridors resume their quiet flow. Figures move past with the same disinterest as before. No one looks at Lena twice, but the air around her doesn’t relax the way it does around Rachel.
+The space settled again. Corridors resumed their quiet flow. Figures moved past with the same disinterest as before. No one looked at Lena twice, but the air around her didn't relax the way it did around Rachel.
 
-Lena shakes out her shoulders. “I don’t like this.”
+Lena shook out her shoulders. "I don't like this."
 
-Rachel nods. “Me neither.”
+Rachel nodded. "Me neither."
 
-Another presence passes, close enough that Lena flinches. It doesn’t touch her, but the air tightens briefly as it goes by.
+Another presence passed, close enough that Lena flinched. It didn't touch her, but the air tightened briefly as it went by.
 
-Rachel feels nothing.
+Rachel felt nothing.
 
-The voice speaks, precise.
+The voice spoke, precise.
 
 **You can bring her through.  
-It just won’t adjust for her.**
+It just won't adjust for her.**
 
-Lena looks at Rachel. “What.”
+Lena looked at Rachel. "What."
 
-Rachel doesn’t answer. She tightens her grip instead and starts deeper into the corridor, the hum steady and unconcerned.
+Rachel didn't answer. She tightened her grip instead and started deeper into the corridor, the hum steady and unconcerned.
 
-Behind them, the boundary fades back into nothing.
+Behind them, the boundary faded back into nothing.
 
-Ahead, the space opens wider, already routing around Rachel as if she belongs.
+Ahead, the space opened wider, already routing around Rachel as if she belonged.
 
-Lena stays close, every step resisted.
+Lena stayed close, every step resisted.
 
-Rachel walks easily.
+Rachel walked easily.
 
-And there’s no clean way back out without making a choice she isn’t ready to name.
+And there was no clean way back out without making a choice she wasn't ready to name.

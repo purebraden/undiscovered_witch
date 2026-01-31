@@ -1,70 +1,70 @@
 # Chapter 56 — Noticing
 
-Rachel stays standing.
+Rachel stayed standing.
 
-Lena sinks to the floor with a tired sound, back against the wall, head dropping forward like gravity finally remembered her. The building doesn’t answer that. Air presses in, damp and stale, holding its shape without reacting.
+Lena sank to the floor with a tired sound, back against the wall, head dropping forward like gravity finally remembered her. The building didn't answer that. Air pressed in, damp and stale, holding its shape without reacting.
 
-“Just a minute,” Lena says, eyes closed.
+"Just a minute," Lena said, eyes closed.
 
-Rachel nods because it’s easier than speaking. She keeps her weight angled off her ankle, one foot braced, hands loose at her sides. The ringing sits behind her eyes, thinner than before, stretched tight like it’s being pulled somewhere else.
+Rachel nodded because it was easier than speaking. She kept her weight angled off her ankle, one foot braced, hands loose at her sides. The pressure sat behind her eyes, thinner than before, stretched tight like it was being pulled somewhere else.
 
-The room smells layered—wet wood, metal, dust that’s been damp long enough to lose its edges. The walls are close enough to touch without reaching, corners softened where they should meet cleanly.
+The room smelled layered—wet wood, metal, dust that had been damp long enough to lose its edges. The walls were close enough to touch without reaching, corners softened where they should have met cleanly.
 
-Rachel shifts her weight.
+Rachel shifted her weight.
 
-The floor gives.
+The floor gave.
 
-Not with sound. Just a brief, unmistakable softness under her foot, like pressure meeting pressure. She freezes, breath catching mid-draw.
+Not with sound. Just a brief, unmistakable softness under her foot, like pressure meeting pressure. She froze, breath catching mid-draw.
 
-The ringing tightens—
+The pressure tightened—
 
-—and then slides away.
+—and then slid away.
 
 Not gone. Displaced.
 
 **There.**
 
-The word lands cleanly.
+The word landed cleanly.
 
 No spike.  
 No pain.  
 No distortion.
 
-Rachel’s stomach drops.
+Rachel's stomach dropped.
 
-She doesn’t move. After a moment the floor firms again, ordinary, pretending nothing happened. She keeps her eyes fixed on the far wall, pulse loud enough to hear.
+She didn't move. After a moment the floor firmed again, ordinary, pretending nothing had happened. She kept her eyes fixed on the far wall, pulse loud enough to hear.
 
-Lena rubs at her face, still not looking up. “You okay?”
+Lena rubbed at her face, still not looking up. "You okay?"
 
-“Yeah,” Rachel says. The word comes out steady, and that scares her more than if it hadn’t. “Just tired.”
+"Yeah," Rachel said. The word came out steady, and that scared her more than if it hadn't. "Just tired."
 
-She takes a careful step away from the wall.
+She took a careful step away from the wall.
 
-The space answers faster this time. Air presses faintly around her shoulders, close enough to notice, and she stops instinctively.
+The space answered faster this time. Air pressed faintly around her shoulders, close enough to notice, and she stopped instinctively.
 
-The pressure eases.
+The pressure eased.
 
-**You don’t need the noise anymore**, the voice says, almost conversational.
+**You don't need the noise anymore**, the voice said, almost conversational.
 
-Rachel swallows. “Stop.”
+Rachel swallowed. "Stop."
 
-The voice doesn’t raise itself. It doesn’t push.
+The voice didn't raise itself. It didn't push.
 
 **I am stopped.**
 
-Her chest tightens. The ringing is barely there now, a distant echo, but the voice remains, settled somewhere nearer than it should be.
+Her chest tightened. The pressure was barely there now, a distant echo, but the voice remained, settled somewhere nearer than it should be.
 
-Rachel looks toward the door. The broken chair leans against it at a useless angle, wood splintered, lock hanging open. It doesn’t feel like an exit. It feels like a suggestion the building hasn’t bothered to argue with.
+Rachel looked toward the door. The broken chair leaned against it at a useless angle, wood splintered, lock hanging open. It didn't feel like an exit. It felt like a suggestion the building hadn't bothered to argue with.
 
-She shifts her weight again, testing.
+She shifted her weight again, testing.
 
-The floor responds in the same place, the same fraction, like it remembers her. The ringing doesn’t spike.
+The floor responded in the same place, the same fraction, like it remembered her. The pressure didn't spike.
 
-The voice doesn’t wait.
+The voice didn't wait.
 
 **You feel that faster now.**
 
-Rachel closes her eyes, grounding herself in the smell, the damp, the quiet weight of the room. “It’s just a building.”
+Rachel closed her eyes, grounding herself in the smell, the damp, the quiet weight of the room. "It's just a building."
 
 A pause.
 
@@ -73,33 +73,33 @@ Not restrained.
 
 **So are you.**
 
-Lena opens her eyes and finally looks at her. “I don’t like this place,” she says. “It’s… empty.”
+Lena opened her eyes and finally looked at her. "I don't like this place," she said. "It's… empty."
 
-Rachel almost laughs. “It’s not.”
+Rachel almost laughed. "It's not."
 
-She presses her foot down deliberately, just enough to feel that wrong give again. The voice stays with her, calm and present.
+She pressed her foot down deliberately, just enough to feel that wrong give again. The voice stayed with her, calm and present.
 
 No excitement.  
 No hunger.
 
 Just proximity.
 
-She pulls her foot back.
+She pulled her foot back.
 
-“We can’t stay,” she says.
+"We can't stay," she said.
 
-Lena exhales, relief cutting through exhaustion. “Good. Because I wasn’t planning on sleeping.”
+Lena exhaled, relief cutting through exhaustion. "Good. Because I wasn't planning on sleeping."
 
-They move for the door together. Rachel keeps her steps light, careful, aware of how quickly the room seems to register her leaving.
+They moved for the door together. Rachel kept her steps light, careful, aware of how quickly the room seemed to register her leaving.
 
-Outside, the night opens back up—rain louder, air thinner, sound less contained.
+Outside, the night opened back up—rain louder, air thinner, sound less contained.
 
-The ringing is almost gone.
+The pressure was almost gone.
 
-The voice isn’t.
+The voice wasn't.
 
-**You don’t need it anymore**, it says easily.
+**You don't need it anymore**, it said easily.
 
-Rachel steps away from the building without answering.
+Rachel stepped away from the building without answering.
 
-She already knows that’s the cost.
+She already knew that was the cost.
