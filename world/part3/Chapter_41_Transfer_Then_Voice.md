@@ -58,7 +58,7 @@ Her chest locked.
 
 The pressure pressed a word into her head: stop.
 
-It arrived without sound.
+Not the ceiling speakers. Inside.
 
 Not loud. Not gentle. Just there, pressed exactly where the pressure peaked.
 
