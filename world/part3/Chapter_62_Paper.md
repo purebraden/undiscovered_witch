@@ -1,168 +1,168 @@
 # Chapter 62 — Paper
 
-No one moves.
+No one moved.
 
-Not because they’re waiting. Not because they’re being told to stay. The room just doesn’t give them anything else to do. It holds Rachel the way it already decided to. It holds Lena like it hasn’t finished deciding yet.
+Not because they were waiting. Not because they were being told to stay. The room just didn’t give them anything else to do. It held Rachel the way it already decided to. It held Lena like it hadn’t finished deciding yet.
 
-Lena is still pressed into Rachel’s side. Not slumped. Not falling. Just off. One knee bent without choosing to be, weight pitched slightly wrong, fingers twisted in Rachel’s sleeve hard enough that the fabric has gone warm and damp.
+Lena was still pressed into Rachel’s side. Not slumped. Not falling. Just off. One knee bent without choosing to be, weight pitched slightly wrong, fingers twisted in Rachel’s sleeve hard enough that the fabric had gone warm and damp.
 
-Rachel can feel it. The exact place where the room stops helping Lena. Not a line. Not an edge. Just a feeling like standing one inch too far from a curb you didn’t see.
+Rachel could feel it. The exact place where the room stopped helping Lena. Not a line. Not an edge. Just a feeling like standing one inch too far from a curb you didn’t see.
 
-“Okay,” Lena says. Then again. “Okay.”
+“Okay,” Lena said. Then again. “Okay.”
 
-It sounds steadier than before. That scares Rachel more than if she were shaking.
+It sounded steadier than before. That scared Rachel more than if she were shaking.
 
-“I can stand,” Lena adds. “I just need— I need a second.”
+“I can stand,” Lena added. “I just need— I need a second.”
 
-The demons don’t look at her.
+The demons didn’t look at her.
 
-Someone against the wall shifts, elbows bending wrong. The one on the crate adjusts its seat like it’s settling in for a longer wait. None of them are in a hurry. None of them look concerned.
+Someone against the wall shifted, elbows bending wrong. The one on the crate adjusted its seat like it was settling in for a longer wait. None of them were in a hurry. None of them looked concerned.
 
-Rachel doesn’t loosen her grip.
+Rachel didn’t loosen her grip.
 
-**She can’t keep standing like this**, the voice says, close, familiar, like it’s always been there and Rachel just never noticed how often.  
+**She can’t keep standing like this**, the voice said, close, familiar, like it had always been there and Rachel just never noticed how often.  
 **You feel that, don’t you.**
 
-Rachel does. It’s the same ache she gets in her arms when she carries something heavier than she planned to and pretends she’s fine for too long.
+Rachel did. It was the same ache she got in her arms when she carried something heavier than she planned to and pretended she was fine for too long.
 
-Lena swallows. Her eyes slide, then snap back, like the room lagged a fraction of a second behind itself. “I’m still hearing… things,” she says. “Not voices. Just— leftovers. Like when someone leaves a sentence unfinished and your brain keeps trying to finish it.”
+Lena swallowed. Her eyes slid, then snapped back, like the room lagged a fraction of a second behind itself. “I’m still hearing… things,” she said. “Not voices. Just— leftovers. Like when someone leaves a sentence unfinished and your brain keeps trying to finish it.”
 
-Rachel’s jaw tightens.
+Rachel’s jaw tightened.
 
-“That’s not normal,” Lena says, almost casually, like she’s reporting weather. “My thoughts don’t usually smear.”
+“That’s not normal,” Lena said, almost casually, like she was reporting weather. “My thoughts don’t usually smear.”
 
-Rachel squeezes her sleeve without meaning to.
+Rachel squeezed her sleeve without meaning to.
 
-A demon glances over, bored. “She’s staying longer than she should,” it says. “That’ll do it.”
+A demon glanced over, bored. “She’s staying longer than she should,” it said. “That’ll do it.”
 
-Lena turns her head too fast and winces. “Do what.”
+Lena turned her head too fast and winced. “Do what.”
 
-The demon doesn’t answer her. It looks at Rachel instead. “That.”
+The demon didn’t answer her. It looked at Rachel instead. “That.”
 
-Silence drops again. Thicker this time.
+Silence dropped again. Thicker this time.
 
-Rachel’s shoulders ache. She realizes she’s bracing without moving.
+Rachel’s shoulders ached. She realized she was bracing without moving.
 
-**Borrowing always leaves residue**, the voice says.  
+**Borrowing always leaves residue**, the voice said.  
 **You’ve seen this part.**
 
-Rachel inhales too sharply.
+Rachel inhaled too sharply.
 
-Lena notices. Of course she does.
+Lena noticed. Of course she did.
 
-“You heard something,” Lena says. Not accusing. Certain. “You keep doing that. Pausing like someone just tapped you on the shoulder.”
+“You heard something,” Lena said. Not accusing. Certain. “You keep doing that. Pausing like someone just tapped you on the shoulder.”
 
-Rachel doesn’t deny it.
+Rachel didn’t deny it.
 
-“I’m not hallucinating,” Lena says. “That’s the worst part. I know what that feels like. This is different.”
+“I’m not hallucinating,” Lena said. “That’s the worst part. I know what that feels like. This is different.”
 
-She lifts her free hand, then stops halfway, staring at it like it’s misplaced. Slowly lowers it again.
+She lifted her free hand, then stopped halfway, staring at it like it was misplaced. Slowly lowered it again.
 
-“This feels like my thoughts are being rearranged,” she says. “Like something moved them and didn’t put them back in the same order.”
+“This feels like my thoughts are being rearranged,” she said. “Like something moved them and didn’t put them back in the same order.”
 
-The demon on the crate hums, agreeable.
+The demon on the crate hummed, agreeable.
 
-Rachel’s chest tightens.
+Rachel’s chest tightened.
 
-**There are ways to stop the drift**, the voice says, not urgent, not cruel.  
+**There are ways to stop the drift**, the voice said, not urgent, not cruel.  
 **You know that.**
 
-Rachel closes her eyes for half a second.
+Rachel closed her eyes for half a second.
 
-When she opens them, Lena is watching her too closely.
+When she opened them, Lena was watching her too closely.
 
-“You know something,” Lena says. “You’ve known something. Don’t do the face. I can’t do guessing right now.”
+“You know something,” Lena said. “You’ve known something. Don’t do the face. I can’t do guessing right now.”
 
-Rachel looks at the room instead. At the demons leaning, sitting, waiting like this is a lobby and they’ve been here before.
+Rachel looked at the room instead. At the demons leaning, sitting, waiting like this was a lobby and they’d been here before.
 
-“I’ve seen this,” Rachel says. Her voice doesn’t sound like hers. “Not you. Just… this shape of wrong.”
+“I’ve seen this,” Rachel said. Her voice didn’t sound like hers. “Not you. Just… this shape of wrong.”
 
-Lena’s mouth tightens. “Seen it where.”
+Lena’s mouth tightened. “Seen it where.”
 
-Rachel hesitates.
+Rachel hesitated.
 
-The room doesn’t rush her. It doesn’t care.
+The room didn’t rush her. It didn’t care.
 
-“In the basement,” Rachel says finally. “Before everything. There were… agreements.”
+“In the basement,” Rachel said finally. “Before everything. There were… agreements.”
 
-Lena blinks. Once. Then again. “Agreements.”
+Lena blinked. Once. Then again. “Agreements.”
 
-Rachel nods.
+Rachel nodded.
 
-“You mean contracts,” Lena says. Not a question.
+“You mean contracts,” Lena said. Not a question.
 
-The word doesn’t echo. It just sits there.
+The word didn’t echo. It just sat there.
 
-The demons don’t react. No interest. No surprise. Nothing.
+The demons didn’t react. No interest. No surprise. Nothing.
 
-Lena lets out a short laugh that breaks halfway through. “You’re telling me this now.”
+Lena let out a short laugh that broke halfway through. “You’re telling me this now.”
 
-Rachel swallows. “I didn’t think—”
+Rachel swallowed. “I didn’t think—”
 
-“You didn’t think I’d end up like this,” Lena says. Not angry. Tired. “You thought you could just hold me.”
+“You didn’t think I’d end up like this,” Lena said. Not angry. Tired. “You thought you could just hold me.”
 
-Rachel flinches like she’s been slapped.
+Rachel flinched like she’d been slapped.
 
-**Holding works until it doesn’t**, the voice says quietly.  
+**Holding works until it doesn’t**, the voice said quietly.  
 **You know what comes after.**
 
-Rachel opens her mouth. Closes it.
+Rachel opened her mouth. Closed it.
 
-One of the demons steps closer—not to Lena. To Rachel. “You’re late,” it says mildly. “But not wrong.”
+One of the demons stepped closer—not to Lena. To Rachel. “You’re late,” it said mildly. “But not wrong.”
 
-Rachel looks at it, then at Lena.
+Rachel looked at it, then at Lena.
 
-“What happens,” Rachel asks, and the question feels like it’s tearing its way out of her chest, “when someone keeps borrowing alignment and it doesn’t… stop.”
+“What happens,” Rachel asked, and the question felt like it was tearing its way out of her chest, “when someone keeps borrowing alignment and it doesn’t… stop.”
 
-The demon answers immediately. “It gets worse.”
+The demon answered immediately. “It gets worse.”
 
-“That’s it?” Lena says. “That’s the whole prognosis?”
+“That’s it?” Lena said. “That’s the whole prognosis?”
 
-Another demon shrugs. “Unless it’s stabilized.”
+Another demon shrugged. “Unless it’s stabilized.”
 
-Lena turns slowly to Rachel. “Stabilized how.”
+Lena turned slowly to Rachel. “Stabilized how.”
 
-Rachel doesn’t answer.
+Rachel didn’t answer.
 
-The room feels heavier now. Not hostile. Attentive.
+The room felt heavier now. Not hostile. Attentive.
 
-**You remember the paper**, the voice says, almost gently.  
+**You remember the paper**, the voice said, almost gently.  
 **You remember signing.**
 
-Rachel’s stomach twists.
+Rachel’s stomach twisted.
 
-Lena studies her face, and something shifts there—fear, yes, but also recognition.
+Lena studied her face, and something shifted there—fear, yes, but also recognition.
 
-“You’re not just asking,” Lena says quietly. “You already know what they’ll say.”
+“You’re not just asking,” Lena said quietly. “You already know what they’ll say.”
 
-Rachel shakes her head. “I just want to know what the options are.”
+Rachel shook her head. “I just want to know what the options are.”
 
-Lena exhales, shaky. “Options for who.”
+Lena exhaled, shaky. “Options for who.”
 
-Rachel doesn’t say her name.
+Rachel didn’t say her name.
 
-A demon finally looks at Lena—not really at her, more like checking an item that isn’t theirs. “It would stop hurting,” it says neutrally.
+A demon finally looked at Lena—not really at her, more like checking an item that wasn’t theirs. “It would stop hurting,” it said neutrally.
 
-Lena laughs again, bitter. “That’s not comforting.”
+Lena laughed again, bitter. “That’s not comforting.”
 
-“It’s accurate,” the demon replies.
+“It’s accurate,” the demon replied.
 
-Rachel’s chest feels too tight. “What does it cost,” she asks.
+Rachel’s chest felt too tight. “What does it cost,” she asked.
 
-The demon tilts its head. “You already know.”
+The demon tilted its head. “You already know.”
 
-Lena’s grip loosens, not because she means to let go.
+Lena’s grip loosened, not because she meant to let go.
 
-Because she’s tired.
+Because she was tired.
 
-“Rachel,” she says softly. “If you’re thinking about something like that— if that’s even on the table— you don’t get to decide it without me.”
+“Rachel,” she said softly. “If you’re thinking about something like that— if that’s even on the table— you don’t get to decide it without me.”
 
-Rachel nods immediately. “I know.”
+Rachel nodded immediately. “I know.”
 
-The room hums. The light seams glow. The demons go back to waiting.
+The room hummed. The light seams glowed. The demons went back to waiting.
 
-Nothing is offered. Nothing is taken back.
+Nothing was offered. Nothing was taken back.
 
-The option sits between them now, fully formed, not spoken out loud again, not denied.
+The option sat between them now, fully formed, not spoken out loud again, not denied.
 
-And the room keeps holding them exactly the way it has been.
+And the room kept holding them exactly the way it had been.

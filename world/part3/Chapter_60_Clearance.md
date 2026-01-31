@@ -1,110 +1,110 @@
 # Chapter 60 — Clearance
 
-The corridor opens without asking.
+The corridor opened without asking.
 
-Rachel feels it before she sees it, the space easing around her shoulders, the low hum shifting into something closer to breath than machinery. She doesn’t have to slow. The floor doesn’t argue with her weight.
+Rachel felt it before she saw it, the space easing around her shoulders, the low hum shifting into something closer to breath than machinery. She didn’t have to slow. The floor didn’t argue with her weight.
 
-Lena does.
+Lena did.
 
-Her steps lag half a beat behind, not from hesitation but resistance, like the ground expects something different from her and hasn’t decided what to do about it yet. She stays close anyway, eyes tracking movement she can’t quite focus on.
+Her steps lagged half a beat behind, not from hesitation but resistance, like the ground expected something different from her and hadn’t decided what to do about it yet. She stayed close anyway, eyes tracking movement she couldn’t quite focus on.
 
-Something crosses in front of them.
+Something crossed in front of them.
 
-It doesn’t rush. It doesn’t stop. It adjusts its path like someone sidestepping in a narrow hallway, close enough that Rachel catches the smell of iron and smoke and old stone warmed too long by bodies. The air tightens around Lena as it passes.
+It didn’t rush. It didn’t stop. It adjusted its path like someone sidestepping in a narrow hallway, close enough that Rachel caught the smell of iron and smoke and old stone warmed too long by bodies. The air tightened around Lena as it passed.
 
-“Am I in the way?” Lena mutters.
+“Am I in the way?” Lena muttered.
 
 No one answers.
 
-Another presence waits ahead of them.
+Another presence waited ahead of them.
 
-This one looks at Rachel the way people look when they’ve already made up their mind about you and are just checking something small. Its shape doesn’t settle cleanly, not monstrous so much as unconcerned with symmetry.
+This one looked at Rachel the way people looked when they’d already made up their mind about you and were just checking something small. Its shape didn’t settle cleanly, not monstrous so much as unconcerned with symmetry.
 
-“Oh,” it says. “You’re still walking.”
+“Oh,” it said. “You’re still walking.”
 
-Rachel stops.
+Rachel stopped.
 
-Lena stops with her. “Who are you talking to?”
+Lena stopped with her. “Who are you talking to?”
 
-Rachel doesn’t answer yet.
+Rachel didn’t answer yet.
 
-The figure smiles, not kindly, not cruelly. Just… familiarly. “I wondered when you’d show back up.”
+The figure smiled, not kindly, not cruelly. Just… familiarly. “I wondered when you’d show back up.”
 
-“I didn’t mean to,” Rachel says.
+“I didn’t mean to,” Rachel said.
 
-“Of course you didn’t.” It glances past her, briefly, dismissively, then back. “You never do.”
+“Of course you didn’t.” It glanced past her, briefly, dismissively, then back. “You never do.”
 
-Lena frowns. “Rachel.”
+Lena frowned. “Rachel.”
 
-“She’s loud,” the figure says to Rachel, almost amused. “They always are at first.”
+“She’s loud,” the figure said to Rachel, almost amused. “They always are at first.”
 
-Rachel stiffens. “She’s with me.”
+Rachel stiffened. “She’s with me.”
 
-The figure hums, considering. “Mm. Yes. I can see that.”
+The figure hummed, considering. “Mm. Yes. I can see that.”
 
-It leans slightly to one side. The corridor responds, widening around Rachel, tightening around Lena like a held breath.
+It leaned slightly to one side. The corridor responded, widening around Rachel, tightening around Lena like a held breath.
 
-Lena feels it and swears. “I hate this,” she mutters. “I really hate this.”
+Lena felt it and swore. “I hate this,” she muttered. “I really hate this.”
 
-The figure doesn’t look at her. “You’re stretched thin,” it says to Rachel. “But you fit. We can work with that.”
+The figure didn’t look at her. “You’re stretched thin,” it said to Rachel. “But you fit. We can work with that.”
 
-“What about her,” Rachel asks.
+“What about her,” Rachel asked.
 
-Another presence drifts closer, this one lower, broader, its attention settling on Rachel with a weight that feels almost affectionate. “She makes things harder.”
+Another presence drifted closer, this one lower, broader, its attention settling on Rachel with a weight that felt almost affectionate. “She makes things harder.”
 
 “I know.”
 
-It chuckles softly. “Good. We hate explaining that part.”
+It chuckled softly. “Good. We hate explaining that part.”
 
-Lena crosses her arms. “I’m right here.”
+Lena crossed her arms. “I’m right here.”
 
 Nothing reacts.
 
-The first figure sighs, long-suffering. “We can tolerate her,” it says to Rachel. “If you keep hold of her.”
+The first figure sighed, long-suffering. “We can tolerate her,” it said to Rachel. “If you keep hold of her.”
 
 “Keep hold how.”
 
-It gestures vaguely at Rachel’s hand, still gripping Lena’s sleeve. “That.”
+It gestured vaguely at Rachel’s hand, still gripping Lena’s sleeve. “That.”
 
-Lena looks down. “Are you kidding me.”
+Lena looked down. “Are you kidding me.”
 
-Rachel doesn’t let go.
+Rachel didn’t let go.
 
-The pressure around Lena shifts, not gone but redirected, like someone deciding to walk with you instead of against you. Lena exhales sharply. “I hate this,” she mutters. “I really hate this.”
+The pressure around Lena shifted, not gone but redirected, like someone deciding to walk with you instead of against you. Lena exhaled sharply. “I hate this,” she muttered. “I really hate this.”
 
-The figure nods, pleased. “See? She learns.”
+The figure nodded, pleased. “See? She learns.”
 
-“Don’t talk about me like I’m a dog,” Lena snaps.
+“Don’t talk about me like I’m a dog,” Lena snapped.
 
 Still nothing.
 
-Another demon passes close, brushing Rachel’s shoulder without touching, its attention lingering just long enough to register approval before moving on.
+Another demon passed close, brushing Rachel’s shoulder without touching, its attention lingering just long enough to register approval before moving on.
 
-“You won’t stay,” the broader one says, tone turning serious. “You’re not meant to.”
+“You won’t stay,” the broader one said, tone turning serious. “You’re not meant to.”
 
-“I don’t want to,” Rachel says.
+“I don’t want to,” Rachel said.
 
-“Good,” it replies. “Staying makes claims. Claims make messes.”
+“Good,” it replied. “Staying makes claims. Claims make messes.”
 
-Lena’s eyes flick between the moving shapes. “Claims like what.”
+Lena’s eyes flicked between the moving shapes. “Claims like what.”
 
 No answer.
 
-The first figure steps aside, revealing a darker opening ahead, space bending toward it like it’s already expecting them. “You can go,” it says to Rachel. “For now.”
+The first figure stepped aside, revealing a darker opening ahead, space bending toward it like it was already expecting them. “You can go,” it said to Rachel. “For now.”
 
-“For now,” Rachel repeats.
+“For now,” Rachel repeated.
 
-It smiles again. “You always hear that part.”
+It smiled again. “You always hear that part.”
 
-Rachel tightens her grip on Lena and starts forward. The space opens for her immediately. Lena is pulled along by proximity alone, the resistance easing just enough to allow movement without comfort.
+Rachel tightened her grip on Lena and started forward. The space opened for her immediately. Lena was pulled along by proximity alone, the resistance easing just enough to allow movement without comfort.
 
-As they pass, the figure adds quietly, almost fond, “You’re doing better than last time.”
+As they passed, the figure added quietly, almost fond, “You’re doing better than last time.”
 
-Rachel doesn’t ask what that means.
+Rachel didn’t ask what that meant.
 
-They move toward the opening together, Rachel walking easily, Lena dragged by closeness and trust and nothing else, the demons parting around them like a crowd that knows exactly who belongs in the flow.
+They moved toward the opening together, Rachel walking easily, Lena dragged by closeness and trust and nothing else, the demons parting around them like a crowd that knew exactly who belonged in the flow.
 
-Behind them, someone laughs softly.
+Behind them, someone laughed softly.
 
 Not unkindly.
 
@@ -112,8 +112,8 @@ Not welcoming either.
 
 Just amused.
 
-And Rachel understands, with a clarity that settles deep in her chest:
+And Rachel understood, with a clarity that settled deep in her chest:
 
-They aren’t afraid of her.
+They weren’t afraid of her.
 
-They’re relieved she’s finally acting like herself.
+They were relieved she was finally acting like herself.

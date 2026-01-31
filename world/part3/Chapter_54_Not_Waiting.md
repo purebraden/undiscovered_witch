@@ -10,7 +10,7 @@ Lena slowed, glancing back over her shoulder. “Do you want to rest?”
 
 She shifted her weight and the ringing flared, a thin white pressure that made her vision fuzz at the edges.
 
-**You’re doing it again**, the voice says, not accusing, just interested.
+**You’re doing it again**, the voice said, not accusing, just interested.
 
 Rachel caught herself on a branch, bark scraping skin from her palm. “Doing what,” she muttered, breath coming too fast.
 
@@ -46,7 +46,7 @@ Something shifted at the far end of the road, a shape moving where there shouldn
 
 The ringing tightens instantly, bright and alert, threading straight through her skull.
 
-**That moment**, the voice says, close enough to feel. **Right before.**
+**That moment**, the voice said, close enough to feel. **Right before.**
 
 The figure took a step closer. Still wrong. Still distant.
 

@@ -48,7 +48,7 @@ The pressure eases.
 
 Rachel swallowed. “Stop.”
 
-The voice doesn’t raise itself. It doesn’t push.
+The voice didn’t raise itself. It didn’t push.
 
 **I am stopped.**
 
@@ -60,7 +60,7 @@ She shifted her weight again, testing.
 
 The floor responded in the same place, the same fraction, like it remembered her. The ringing didn’t spike.
 
-The voice doesn’t wait.
+The voice didn’t wait.
 
 **You feel that faster now.**
 

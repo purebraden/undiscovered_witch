@@ -13,7 +13,7 @@ Uneven. Loud. Real enough to trust.
 
 She pressed her palms hard against her temples, as if pressure might cancel pressure.
 
-**You’re listening now**, the voice says, right where the sound is worst.
+**You’re listening now**, the voice said, right where the sound is worst.
 
 Rachel dropped her hands. “I didn’t ask you to stay.”
 
@@ -47,7 +47,7 @@ They did, slower now, careful, feet sliding on wet leaves and roots. Every few s
 
 “I don’t want to do that again,” she muttered, not sure if she was talking to Lena or the sound in her head.
 
-**You will**, the voice says immediately, too certain.
+**You will**, the voice said immediately, too certain.
 
 Her skin crawled. “You don’t know that.”
 
