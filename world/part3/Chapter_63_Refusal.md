@@ -32,8 +32,8 @@ The words land with a dull thud. No drama. No threat.
 
 Rachel’s chest tightens.
 
-**She’s choosing discomfort over alignment**, the voice says, curious rather than disapproving.  
-**She always did that.**
+She’s choosing discomfort over alignment, the voice says, curious rather than disapproving.  
+She always did that.
 
 Rachel squeezes her eyes shut for half a second. When she opens them Lena is watching her again, too closely, like she’s trying to keep Rachel from drifting somewhere she can’t follow.
 
@@ -55,8 +55,8 @@ The demon tilts its head. “You already know there’s a price.”
 
 Rachel feels the ache in her arms deepen, the quiet pull of the room asking her to stand just a little differently. She doesn’t.
 
-**You could make this end**, the voice says, not coaxing.  
-**You don’t have to keep holding.**
+You could make this end, the voice says, not coaxing.  
+You don’t have to keep holding.
 
 Rachel ignores it.
 
@@ -96,8 +96,8 @@ Lena lets out a breath that shakes. “I don’t care,” she says, and the word
 
 Rachel feels something twist in her chest. Pride. Fear. Something like loss.
 
-**She’s choosing pain**, the voice says, thoughtful.  
-**That’s inefficient.**
+She’s choosing pain, the voice says, thoughtful.  
+That’s inefficient.
 
 Rachel snaps, “Don’t.”
 

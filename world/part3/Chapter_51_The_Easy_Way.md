@@ -16,7 +16,7 @@ Lena doesn’t answer. Her arm tightens reflexively, not guiding, just there, an
 
 The pressure wakes up close and irritated.
 
-**Don’t get used to that.**
+Don’t get used to that, it warned.
 
 Rachel almost laughs, the sound brittle in her chest. “Too late.”
 
@@ -40,7 +40,7 @@ Lena shrugs. “Didn’t need to.”
 
 The pressure presses harder, unpleasant now.
 
-**She assumes.**
+She assumes, it noted.
 
 Rachel stumbles again, smaller this time, and Lena steadies her before she can decide whether she wants it. The world obliges immediately, pain dulling, the air smoothing, the night loosening its grip.
 
@@ -54,7 +54,7 @@ They reach a place where the road changes its mind—not a fork, just a widening
 
 The pressure spikes, sharp and immediate.
 
-**That way keeps you quiet.**
+That way keeps you quiet, it warned.
 
 Rachel digs her heel in on instinct. The world lurches, not collapsing, just slipping out of alignment enough to hurt, pain snapping bright up her leg, vision whitening at the edges.
 
@@ -68,7 +68,7 @@ Rachel lets out a thin, broken laugh. “You feel that,” she says. “You have
 
 The pressure hums, displeased.
 
-**She likes when it’s easy.**
+She likes when it’s easy, it said.
 
 Rachel pulls her arm free and everything stutters—not enough to drop her, just enough to make the night feel loud again, rain too present, ground honest and unforgiving under her foot. She sways, catching herself on nothing, breath sawing out of her chest. Lena reaches for her and stops when Rachel shakes her head.
 
@@ -78,7 +78,7 @@ The open road ahead looks inviting now, smooth and reasonable, the kind of choic
 
 The pressure doesn’t rush her this time.
 
-**You can walk where it hurts, or you can walk where you disappear.**
+You can walk where it hurts, or you can walk where you disappear, it offered.
 
 Rachel closes her eyes for half a second and steps toward the worse ground. Pain answers immediately, loud and honest, the night pressing back in, rain sharp in her ears again.
 

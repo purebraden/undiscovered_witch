@@ -26,7 +26,7 @@ Her jaw tightened.
 
 The pressure shifted, late.
 
-**You didn’t wait—**
+The voice slid in: you didn’t wait—
 
 “For what,” she snapped, and the anger surprised her with how easy it came.
 
@@ -69,7 +69,7 @@ Lena blinked. “What?”
 
 “How did you get out here,” Rachel said again, pushing herself upright despite her ankle screaming. The ground dipped and steadied and she ignored it, eyes locked on Lena. “I thought everything was sealed.”
 
-Lena took a step closer and then stopped like she’d hit an invisible line. Confusion flickered across her face. “Rachel, I heard something break and then—” She waved a hand behind her, the gesture incomplete. “People started running. I just— I followed.”
+Lena took a step closer and then stopped like she’d hit an invisible line. Confusion flickered across her face. “Rachel, I heard something break and then—” She waved a hand behind her, the gesture incomplete. “People started running. The outer doors were open. I just— I followed.”
 
 Rachel shook her head, slow and small. “That doesn’t line up,” she said. “You shouldn’t have been able to just walk out.”
 
@@ -77,7 +77,7 @@ Rain drummed between them.
 
 The pressure leaned in, curious.
 
-**She isn’t where you left her.**
+She isn’t where you left her, it noted.
 
 Rachel’s breath hitched.
 
@@ -97,7 +97,7 @@ Rachel didn’t move.
 
 The pressure slid back, repositioning, like it had lost interest in the question and was already looking ahead.
 
-**You don’t get to finish this.**
+You don’t get to finish this, it said.
 
 Lena’s hand landed on Rachel’s shoulder.
 

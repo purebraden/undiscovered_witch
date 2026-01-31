@@ -20,7 +20,7 @@ Lena points left. “That way. It’ll hide us.”
 
 The pressure inside Rachel tightens, sharp enough to make her breath catch.
 
-**She doesn’t know that.**
+She doesn’t know that, the voice said.
 
 Rachel swallows. “How do you know.”
 
@@ -34,7 +34,7 @@ The rain ticks against the leaves like something counting.
 
 Rachel stares into the trees. The dark there feels busy, layered, full of small sounds that don’t line up. The road, for all its exposure, at least stays straight for a few yards before it bends.
 
-**She points where things gather.**
+She points where things gather, it added.
 
 “That’s not—” Rachel stops herself. Her heart is beating too fast, every thud arriving a fraction late. “You don’t know what’s in there.”
 
@@ -48,7 +48,7 @@ The words come out before Rachel can stop them. Lena looks at her, confusion sha
 
 The pressure leans closer, almost pleased.
 
-**She wasn’t there when you fell.**
+She wasn’t there when you fell, it said.
 
 Rachel’s gaze snaps back to Lena. “You didn’t see it.”
 
@@ -69,7 +69,7 @@ Rachel looks at her hand.
 At the way Lena’s finger doesn’t shake.  
 At how certain the gesture is.
 
-**She’s already chosen without you.**
+She’s already chosen without you, it noted.
 
 Something cold settles in Rachel’s stomach.
 
@@ -91,7 +91,7 @@ Rachel turns to the road. The curve ahead is dark, wet, empty. It doesn’t prom
 
 But it doesn’t close in either.
 
-**She won’t follow you there.**
+She won’t follow you there, it warned.
 
 Rachel’s pulse roars in her ears.
 

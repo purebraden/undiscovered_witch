@@ -44,8 +44,8 @@ The room refuses.
 
 Not violently. Not even firmly. It just doesn’t finish letting her move.
 
-**There**, the voice says, warm now, unmistakably pleased, like it’s been waiting for this exact moment.  
-**That’s the part you kept fixing.**
+There, the voice says, warm now, unmistakably pleased, like it’s been waiting for this exact moment.  
+That’s the part you kept fixing.
 
 “Shut up,” Rachel snaps, the words coming out raw and breathless.
 
@@ -89,8 +89,8 @@ Close enough to hurt.
 
 Rachel’s eyes burn.
 
-**She’s slipping fast**, the voice says, bright with interest.  
-**You waited too long.**
+She’s slipping fast, the voice says, bright with interest.  
+You waited too long.
 
 Rachel doesn’t answer. She can’t spare the air.
 

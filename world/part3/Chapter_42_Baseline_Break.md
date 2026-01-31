@@ -6,7 +6,7 @@ Red emergency strips pulsed overhead, not in a steady rhythm but in a pattern th
 
 Boots chased her—not one set, not even a line, too many feet hitting together, confident, synchronized, the sound of people moving the way the building expected them to move. The corridor liked that sound and answered it, floor and walls carrying the rhythm forward for them.
 
-Her heel slid on stone that hadn’t been slick a second ago, balance pitching forward and correcting late, knees absorbing a fall that never fully happened. She gasped and the breath came out wrong, half-formed, and **Left** cut across the motion like a sharp notation pressed against the inside of her skull before she knew where left was supposed to be.
+Her heel slid on stone that hadn’t been slick a second ago, balance pitching forward and correcting late, knees absorbing a fall that never fully happened. She gasped and the breath came out wrong, half-formed, and the pressure pressed a word into her head—left—cutting across the motion before she knew where left was supposed to be.
 
 She didn’t turn because she didn’t know where left *was* yet, not in a space that kept rearranging its edges. She kept running straight and the corridor narrowed around her in increments too small to measure until her shoulder scraped stone that hadn’t been there, skin tearing, the sting arriving a beat after the contact and then staying too long.
 
@@ -14,13 +14,13 @@ Someone shouted behind her, the sound stretching, thinning, then snapping as if 
 
 “Stop—”
 
-Her lungs burned as the hallway dipped, and **Now** tangled with her breathing just as her body lurched left anyway, an ugly half-turn where her hips went first and her shoulders followed, foot planting on nothing and finding tile late as she slammed into a side passage that hadn’t existed when she looked. The turn crushed her ribs together and her vision paled at the edges, light washing thin.
+Her lungs burned as the hallway dipped, and a word—now—tangled with her breathing just as her body lurched left anyway, an ugly half-turn where her hips went first and her shoulders followed, foot planting on nothing and finding tile late as she slammed into a side passage that hadn’t existed when she looked. The turn crushed her ribs together and her vision paled at the edges, light washing thin.
 
 A heavy door slammed somewhere above or below her, the sound coming twice—one version close, one far—each insisting it was the real one.
 
 The passage sloped downward, not stairs, not a ramp, just enough of an angle to pull at her calves and make her stomach float as if the floor had decided gravity was optional. She kept running because stopping would mean standing still inside a place that had begun to anticipate her.
 
-Her breath hitched. Her chest seized for half a heartbeat and then released too late to be helpful, something inside her tightening in response, a pressure like a hand closing, and **Don’t** threaded through the sensation without volume or urgency, too late to explain what she was doing wrong.
+Her breath hitched. Her chest seized for half a heartbeat and then released too late to be helpful, something inside her tightening in response, a pressure like a hand closing, and a warning—don’t—threaded through the sensation without volume or urgency, too late to explain what she was doing wrong.
 
 She was running. She was breathing. She was—
 
@@ -34,9 +34,9 @@ She glanced back and regretted it immediately. One of them was down on a knee, o
 
 The others flowed around him without slowing. Procedure did not turn its head.
 
-Rachel faced forward again and swallowed bile as **Faster** pressed into the back of her awareness.
+Rachel faced forward again and swallowed bile as the pressure pressed a single instruction—faster—into the back of her awareness.
 
-“No,” she rasped, the word breaking apart before the breath finished forming, and **Not speed. Timing** slid in behind it, close enough to feel like it was leaning.
+“No,” she rasped, the word breaking apart before the breath finished forming, and not speed. Timing slid in behind it, close enough to feel like it was leaning.
 
 Her footfalls were wrong; she could feel it now, each step arriving half a beat out of phase with the hall, her body moving before her mind finished deciding, her thoughts chasing after her own motion like they were late to themselves.
 
@@ -57,7 +57,7 @@ Boots hit the threshold behind her.
 
 The voice was too close and she didn’t move because moving felt like it would tear something loose. Her heart hammered, the lamp trembling, cord shifting an inch across the desk before stopping, the overhead light flickering and steadying and flickering again, each change landing just after it should have.
 
-The pressure in her chest leaned toward the voice, curious, and **Too many eyes** slid through her without sound.
+The pressure in her chest leaned toward the voice, curious, and too many eyes slid through her without sound.
 
 Her mouth opened. No sound came.
 
@@ -73,7 +73,7 @@ One of them flinched and caught himself mid-step, boot hovering before settling 
 
 Baseline.
 
-Rachel laughed once, short and broken, the sound coming back to her late, echoing as if someone else had done it, and **They want you still** settled into the space the laugh left behind.
+Rachel laughed once, short and broken, the sound coming back to her late, echoing as if someone else had done it, and they want you still settled into the space the laugh left behind.
 
 She stared at the nearest shield, at her own warped reflection in the curved plastic. She looked wrong. She looked late.
 
@@ -101,11 +101,11 @@ A shield tilted—assessment, not sympathy.
 
 “Don’t make it worse,” someone said softly.
 
-**Ask the room** slid through her before she could reject it, and she stared at the desk, the lamp, the cord, the small rectangle of shadow beneath it that didn’t line up with the light.
+Ask the room slid through her before she could reject it, and she stared at the desk, the lamp, the cord, the small rectangle of shadow beneath it that didn’t line up with the light.
 
 “No,” she whispered.
 
-**You already did.**
+You already did, it said.
 
 Her fingers twitched. The grid tightened. A boot slid a fraction on tile that had gone slick.
 
@@ -117,7 +117,7 @@ The grid stuttered, one light blinking out and coming back late as someone swore
 
 “Stop—”
 
-She opened her eyes. Nothing had resolved. The team was still there, still aiming, still trying to hold a space that refused to stay held, the pressure leaning closer, tight and interested, **Again** threading through the moment without volume.
+She opened her eyes. Nothing had resolved. The team was still there, still aiming, still trying to hold a space that refused to stay held, the pressure leaning closer, tight and interested, again threading through the moment without volume.
 
 She didn’t move.
 
@@ -133,7 +133,7 @@ Heavy boots gathered outside. The transfer team.
 
 “Clear the archive,” a confident voice called from the hall. “We’re moving her.”
 
-Too many bodies decided at once, relief and fear rippling through the room, and the pressure inside her tilted toward the doorway, drawn by cadence and authority and the promise of a clamp, **If they frame you again, it spills** threading through the thought before she could stop it.
+Too many bodies decided at once, relief and fear rippling through the room, and the pressure inside her tilted toward the doorway, drawn by cadence and authority and the promise of a clamp, if they frame you again, it spills threading through the thought before she could stop it.
 
 Rachel stood in pieces, legs straightening before her torso finished, balance arriving late and overshooting, hands lifting with palms open—not surrender, not threat, just visible.
 
@@ -145,7 +145,7 @@ The doorway filled with heavier armor, a frame on wheels unfolding behind them, 
 
 The room was too full.
 
-**Choose.**
+Choose, it said.
 
 “Where?” she whispered.
 

@@ -58,11 +58,11 @@ The words scrape.
 
 The ringing hums, closer now, threading into Rachel’s thoughts without effort.
 
-**This place doesn’t hold people.**
+This place doesn’t hold people, it said.
 
 Rachel presses her fingers into her temples. “Don’t.”
 
-**That’s why it works.**
+That’s why it works, it replied.
 
 She drags her hands down her face, palms smearing rain and dirt, pressure pulsing behind her eyes in time with her heartbeat. “I just want to stop,” she mutters. “Five minutes.”
 
@@ -86,7 +86,7 @@ Lena sits hard on the edge of a collapsed table, exhaustion finally winning. “
 
 The ringing flares, pleased.
 
-**No one looks for what doesn’t register.**
+No one looks for what doesn’t register, it said.
 
 Rachel closes her eyes and feels it then—the way the place doesn’t line up with her properly, like she’s standing half a step out of phase with the floor, the walls, the air. It doesn’t push back. It doesn’t pull her in.
 
@@ -106,6 +106,6 @@ Lena looks up, startled. “Rachel—”
 
 The ringing settles again, patient, content.
 
-**You’re learning.**
+You’re learning, it said.
 
 Rachel stays on her feet, listening to a place that doesn’t listen back, and knows they’re still moving even now—just more slowly, in the wrong direction.

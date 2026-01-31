@@ -134,7 +134,7 @@ Rachel lowers her hand.
 
 The demon slides the folded paper back under the crate, already finished with it.
 
-Behind Rachel’s ear, quiet as breath, the voice says, **She’s placed now.**
+Behind Rachel’s ear, quiet as breath, the voice says, She’s placed now.
 
 Rachel closes her eyes.
 

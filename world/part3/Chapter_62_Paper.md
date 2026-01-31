@@ -20,8 +20,8 @@ Someone against the wall shifts, elbows bending wrong. The one on the crate adju
 
 Rachel doesn’t loosen her grip.
 
-**She can’t keep standing like this**, the voice says, close, familiar, like it’s always been there and Rachel just never noticed how often.  
-**You feel that, don’t you.**
+She can’t keep standing like this, the voice says, close, familiar, like it’s always been there and Rachel just never noticed how often.  
+You feel that, don’t you.
 
 Rachel does. It’s the same ache she gets in her arms when she carries something heavier than she planned to and pretends she’s fine for too long.
 
@@ -43,8 +43,8 @@ Silence drops again. Thicker this time.
 
 Rachel’s shoulders ache. She realizes she’s bracing without moving.
 
-**Borrowing always leaves residue**, the voice says.  
-**You’ve seen this part.**
+Borrowing always leaves residue, the voice says.  
+You’ve seen this part.
 
 Rachel inhales too sharply.
 
@@ -64,8 +64,8 @@ The demon on the crate hums, agreeable.
 
 Rachel’s chest tightens.
 
-**There are ways to stop the drift**, the voice says, not urgent, not cruel.  
-**You know that.**
+There are ways to stop the drift, the voice says, not urgent, not cruel.  
+You know that.
 
 Rachel closes her eyes for half a second.
 
@@ -103,8 +103,8 @@ Rachel swallows. “I didn’t think—”
 
 Rachel flinches like she’s been slapped.
 
-**Holding works until it doesn’t**, the voice says quietly.  
-**You know what comes after.**
+Holding works until it doesn’t, the voice says quietly.  
+You know what comes after.
 
 Rachel opens her mouth. Closes it.
 
@@ -126,8 +126,8 @@ Rachel doesn’t answer.
 
 The room feels heavier now. Not hostile. Attentive.
 
-**You remember the paper**, the voice says, almost gently.  
-**You remember signing.**
+You remember the paper, the voice says, almost gently.  
+You remember signing.
 
 Rachel’s stomach twists.
 

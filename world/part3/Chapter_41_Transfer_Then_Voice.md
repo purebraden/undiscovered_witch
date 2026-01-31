@@ -56,9 +56,9 @@ The hands on her arms dragged behind her body. The sound of the grinding stretch
 
 Her chest locked.
 
-**Stop.**
+The pressure pressed a word into her head: stop.
 
-The word arrived without sound.
+It arrived without sound.
 
 Not loud. Not gentle. Just there, pressed exactly where the pressure peaked.
 
@@ -66,7 +66,7 @@ Rachel choked. Her mouth moved. Nothing followed.
 
 The grinding wavered.
 
-**You’re crossing crooked.**
+You’re crossing crooked, the voice said.
 
 The frame shuddered. A spark snapped from the console to the wall. The tech standing there flinched and didn’t get his hand up in time. Blood opened along his temple, narrow and straight, like it had been placed.
 
@@ -76,9 +76,7 @@ The word came from too far away.
 
 Rachel’s lungs burned.
 
-**Breathe.**
-
-Not a command. A timing note.
+Breathe, it said. Not a command. A timing note.
 
 She pulled air and it hurt. Heat flared behind her eyes. The pressure slid, not easing, just relocating.
 
@@ -90,7 +88,7 @@ The woman’s glove caught between metal surfaces. She cried out, sharp and surp
 
 Something jumped tracks inside Rachel.
 
-**There.**
+There, it noted.
 
 Her body twisted.
 
@@ -116,15 +114,13 @@ Inside her head, the pressure changed shape.
 
 Not gone. Focused.
 
-**Better.**
-
-The word didn’t soothe. It evaluated.
+Better, it evaluated.
 
 “Get out,” Rachel whispered. Her throat felt flayed. She wasn’t sure the sound left her.
 
 A pause. Short. Calculated.
 
-**No.**
+No, it said.
 
 Hands reached for her again and hesitated.
 
@@ -142,15 +138,15 @@ A voice cracked overhead through the ceiling speakers, clipped and thin.
 
 The word broke. Static ate the rest.
 
-**Wrong cadence.**
+Wrong cadence, it noted.
 
 Rachel staggered to her feet. The frame loomed beside her, silent now, pretending it had behaved.
 
 “I can’t,” she said, and laughed because the sound fell out of her mouth before she could stop it. “I don’t—”
 
-**Too many steps.**  
+Too many steps, it said.  
 A beat.  
-**They’re late again.**
+They’re late again.
 
 More boots. Faster. Different pattern.
 
@@ -164,7 +160,7 @@ Rachel’s heel caught on nothing and she windmilled, barely catching herself on
 
 Inside her head, the presence shifted closer—not intimate, not invasive. Occupied.
 
-**If they clamp you again, it will spill wider.**
+If they clamp you again, it will spill wider, it warned.
 
 Her stomach dropped.
 
@@ -172,7 +168,7 @@ Her stomach dropped.
 
 The answer came without hurry.
 
-**Motion.**
+Motion, it said.
 
 The word landed and stayed there, heavy and unfinished.
 

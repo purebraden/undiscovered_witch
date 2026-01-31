@@ -14,8 +14,8 @@ Not a wall. Not a push. Just the floor failing to finish the job, like it forget
 
 “Okay,” Lena says, then again, quieter. “Okay.”
 
-**She’s leaning on you.  
-You can feel it.**
+She’s leaning on you, the voice said.  
+You can feel it.
 
 Rachel hadn’t noticed how hard she was gripping Lena’s sleeve until her fingers ache.
 
@@ -64,8 +64,8 @@ No one looks at her.
 
 Lena shifts her weight and the floor answers badly, pressure blooming behind her eyes. She sucks in a breath through her teeth.
 
-**She can’t stand on her own here.  
-Not without you.**
+She can’t stand on her own here, the voice said.  
+Not without you.
 
 Rachel tightens her grip. “She’s not okay.”
 
@@ -75,8 +75,8 @@ Rachel tightens her grip. “She’s not okay.”
 
 A laugh from near the light seams. Teeth too even. “Because you’re close enough to matter.”
 
-**She only hears them because she’s close to you.  
-That won’t last.**
+She only hears them because she’s close to you, it said.  
+That won’t last.
 
 “What do you want,” Rachel asks, too fast.
 
@@ -94,8 +94,8 @@ The demon smiles. “You say that every time.”
 
 Lena makes a sound she doesn’t finish and bends slightly, hand braced on her thigh.
 
-**She’s getting worse.  
-You waited too long.**
+She’s getting worse, it said.  
+You waited too long.
 
 “Look at me,” Rachel says, turning fully toward her. “Hey.”
 
@@ -117,8 +117,8 @@ Rachel’s grip tightens until the fabric twists.
 
 “Stand there.” A nod, a few steps away. “The room likes you better there.”
 
-**You’re standing in the wrong place.  
-It hurts her when you do.**
+You’re standing in the wrong place, it said.  
+It hurts her when you do.
 
 “No,” Lena says immediately. “Rachel, don’t.”
 
@@ -134,14 +134,14 @@ Silence stretches. Not empty. Expectant.
 
 Rachel looks at Lena. Sweat at her hairline. Teeth clenched. Still trusting her.
 
-**If you don’t move now, she’s going to fall.**
+If you don’t move now, she’s going to fall, it warned.
 
 Rachel loosens her grip.
 
 Barely.
 
-**There.  
-See?**
+There, it said.  
+See?
 
 The room answers immediately.
 
@@ -155,8 +155,8 @@ Behind her Lena chokes on a sound and the pressure spikes again, sharper now, pu
 
 Rachel freezes.
 
-**That was easier.  
-Not for her.**
+That was easier, it said.  
+Not for her.
 
 She turns back, heart stuttering as she realizes the distance is already doing the work.
 
@@ -178,8 +178,8 @@ Lena stays pressed against her, breathing shallow, eyes closed.
 
 Rachel stands exactly where the room allows her to stand, holding exactly what it will tolerate her holding.
 
-**You can hold her again.  
-Just not the same way.**
+You can hold her again, it said.  
+Just not the same way.
 
 The light hums.  
 The room waits.

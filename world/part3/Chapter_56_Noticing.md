@@ -22,7 +22,7 @@ The ringing tightens—
 
 Not gone. Displaced.
 
-**There.**
+There, it said.
 
 The word lands cleanly.
 
@@ -44,13 +44,13 @@ The space answers faster this time. Air presses faintly around her shoulders, cl
 
 The pressure eases.
 
-**You don’t need the noise anymore**, the voice says, almost conversational.
+You don’t need the noise anymore, the voice says, almost conversational.
 
 Rachel swallows. “Stop.”
 
 The voice doesn’t raise itself. It doesn’t push.
 
-**I am stopped.**
+I am stopped, it said.
 
 Her chest tightens. The ringing is barely there now, a distant echo, but the voice remains, settled somewhere nearer than it should be.
 
@@ -62,7 +62,7 @@ The floor responds in the same place, the same fraction, like it remembers her. 
 
 The voice doesn’t wait.
 
-**You feel that faster now.**
+You feel that faster now, it said.
 
 Rachel closes her eyes, grounding herself in the smell, the damp, the quiet weight of the room. “It’s just a building.”
 
@@ -71,7 +71,7 @@ A pause.
 Not distant.  
 Not restrained.
 
-**So are you.**
+So are you, it replied.
 
 Lena opens her eyes and finally looks at her. “I don’t like this place,” she says. “It’s… empty.”
 
@@ -98,7 +98,7 @@ The ringing is almost gone.
 
 The voice isn’t.
 
-**You don’t need it anymore**, it says easily.
+You don’t need it anymore, it says easily.
 
 Rachel steps away from the building without answering.
 

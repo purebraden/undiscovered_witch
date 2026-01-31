@@ -20,13 +20,13 @@ Light slid through in thin bands that didn’t agree on direction, crawling acro
 
 Rachel rolled onto her side and immediately regretted it, the motion dragging pain through her spine like a hooked wire. She gasped and pressed her face to the ground, grit biting into her skin, the surface warm in one place and cold an inch away.
 
-**You’re still in one piece.**
+You’re still in one piece, it said.
 
 She laughed once, breathless and ugly. “Lucky me.”
 
 The pressure didn’t move away.
 
-**This is where it puts what doesn’t fit.**
+This is where it puts what doesn’t fit, it said.
 
 Her stomach clenched.
 
@@ -43,7 +43,7 @@ Rachel froze so hard her muscles trembled. The sound wasn’t footsteps. It drag
 
 Her heart hammered loud enough she was sure it could hear it.
 
-**Not yet.**
+Not yet, it warned.
 
 She didn’t know what that meant, but her body obeyed, breath caught halfway in, chest burning.
 
@@ -53,7 +53,7 @@ The dragging stopped.
 
 Rachel counted breaths because counting felt safer than thinking. One scraped in. The next caught. The third hurt worse.
 
-**It knows you’re there.**
+It knows you’re there, it said.
 
 “No,” she breathed, the word barely sound.
 
@@ -63,7 +63,7 @@ A shape pulled free from the floor where the light didn’t quite reach. Not a p
 
 Rachel’s eyes slid off it. Looking straight made her dizzy, like the center of it refused to stay where she put it.
 
-**Don’t look straight.**
+Don’t look straight, it warned.
 
 She didn’t understand why, only that obeying made the thing smaller somehow—not clearer, just less everything at once. Too many joints. Not enough edges. A surface that caught light and then let it go like it hadn’t decided whether it wanted it.
 
@@ -71,7 +71,7 @@ It paused.
 
 The pressure leaned closer.
 
-**It’s deciding if you’re worth it.**
+It’s deciding if you’re worth it, it said.
 
 Rachel swallowed a sound.
 
@@ -79,7 +79,7 @@ The thing dragged part of itself forward with a noise like fabric pulled across 
 
 Her pulse roared.
 
-**Pain shows.**
+Pain shows, it warned.
 
 She clamped her hand over her mouth, nails digging in.
 
@@ -89,7 +89,7 @@ Rachel didn’t wait to understand why.
 
 She dragged herself backward in inches, palms scraping skin away, breath coming in ragged pulls. The ground resisted in places and then released without warning, throwing off her timing, making every movement feel like a mistake she hadn’t finished making yet.
 
-**Slow.**
+Slow, it urged.
 
 She froze again, heart trying to claw its way out.
 
@@ -101,7 +101,7 @@ Her body wouldn’t stop trembling.
 
 The pressure eased—not gone, just less forward, like it had leaned back to watch.
 
-**This place forgets what stops moving.**
+This place forgets what stops moving, it said.
 
 Tears leaked out despite her clenched jaw.
 

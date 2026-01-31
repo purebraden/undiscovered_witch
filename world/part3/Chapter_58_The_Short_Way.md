@@ -21,11 +21,11 @@ Nothing comes.
 
 Her throat tightens.
 
-**Left**, the voice says.
+Left, the voice says.
 
 Lena whispers, “Uphill. Trees are thicker.”
 
-**Longer**, the voice replies, already dismissing it.
+Longer, the voice replies, already dismissing it.
 
 Rachel stares into the dark to the left. The ground drops away sharply there, uneven and slick, the kind of descent that hurts if you misjudge it.
 
@@ -45,7 +45,7 @@ Lena stays crouched, breathing hard. “You could’ve warned me.”
 
 Rachel nods. “I’m sorry.”
 
-**You didn’t stop**, the voice says.
+You didn’t stop, the voice says.
 
 Lena looks up at her. “How did you know that was there?”
 
@@ -57,7 +57,7 @@ They move again, slower now, ground flattening into something almost walkable. T
 
 The voice breaks the quiet.
 
-**Not the path.**
+Not the path, it said.
 
 Ahead, a narrow trail cuts through the trees, worn enough to be visible even in the dark.
 
@@ -65,7 +65,7 @@ Ahead, a narrow trail cuts through the trees, worn enough to be visible even in 
 
 Rachel hesitates.
 
-**They’ll expect it**, the voice says, calm.
+They’ll expect it, the voice says, calm.
 
 She angles left.
 
@@ -85,7 +85,7 @@ The weight of her body.
 
 Then—
 
-**She’s slowing you down.**
+She’s slowing you down, it said.
 
 Rachel pulls her arm free. Not hard. Just enough. “Trust me.”
 

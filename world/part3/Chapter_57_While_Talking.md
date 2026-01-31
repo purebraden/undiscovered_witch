@@ -12,13 +12,13 @@ Rachel listens, following the rhythm more than the meaning, grateful for somethi
 
 The voice slides in.
 
-**You won’t make it far like that.**
+You won’t make it far like that, it said.
 
 Rachel flinches, not from pain, not from pressure, but because it lands in the same space Lena’s voice just occupied, clean and unmissable. She clamps her mouth shut and stares at the dark ground near her feet, breathing slow through her nose.
 
 Lena keeps going, unaware. “People don’t like walking wet slopes in the dark. It buys us time.”
 
-**She’s thinking in straight lines**, the voice says, almost fond. **That won’t help you.**
+She’s thinking in straight lines, the voice says, almost fond. That won’t help you.
 
 Rachel nods too fast.
 
@@ -32,13 +32,13 @@ Lena pauses. “You okay? You’re doing that thing again.”
 
 The voice doesn’t wait.
 
-**You’re tired because you’re carrying it alone.**
+You’re tired because you’re carrying it alone, it said.
 
 Rachel’s fingers curl into her palms. She focuses on the scrape of wet leaves under Lena’s boots, the smell of rain and rust and something faintly electrical she doesn’t want to think about.
 
 “We should keep moving,” Lena says. “Before someone notices we didn’t come back.”
 
-**They already did**, the voice murmurs, calm enough to be cruel.
+They already did, the voice murmurs, calm enough to be cruel.
 
 Rachel’s breath stutters.
 
@@ -56,7 +56,7 @@ They start walking. For a few seconds the sound of their steps lines up, rain st
 
 “If we get separated—” Lena begins.
 
-**You won’t**, the voice says immediately.
+You won’t, the voice says immediately.
 
 Rachel stops short.
 
@@ -68,7 +68,7 @@ Lena stumbles a step ahead, swears quietly, then turns. “Rachel?”
 
 Rachel nods. “Right.”
 
-**You don’t need to explain that to her**, the voice adds. **She’ll follow.**
+You don’t need to explain that to her, the voice adds. She’ll follow.
 
 The words settle somewhere deep and unwelcome. Rachel presses her tongue to the roof of her mouth, grounding herself in the taste of rain, the ache in her ankle, the fact of her body still moving through space.
 
@@ -90,7 +90,7 @@ The voice stays silent for several steps, close enough to feel even without soun
 
 Then, lightly, like it’s commenting on the weather—
 
-**You see how easy that was.**
+You see how easy that was, it said.
 
 Rachel keeps moving.
 

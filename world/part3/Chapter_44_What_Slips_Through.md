@@ -26,7 +26,7 @@ The sound came twice.
 
 Her lungs stuttered. Breath scraped shallow and fast, each inhale catching like it had to pass through something narrow before it was allowed in.
 
-**Stay down—**
+Stay down, it urged—
 
 The words crowded in too close, not comfort, not command, and she hated that her body listened anyway, muscles locking while her heart battered against her ribs like it wanted out.
 
@@ -41,7 +41,7 @@ The air smelled sharp and sweet, ozone and something like rain trapped undergrou
 
 She pushed herself up and immediately regretted it as her vision washed pale, pressure inside her chest shifting forward in response, attentive in a way that made her skin crawl.
 
-**Careful.**
+Careful, it warned.
 
 Her ankle throbbed, swelling fast, heat blooming out of proportion to the injury. She grabbed it without thinking, fingers shaking, the shaking refusing to stop even after she noticed it.
 
@@ -59,7 +59,7 @@ Once.
 
 Rachel yanked her hand back like she’d touched something alive.
 
-**It’s listening—**
+It’s listening, it warned—
 
 “Everything is listening,” she snapped, anger punching through the fear sharp enough to hurt, and limped forward anyway, hand skimming the wall for balance, counting steps without meaning to—one, two—then stopping when the numbers slipped and refused to line up.
 
@@ -78,7 +78,7 @@ Rachel stopped short, breath snagging.
 
 The pressure inside her tightened, not warning, not reassurance.
 
-**Not built for holding.**
+Not built for holding, it said.
 
 Her ears rang as she edged around it, ankle screaming every time she put weight down wrong, the light inside the structure lagging behind her movement, shadows adjusting late like they were embarrassed to be caught out.
 
@@ -127,7 +127,7 @@ Rachel looked back at the wall behind her. Smooth. No seam. No sign it had ever 
 
 The pressure inside her chest sharpened, alert now.
 
-**This one slipped earlier.**
+This one slipped earlier, it noted.
 
 Rachel’s breath hitched.
 
@@ -141,7 +141,7 @@ The lights rippled in sequence, a wave moving through the space like a signal be
 
 The pressure leaned forward, interested.
 
-**They found the seam.**
+They found the seam, it said.
 
 Rachel closed her eyes for half a second.
 

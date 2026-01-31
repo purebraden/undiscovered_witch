@@ -9,7 +9,7 @@ Rachel felt it through her eyelids before she opened them, a pressure shift that
 
 The pressure inside her recoiled.
 
-**That’s not meant to be open.**
+That’s not meant to be open, it warned.
 
 Before she could ask what *that* meant, the floor lurched.
 
@@ -22,7 +22,7 @@ The dark tore.
 
 Light punched through in a jagged column, white and hard and real, and the space around her folded inward like it was trying to close a wound. Something grabbed at her ankle—pressure, not hands—and then let go with a sharp, irritated snap.
 
-**You’re in the way now.**
+You’re in the way now, it said.
 
 She hit ground that did not move.
 
@@ -45,7 +45,7 @@ Metal screaming under stress. A distant crack like concrete failing wrong. Shout
 
 The pressure inside her chest pulled tight, disoriented.
 
-**Outside isn’t quieter.**
+Outside isn’t quieter, it warned.
 
 “I don’t care,” she gasped, dragging air into her lungs like she’d been underwater too long. Her ankle screamed when she tried to move, pain sharp and grounding, proof she was back in a body that obeyed physics even when it hated her.
 
@@ -61,7 +61,7 @@ Or maybe just a name.
 
 The pressure inside her shifted, retreating, like it had been shoved out of the room and was deciding whether to try the door again.
 
-**They broke something important.**
+They broke something important, it said.
 
 Rachel laughed once, wet and hysterical, and pressed her forehead into the mud.
 

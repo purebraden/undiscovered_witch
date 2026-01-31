@@ -6,7 +6,7 @@ Cold punched up through her shoulder and ribs as she rolled, skin scraping hard 
 
 She lay there for half a second too long, lungs fluttering uselessly, chest spasming as if breathing had been rerouted and hadn’t found the new path yet.
 
-**Up.**
+Up, the pressure urged.
 
 The word cut in without volume, not urgent, not kind, and her body obeyed before her head finished catching up, hands scrambling against tile that felt slicker than it looked. She pushed herself to a knee and nearly pitched forward again as gravity shifted sideways, the floor tilting just enough to be wrong.
 
@@ -38,7 +38,7 @@ Rachel limped forward, each step a negotiation with her ankle, with gravity, wit
 
 Her breathing started to even out. Not because she calmed down—because the pressure inside her shifted, redistributing, pressing less on her chest and more along her spine, a presence that felt like it was settling in to watch.
 
-**Wrong level.**
+Wrong level, it noted.
 
 “What does that mean,” she whispered, voice hoarse, and the words came back to her a fraction late, echoing like someone else had spoken them.
 
@@ -56,7 +56,7 @@ Her stomach twisted.
 
 “That’s not—” she started.
 
-**Not for you.**
+Not for you, it said.
 
 The pressure tightened slightly, enough to be felt, not enough to hurt.
 
@@ -68,7 +68,7 @@ Pain flared up her arm, delayed and sharp.
 
 She gasped and the sound snagged halfway out, throat closing reflexively as the pressure inside her surged in response.
 
-**Careful.**
+Careful, it warned.
 
 “Don’t,” she said, louder this time, and kept moving.
 
@@ -106,11 +106,11 @@ Rachel froze, hand pressed against the door, heart hammering.
 
 The opening widened another inch.
 
-**This is what you wanted.**
+This is what you wanted, it said.
 
 “I didn’t,” she said, voice shaking.
 
-**You wanted out of the frame.**
+You wanted out of the frame.
 
 Her stomach dropped.
 
@@ -130,7 +130,7 @@ Rachel backed away from it, shaking her head.
 
 The pressure inside her leaned forward, interested.
 
-**If they reach you here, it tears wider.**
+If they reach you here, it tears wider, it warned.
 
 Her ankle screamed as she shifted her weight. She glanced back down the corridor she’d come from—empty now, lights flickering, the hum uneven—but the sound of boots was too close, echoing wrong, doubled.
 
@@ -142,7 +142,7 @@ Her breath hitched.
 
 The pressure tightened, almost approving.
 
-**Somewhere that won’t hold them.**
+Somewhere that won’t hold them, it answered.
 
 Her heart slammed against her ribs.
 
