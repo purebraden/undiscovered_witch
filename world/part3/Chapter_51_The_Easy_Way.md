@@ -24,9 +24,7 @@ She tries to step half a pace ahead, just to test it, and the ground grabs her t
 
 “Slow down,” Lena says. “You’re rushing.”
 
-The road clicks back into place.
-
-Rachel stands there shaking, breath tearing in and out of her lungs, hating how fast the relief comes, how easily the noise in her head dulls when she lets Lena take her weight. They start again, and the road opens where Lena angles them, not dramatically, just enough—fewer stones, fewer dips, shadows thinning as if brushed aside.
+The road clicks back into place and they start again, the path opening where Lena angles them, not dramatically, just enough—fewer stones, fewer dips, shadows thinning as if brushed aside.
 
 Rachel notices without wanting to.
 
@@ -89,5 +87,3 @@ Behind her, Lena exhales, frustrated and frightened. “Rachel. This is harder.�
 Rachel nods, jaw clenched. “I know.”
 
 She keeps moving, choosing discomfort over ease, and after a beat she hears footsteps again—not steadying, not leading.
-
-Just there.

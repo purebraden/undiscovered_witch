@@ -60,8 +60,6 @@ No one looks at her.
 
 “She’s with me.”
 
-“Yes,” it hums. “We can see that.”
-
 Lena shifts her weight and the floor answers badly, pressure blooming behind her eyes. She sucks in a breath through her teeth.
 
 She can’t stand on her own here, the voice said.  

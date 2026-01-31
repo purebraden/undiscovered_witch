@@ -96,9 +96,7 @@ Rachel’s hands curl into fists.
 
 This is the moment she’s supposed to stop it.
 
-She knows that. She can feel the shape of it pressing against her ribs, the place where resistance should live.
-
-She hesitates.
+She knows it by the pressure under her ribs, the place resistance should live. She hesitates.
 
 That’s enough.
 

@@ -152,8 +152,5 @@ Rachel made a sound that might have been a laugh or a sob and stepped backward.
 
 The floor behind her shifted.
 
-Not opening.
-
 Not yet.
-
 Waiting.

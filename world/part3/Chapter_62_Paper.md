@@ -85,15 +85,11 @@ The room doesn’t rush her. It doesn’t care.
 
 “In the basement,” Rachel says finally. “Before everything. There were… agreements.”
 
-Lena blinks. Once. Then again. “Agreements.”
+Lena blinks. “Agreements.”
 
 Rachel nods.
 
 “You mean contracts,” Lena says. Not a question.
-
-The word doesn’t echo. It just sits there.
-
-The demons don’t react. No interest. No surprise. Nothing.
 
 Lena lets out a short laugh that breaks halfway through. “You’re telling me this now.”
 
@@ -105,8 +101,6 @@ Rachel flinches like she’s been slapped.
 
 Holding works until it doesn’t, the voice says quietly.  
 You know what comes after.
-
-Rachel opens her mouth. Closes it.
 
 One of the demons steps closer—not to Lena. To Rachel. “You’re late,” it says mildly. “But not wrong.”
 

@@ -119,9 +119,7 @@ The grid stuttered, one light blinking out and coming back late as someone swore
 
 She opened her eyes. Nothing had resolved. The team was still there, still aiming, still trying to hold a space that refused to stay held, the pressure leaning closer, tight and interested, again threading through the moment without volume.
 
-She didn’t move.
-
-The lamp kept sliding anyway, cord dragging, shadow lagging behind the base as if the world couldn’t decide which part mattered. A shield bumped a shelf and paper rasped, folders shifting, the sound arriving late and multiplying into a dry static that filled the room.
+She didn’t move. The lamp slid again, cord dragging; a shield bumped a shelf and paper rasped, the sound arriving late and multiplying into dry static.
 
 The grid flared, trying to correct, the air thickening until her lungs stuttered and heat breathed out of the wall, dust waking.
 
@@ -133,7 +131,7 @@ Heavy boots gathered outside. The transfer team.
 
 “Clear the archive,” a confident voice called from the hall. “We’re moving her.”
 
-Too many bodies decided at once, relief and fear rippling through the room, and the pressure inside her tilted toward the doorway, drawn by cadence and authority and the promise of a clamp, if they frame you again, it spills threading through the thought before she could stop it.
+Too many bodies decided at once; relief and fear rippled, and the pressure tilted toward the doorway, drawn by cadence and the promise of a clamp—if they frame you again, it spills.
 
 Rachel stood in pieces, legs straightening before her torso finished, balance arriving late and overshooting, hands lifting with palms open—not surrender, not threat, just visible.
 

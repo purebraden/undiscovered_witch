@@ -103,16 +103,9 @@ Lena steps closer, rain dripping from her hair. “Don’t do that,” she says 
 
 Rachel nods. “I won’t.”
 
-They stand there longer than necessary, rain ticking overhead, the trail lost behind them, the trees pressed close enough to feel like they’re listening.
-
-The voice doesn’t comment.
-
-They start moving again, slower, closer together this time, but the direction doesn’t change.
-
+They start moving again, slower, closer together, but the direction doesn’t change.
 Rachel keeps choosing turns she can’t explain.
-
 Lena keeps following.
-
-The night keeps folding inward around them.
+The night folds inward around them.
 
 And every step after that feels shorter than it should have been.

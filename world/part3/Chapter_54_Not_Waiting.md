@@ -63,7 +63,7 @@ They stayed behind, it said.
 
 The figure moves again and Lena shifts beside her, ready to do something human and useless, to step in front, to slow this down, to negotiate.
 
-The choice opens sharp and immediate in Rachel’s chest, not framed, not explained.
+The choice opens sharp and immediate in Rachel’s chest.
 
 Wait.  
 Or decide.
@@ -94,8 +94,6 @@ The pause is longer this time. Closer.
 
 Of course not, it said.  
 You’re doing it because it works.
-
-The words lodge somewhere she doesn’t touch.
 
 Lena’s hand finds her shoulder, solid and warm. “We need to keep going,” she says quietly. “Next time—just tell me what you need.”
 

@@ -8,8 +8,7 @@ Lena slows first, breath rasping, hands braced on her knees like she’s holding
 
 Rachel stays upright because sitting feels like letting something arrive. The ringing is thinner now but constant, a high wire pulled tight behind her eyes, vibrating whenever she shifts her weight.
 
-The world holds.  
-Uneven. Loud. Real enough to trust.
+The world holds, uneven and loud, real enough to trust.
 
 She presses her palms hard against her temples, as if pressure might cancel pressure.
 

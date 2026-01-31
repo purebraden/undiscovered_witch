@@ -64,10 +64,7 @@ Behind them, a light sweeps briefly across the road and then disappears again, t
 
 Lena points left again, firmer this time. “We go now, or we don’t go at all.”
 
-Rachel looks at her hand.
-
-At the way Lena’s finger doesn’t shake.  
-At how certain the gesture is.
+Rachel looks at Lena’s hand, at the way her finger doesn’t shake, at the certainty of the gesture.
 
 She’s already chosen without you, it noted.
 
@@ -97,8 +94,6 @@ Rachel’s pulse roars in her ears.
 
 “You don’t know that,” she whispers.
 
-The pressure doesn’t argue.
-
 Lena looks from Rachel to the road, then back to the trees. “Rachel. Please.”
 
 Rachel takes one step toward the road.
@@ -111,10 +106,6 @@ She takes another.
 
 Rachel doesn’t answer. She limps forward, each step deliberate, wrong in a way that feels intentional. The road curves and takes her with it, pulling her line of sight away from the lights, from the trees, from the place Lena is standing.
 
-She hears Lena hesitate behind her.
-
-Then footsteps.
-
-Following.
+She hears Lena hesitate behind her, then footsteps following.
 
 Rachel doesn’t turn around.
