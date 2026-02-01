@@ -1,4 +1,4 @@
-# Chapter 1
+# Chapter 1 — The Pain Came First
 
 The pain came first.
 
@@ -274,7 +274,7 @@ She had made it out.
 
 The city had not let her go.
 
-# Chapter 2
+# Chapter 2 — Until the Street Narrowed
 
 Rachel ran until the street narrowed and the buildings leaned in close, until the bells thinned behind her and the horns stretched out into something distant and ragged, like a sound losing its grip.
 
@@ -530,7 +530,7 @@ Rachel screamed as something inside her shifted and locked, the pressure settlin
 
 Above them, the ceiling began to come apart.
 
-# Chapter 3
+# Chapter 3 — The Ceiling Came Down
 
 The ceiling came down in pieces first, stone cracking and splitting overhead as dust poured down in choking sheets and heat rolled through the chamber in a sudden, violent wave that stole what little breath Rachel had left.
 
@@ -833,7 +833,7 @@ Behind her, lantern light slid along the cobbles like a searching finger, and th
 
 "Easy. Easy. We know what you are."
 
-# Chapter 4
+# Chapter 4 — Testing for Voices
 
 Rachel did not get far underground before the air cooled and the light behind her thinned to a distant glow. The pressure in her chest tugged her left, then right, testing for voices.
 
@@ -913,7 +913,7 @@ As she limped past, the boy coughed, wet and ragged. The woman groaned, arm at a
 
 The corridor swallowed the sound of their breathing. The line in the floor pulled her on.
 
-# Chapter 5
+# Chapter 5 — The Line Led Downward
 
 The line led her downward. The air cooled. The light thinned to seams in the stone that glowed faintly like embers under ash.
 
@@ -965,7 +965,7 @@ A narrow lane opened to her left, the arch at its end low and dark. The pressure
 
 Rachel went in because it was the only direction that did not hurt.
 
-# Chapter 6
+# Chapter 6 — The Passage Curved
 
 The passage behind the arch curved inward and down, the ceiling low enough to hunch. The air cooled and thickened, damp stone and standing water and something faintly metallic underneath.
 
@@ -1021,7 +1021,7 @@ The pressure shifted toward the frame, a sideways insistence. Rachel stood, took
 
 She stepped back. The pressure eased, as if satisfied to have made its point.
 
-# Chapter 7
+# Chapter 7 — The Room Did Not Stay Still
 
 The room did not stay still.
 
@@ -1081,7 +1081,7 @@ Behind her, the channel sealed without sound, leaving nothing but smooth wall.
 
 She followed the pull toward the noise because there was no other direction left.
 
-# Chapter 8
+# Chapter 8 — Released Into Noise
 
 The corridor released her into noise that arrived all at once, not loud or sharp but layered and uneven, voices crossing each other in bands that did not line up cleanly, metal striking stone somewhere beyond her sight, footsteps overlapping in rhythms that belonged to different purposes and never quite resolved into one.
 
@@ -1275,7 +1275,7 @@ No one had to.
 
 This was no longer routine.
 
-# Chapter 9
+# Chapter 9 — Not Lifted Gently
 
 They did not lift her gently.
 
@@ -1682,7 +1682,7 @@ The gap widened.
 
 The pressure leaned, just slightly, toward the tools.
 
-# Chapter 10
+# Chapter 10 — The Tools
 
 Rachel did not move toward the tools.
 
@@ -1914,7 +1914,7 @@ Rachel stayed where she was, shaking, every muscle tight, the pressure coiled in
 
 Just waiting.
 
-# Chapter 11
+# Chapter 11 — The Footsteps Did Not Rush
 
 The footsteps did not rush, and that was the first wrong thing.
 
@@ -2130,7 +2130,7 @@ Rachel swore and lunged sideways, but the pressure shoved her the other way. The
 
 She dropped.
 
-# Chapter 12
+# Chapter 12 — The Chute
 
 Rachel hit the chute hard and slid, the stone tilted just enough that she could not slow herself. Air tore past her ears. The pressure inside her spiked and then flattened, as if it was bracing for impact it could not prevent.
 
@@ -2246,7 +2246,7 @@ The lights dimmed. The etched lines dulled.
 
 She was alone again, but the air was no longer calm. It hummed with something that had been woken and did not want to go back to sleep.
 
-# Chapter 13
+# Chapter 13 — The Room Started Emptying
 
 The room started emptying before Rachel could get her breath back.
 
@@ -2324,7 +2324,7 @@ Rachel backed away, heart racing. She had not touched the valve. The pressure ha
 
 She turned and limped deeper into the dark, the only direction it would let her go.
 
-# Chapter 14
+# Chapter 14 — A Junction Lit for No One
 
 The maintenance run ended in a junction that had been lit for no one.
 
@@ -2404,7 +2404,7 @@ Rachel stared until her eyes burned.
 
 The pressure tightened, urging her forward. She tore her gaze away and limped on, the words following her like a hand at her back.
 
-# Chapter 15
+# Chapter 15 — The Corridor Woke
 
 The passage opened into a corridor that had been dark and was not anymore.
 
@@ -2480,7 +2480,7 @@ The pressure did not ease. It pushed her on, away from the voices, away from the
 
 She limped into the dark, and the lights followed at a distance she could feel.
 
-# Chapter 16
+# Chapter 16 — The Light Followed Her In
 
 The dark run opened into a larger chamber, and the light followed her in.
 
