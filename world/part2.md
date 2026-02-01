@@ -71,7 +71,7 @@ The hum behind her changed pitch.
 
 She burst into a wider passage and skidded to a halt.
 
-A man stood near a stack of crates, hands lifting slowly as he saw her. A dull white knot marked his vest, the same one she had seen painted on doors. Not a rank. A warning. His gaze flicked to her leg, to the faint pulse beneath her skin, and his throat worked.
+A man stood near a stack of crates, hands lifting slowly as he saw her. A dull white knot marked his vest, the same one she had seen painted on doors. Not a rank. A warning. He touched it once, a habit more prayer than signal. His gaze flicked to her leg, to the faint pulse beneath her skin, and his throat worked.
 
 “Don’t,” he said.
 
@@ -870,6 +870,7 @@ Rachel followed and felt the pressure recoil, then tighten again a half-second l
 The seam closed behind them with a quiet drag of stone that made Rachel flinch anyway.
 
 The room was low-ceilinged and badly lit, bare bulbs hanging too close together, throwing overlapping shadows that never quite settled. Tables lined the walls. Crates stacked in corners. A kettle hissed softly on a hot plate, steam curling up and vanishing before it reached the ceiling. Someone had tried very hard to make it ordinary.
+A cord with three tight knots hung above the seam, wax-stiff, the kind people touched before crossing.
 
 Three people looked up.
 

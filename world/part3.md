@@ -1164,6 +1164,7 @@ The voice slid in: you didn’t wait—
 “For what,” she snapped, and the anger surprised her with how easy it came.
 
 She wiped rain out of her eyes and forced herself to look properly. Grass torn to mud. A slope that didn’t line up with how she remembered the ground being. A fence farther off, leaning wrong, reflective tape snapping wetly in the wind. Below the tape, thin tags fluttered with knot-stamped warnings instead of words.
+A bell rang somewhere down the slope, two slow notes that meant shelter.
 
 Footprints.
 
@@ -2481,6 +2482,7 @@ They’re relieved she’s finally acting like herself.
 The room doesn’t open so much as *already be there*.
 
 Concrete underfoot, too smooth, walls curving wrong, ceiling low enough that Rachel feels it in her shoulders even before she notices the unlit fluorescent housings hanging there like dead things. Light leaks from seams that don’t cast shadows properly. It makes her eyes ache if she stares.
+A thin line of pale dust traced the baseboards, broken where the floor forgot itself.
 
 She steps in.
 
