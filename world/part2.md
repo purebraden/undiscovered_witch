@@ -877,7 +877,7 @@ A gray-haired man sat at a table with both hands around a mug he wasn’t drinki
 
 A young woman stood near the far wall with a toolbox at her feet, sleeves rolled up, eyes too bright, like she’d been awake longer than she should have been.
 
-An older woman stood closest to the seam, small and wiry, already turning her body so she wasn’t directly in line with the door. She didn’t block it. She listened to it, palm lifted toward the stone without touching.
+An older woman stood closest to the seam, small and wiry, already turning her body so she wasn’t directly in line with the door. She didn’t block it. She listened to it, palm lifted toward the stone without touching. Under the bare bulbs, her skin held a faint blue cast, not sick, just wrong.
 
 Her gaze moved from Lena to Rachel and stayed there.
 

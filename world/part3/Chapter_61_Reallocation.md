@@ -61,13 +61,13 @@ To the space itself.
 
 Something in Rachel’s chest collapses inward.
 
-One of the demons exhales softly, the sound of someone watching a glass finally tip after sitting too close to the edge. “That escalated.”
+One of them exhales softly, the sound of someone watching a glass finally tip after sitting too close to the edge. “That escalated.”
 
 “She refused,” another says mildly. “The room adjusted.”
 
 Rachel whirls on them, vision swimming. “Fix it.”
 
-A demon tilts its head, considering, not unkindly. “We can stabilize it.”
+One of them tilts its head, considering, not unkindly. “We can stabilize it.”
 
 Lena’s head jerks. “No.”
 
@@ -116,6 +116,6 @@ It’s barely sound. It’s enough.
 
 The room hums, satisfied.
 
-The demons turn away, already done.
+They turn away, already done.
 
 And Rachel makes the choice she swore she wouldn’t make for someone else, because there is no version of this where waiting makes it better.

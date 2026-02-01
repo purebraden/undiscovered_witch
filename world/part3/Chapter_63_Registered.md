@@ -2,13 +2,13 @@
 
 The paper doesn’t arrive.
 
-It’s already there, tucked under the crate like it slid there on its own and never bothered to announce itself. Rachel only notices it when the demon’s hand goes for it, fingers hooking the edge, pulling it free with the carefulness of someone handling something that’s been used too many times to argue back.
+It’s already there, tucked under the crate like it slid there on its own and never bothered to announce itself. Rachel only notices it when a hand goes for it, fingers hooking the edge, pulling it free with the carefulness of someone handling something that’s been used too many times to argue back.
 
 “Wait,” Rachel says.
 
 The word jumps out of her, sharp, unfinished.
 
-The demon pauses anyway. Not startled. Not defensive. Just… considerate.
+It pauses anyway. Not startled. Not defensive. Just… considerate.
 
 “This won’t take long,” it says, quieter than before. “And it hurts less if we don’t rush it.”
 
@@ -18,7 +18,7 @@ Lena is standing straight. Not rigid. Focused in a way that feels borrowed, like
 
 “You said it would stop the slipping,” Lena says.
 
-“It will,” the demon replies. “Here.”
+“It will,” it replies. “Here.”
 
 It sets the paper down on the crate between them. No flourish. No sound worth noting.
 
@@ -36,7 +36,7 @@ Rachel opens her mouth.
 
 Nothing comes.
 
-The demon exhales, a small sound of apology already baked into it. “She should read it.”
+It exhales, a small sound of apology already baked into it. “She should read it.”
 
 Lena nods and reaches out. Her fingers brush the paper once, recoil, then grip it properly, like she’s bracing for a texture she doesn’t expect.
 
@@ -48,7 +48,7 @@ Lena reads silently at first. Her lips move on a few words she doesn’t like. S
 
 “This says I’ll be… registered,” Lena says finally.
 
-The demon nods. “Anchored.”
+It nods. “Anchored.”
 
 “Here,” Lena adds.
 
@@ -56,13 +56,13 @@ The demon nods. “Anchored.”
 
 Lena lifts her head. “Not owned.”
 
-The demon shakes its head immediately, almost too fast. “No. Not owned.”
+It shakes its head immediately, almost too fast. “No. Not owned.”
 
 Rachel’s chest tightens. She knows the difference matters, even if she doesn’t know why yet.
 
 “And I won’t—” Lena hesitates, frowns. “I won’t come apart like that again.”
 
-“No,” the demon says. “The space will finish holding you.”
+“No,” it says. “The space will finish holding you.”
 
 Rachel flinches. She can’t help it.
 
@@ -70,7 +70,7 @@ Lena notices.
 
 “What doesn’t it say,” Lena asks.
 
-The demon is quiet for a beat. Long enough that when it speaks, the apology is already there.
+It is quiet for a beat. Long enough that when it speaks, the apology is already there.
 
 “It doesn’t say how hard it will be to leave.”
 
@@ -90,7 +90,7 @@ Rachel shakes her head, desperate. “There has to be another way.”
 
 Lena gives a tired, almost-smile. “Maybe. But not one I can stand through.”
 
-The demon shifts, uncomfortable. “If you’re going to proceed,” it says gently, “it’s better not to wait too long.”
+It shifts, uncomfortable. “If you’re going to proceed,” it says gently, “it’s better not to wait too long.”
 
 Rachel’s hands curl into fists.
 
@@ -108,7 +108,7 @@ When she finishes, the paper warms.
 
 Not hot. Just… alive enough to notice.
 
-The demon folds it once. Twice. Smooths the crease with its thumb.
+It folds it once. Twice. Smooths the crease with its thumb.
 
 “I’m sorry,” it says quietly, and means it.
 
@@ -130,7 +130,7 @@ She looks steadier. Clearer. Held.
 
 Rachel lowers her hand.
 
-The demon slides the folded paper back under the crate, already finished with it.
+It slides the folded paper back under the crate, already finished with it.
 
 Behind Rachel’s ear, quiet as breath, the voice says, She’s placed now.
 

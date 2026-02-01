@@ -339,13 +339,13 @@ The pressure softened.
 
 Rachel swallowed and kept going.
 
-At the bottom, the stairwell opened into a low chamber lit by guttering lamps. Iron cages lined the walls, their bars thick and scarred, some empty, some holding shapes that did not stay still.
+At the bottom, the stairwell opened into a low chamber lit by guttering lamps. Iron cages lined the walls, their bars thick and scarred, some empty, some holding shapes that did not stay still. Their skin held a bruised blue cast in the lamplight, too thin, veins showing like ink.
 
 Something shifted.
 
 Rachel froze.
 
-Chains rattled softly. A tall shape moved closer to the bars, joints bending wrong, eyes opening pale in the dark. It smiled, mouth stretching wider than it should have.
+Chains rattled softly. A tall shape moved closer to the bars, joints bending wrong, eyes opening pale in the dark, pupils flat and wrong. It smiled, mouth stretching wider than it should have, teeth set in a second row.
 
 "Oh," it said, voice low and pleased. "You can see us."
 
@@ -361,7 +361,7 @@ The thing laughed.
 
 Another voice joined it. Then another.
 
-From cages she had not noticed, from corners that had been empty seconds before, shapes leaned forward, eyes gleaming, teeth catching the light.
+From cages she had not noticed, from corners that had been empty seconds before, shapes leaned forward, eyes gleaming, teeth catching the light, their faces lagging half a beat behind their skulls.
 
 "Fresh," someone murmured.
 "Uncut," said another.
@@ -377,7 +377,7 @@ At its center sat a figure.
 
 Not bound. Not caged.
 
-It sat with its hands folded loosely in its lap, bare feet on stone, long dark hair hanging in tangled ropes down its back.
+It sat with its hands folded loosely in its lap, bare feet on stone, toes too long, nails clear as glass, long dark hair hanging in tangled ropes down its back.
 
 When it lifted its head, the light under Rachel's skin recoiled.
 
@@ -649,7 +649,7 @@ Rachel forced herself to stand.
 
 Smoke still poured from the tunnel mouth behind her, heat bleeding through the stone in slow waves. She limped into the darkness, each step unsteady, the pull inside her quiet but not gone.
 
-Behind her, the demons burned.
+Behind her, the ones in the cages burned.
 
 Whatever she was now kept moving.
 

@@ -27,7 +27,7 @@ She doesn’t stop breathing, but she forgets how to breathe normally.
 
 “Stop,” she says, and it comes out thin, like the room swallowed part of it.
 
-The demons don’t react. Someone shifts against the wall. Someone else scratches at the crate with one clawed finger, absentminded. This isn’t a moment to them. It’s just the way things settle.
+They don’t react. Someone shifts against the wall. Someone else scratches at the crate with one clawed finger, absentminded. This isn’t a moment to them. It’s just the way things settle.
 
 Rachel plants herself again, harder this time, arms loose at her sides, refusing to brace, refusing to compensate, refusing to help the correction along, and the ache crawls back in slow and mean, climbing her leg, tugging at her lower back, burning at the base of her neck, and she holds it, teeth clenched, eyes watering, because this is what resistance feels like and she remembers it—
 

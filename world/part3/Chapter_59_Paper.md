@@ -14,7 +14,7 @@ It sounds steadier than before. That scares Rachel more than if she were shaking
 
 “I can stand,” Lena adds. “I just need— I need a second.”
 
-The demons don’t look at her.
+They don’t look at her.
 
 Someone against the wall shifts, elbows bending wrong. The one on the crate adjusts its seat like it’s settling in for a longer wait. None of them are in a hurry. None of them look concerned.
 
@@ -33,11 +33,11 @@ Rachel’s jaw tightens.
 
 Rachel squeezes her sleeve without meaning to.
 
-A demon glances over, bored. “She’s staying longer than she should,” it says. “That’ll do it.”
+One of them glances over, bored. “She’s staying longer than she should,” it says. “That’ll do it.”
 
 Lena turns her head too fast and winces. “Do what.”
 
-The demon doesn’t answer her. It looks at Rachel instead. “That.”
+It doesn’t answer her. It looks at Rachel instead. “That.”
 
 Silence drops again. Thicker this time.
 
@@ -60,7 +60,7 @@ She lifts her free hand, then stops halfway, staring at it like it’s misplaced
 
 “This feels like my thoughts are being rearranged,” she says. “Like something moved them and didn’t put them back in the same order.”
 
-The demon on the crate hums, agreeable.
+The one on the crate hums, agreeable.
 
 Rachel’s chest tightens.
 
@@ -73,7 +73,7 @@ When she opens them, Lena is watching her too closely.
 
 “You know something,” Lena says. “You’ve known something. Don’t do the face. I can’t do guessing right now.”
 
-Rachel looks at the room instead. At the demons leaning, sitting, waiting like this is a lobby and they’ve been here before.
+Rachel looks at the room instead. At the figures leaning, sitting, waiting like this is a lobby and they’ve been here before.
 
 “I’ve seen this,” Rachel says. Her voice doesn’t sound like hers. “Not you. Just… this shape of wrong.”
 
@@ -102,17 +102,17 @@ Rachel flinches like she’s been slapped.
 Holding works until it doesn’t, the voice says quietly.  
 You know what comes after.
 
-One of the demons steps closer—not to Lena. To Rachel. “You’re late,” it says mildly. “But not wrong.”
+One of them steps closer—not to Lena. To Rachel. “You’re late,” it says mildly. “But not wrong.”
 
 Rachel looks at it, then at Lena.
 
 “What happens,” Rachel asks, and the question feels like it’s tearing its way out of her chest, “when someone keeps borrowing alignment and it doesn’t… stop.”
 
-The demon answers immediately. “It gets worse.”
+It answers immediately. “It gets worse.”
 
 “That’s it?” Lena says. “That’s the whole prognosis?”
 
-Another demon shrugs. “Unless it’s stabilized.”
+Another one shrugs. “Unless it’s stabilized.”
 
 Lena turns slowly to Rachel. “Stabilized how.”
 
@@ -135,15 +135,15 @@ Lena exhales, shaky. “Options for who.”
 
 Rachel doesn’t say her name.
 
-A demon finally looks at Lena—not really at her, more like checking an item that isn’t theirs. “It would stop hurting,” it says neutrally.
+One of them finally looks at Lena—not really at her, more like checking an item that isn’t theirs. “It would stop hurting,” it says neutrally.
 
 Lena laughs again, bitter. “That’s not comforting.”
 
-“It’s accurate,” the demon replies.
+“It’s accurate,” it replies.
 
 Rachel’s chest feels too tight. “What does it cost,” she asks.
 
-The demon tilts its head. “You already know.”
+It tilts its head. “You already know.”
 
 Lena’s grip loosens, not because she means to let go.
 
@@ -153,7 +153,7 @@ Because she’s tired.
 
 Rachel nods immediately. “I know.”
 
-The room hums. The light seams glow. The demons go back to waiting.
+The room hums. The light seams glow. They go back to waiting.
 
 Nothing is offered. Nothing is taken back.
 

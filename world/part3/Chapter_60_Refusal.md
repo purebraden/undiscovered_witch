@@ -4,7 +4,7 @@ Lena doesn’t let go.
 
 Not because she’s afraid Rachel will move. Because letting go would mean deciding something, and she isn’t ready to do that yet.
 
-The room stays the same. The light seams don’t brighten. The demons don’t shift into anything like attention. They keep their places—leaning, sitting, waiting—like this conversation is happening in a public space and no one thinks it’s rude.
+The room stays the same. The light seams don’t brighten. They don’t shift into anything like attention. They keep their places—leaning, sitting, waiting—like this conversation is happening in a public space and no one thinks it’s rude.
 
 Rachel feels the wrongness in her arms, the quiet burn of holding too much for too long. She adjusts her stance without stepping, careful not to change where the room allows her to exist.
 
@@ -18,7 +18,7 @@ Rachel opens her mouth.
 
 Closes it.
 
-One of the demons glances over, uninterested. “It varies.”
+One of them glances over, uninterested. “It varies.”
 
 Lena laughs, short and sharp. “Of course it does.”
 
@@ -26,7 +26,7 @@ Lena laughs, short and sharp. “Of course it does.”
 
 Lena turns her head slowly, like too-fast movement would make something slip. “You don’t get to tell me what it’s not.”
 
-The demon shrugs. “Then don’t sign.”
+It shrugs. “Then don’t sign.”
 
 The words land with a dull thud. No drama. No threat.
 
@@ -39,7 +39,7 @@ Rachel squeezes her eyes shut for half a second. When she opens them Lena is wat
 
 “What does it actually do,” Rachel asks, and hates that the question comes out calm.
 
-One of the demons answers without hesitation. “It would stop the bleed.”
+One of them answers without hesitation. “It would stop the bleed.”
 
 “Bleed,” Lena repeats. “You all love that word.”
 
@@ -47,11 +47,11 @@ One of the demons answers without hesitation. “It would stop the bleed.”
 
 Lena exhales slowly. “At what price.”
 
-The demon tilts its head. “You already know there’s a price.”
+It tilts its head. “You already know there’s a price.”
 
 “That’s not an answer.”
 
-“It’s the only one that matters,” the demon replies.
+“It’s the only one that matters,” it replies.
 
 Rachel feels the ache in her arms deepen, the quiet pull of the room asking her to stand just a little differently. She doesn’t.
 
@@ -62,7 +62,7 @@ Rachel ignores it.
 
 Lena shifts, a small movement that costs her too much. Her fingers tighten again in Rachel’s sleeve. “Is this the part where you tell me I should do it for her,” she asks the room. “Because if that’s the pitch, it’s not landing.”
 
-“No pitch,” says the demon on the crate. “We don’t need one.”
+“No pitch,” says the one on the crate. “We don’t need one.”
 
 Rachel looks at Lena. “You don’t have to decide anything now.”
 
@@ -84,13 +84,13 @@ Lena straightens as much as she can. It costs her. She does it anyway.
 
 “I’m not signing anything,” she says. Not loud. Not dramatic. Just… placed. “Not here. Not like this. Not because the room wants me to stop hurting.”
 
-The demons don’t argue.
+They don’t argue.
 
 One of them nods, like this outcome was on a list somewhere. “Then you’ll continue to degrade.”
 
 Rachel’s stomach drops. “Stop.”
 
-The demon looks at her, mildly surprised. “You asked.”
+It looks at her, mildly surprised. “You asked.”
 
 Lena lets out a breath that shakes. “I don’t care,” she says, and the words wobble but don’t break. “I don’t care if there’s paper. I don’t care if it’s easier. I’m not letting something else decide what I get to be just because it’s inconvenient.”
 
@@ -109,7 +109,7 @@ Rachel nods. Once. “Okay.”
 
 The room doesn’t change.
 
-The demons don’t move.
+They don’t move.
 
 The option remains exactly where it was—present, patient, unoffended by refusal.
 

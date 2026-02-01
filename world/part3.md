@@ -2436,7 +2436,7 @@ The figure nods, pleased. “See? She learns.”
 
 Still nothing.
 
-Another demon passes close, brushing Rachel’s shoulder without touching, its attention lingering just long enough to register approval before moving on.
+Another figure passes close, brushing Rachel’s shoulder without touching, skin taking the light wrong—blue and oil-slick. Its attention lingers just long enough to register approval before moving on.
 
 “You won’t stay,” the broader one says, tone turning serious. “You’re not meant to.”
 
@@ -2460,7 +2460,7 @@ As they pass, the figure adds quietly, almost fond, “You’re doing better tha
 
 Rachel doesn’t ask what that means.
 
-They move toward the opening together, Rachel walking easily, Lena dragged by closeness and trust and nothing else, the demons parting around them like a crowd that knows exactly who belongs in the flow.
+They move toward the opening together, Rachel walking easily, Lena dragged by closeness and trust and nothing else, the figures parting around them like a crowd that knows exactly who belongs in the flow.
 
 Behind them, someone laughs softly.
 
@@ -2499,7 +2499,7 @@ Rachel hadn’t noticed how hard she was gripping Lena’s sleeve until her fing
 
 They aren’t alone. That’s obvious immediately, not because anyone moves toward them but because the room already feels occupied.
 
-Figures scattered like people killing time. One against the wall, arms crossed, posture casual until it shifts and the elbows bend wrong. Another on a crate, knees too wide, legs too long, boots flat despite joints that shouldn’t allow it. Someone near the light seams whose face won’t stay finished, eyes catching brightness and throwing it back too sharp.
+Figures scattered like people killing time. One against the wall, arms crossed, posture casual until it shifts and the elbows bend wrong. Another on a crate, knees too wide, legs too long, boots flat despite joints that shouldn’t allow it. Skin slid over bone without creasing. Someone near the light seams whose face won’t stay finished, eyes catching brightness and throwing it back too sharp.
 
 Human.  
 Almost.
@@ -2514,7 +2514,7 @@ Lena flinches hard enough that Rachel feels it through the grip.
 
 “Oh my god,” Lena breathes.
 
-“You’re late,” the demon says, like it’s commenting on weather.
+“You’re late,” one of them says, like it’s commenting on weather. Its mouth opens too far.
 
 “I didn’t mean to come here,” Rachel says, because it feels like the right thing to say.
 
@@ -2526,7 +2526,7 @@ Lena’s fingers twist in Rachel’s sleeve. “They’re— they’re talking.�
 
 “I know,” Rachel says.
 
-Another demon tilts its head, studying Rachel openly. Its ears sit a little too high, subtle enough that Rachel only sees it because she’s not moving.
+Another one tilts its head, studying Rachel openly. Its ears sit too high, doubled like a mistake, subtle enough that Rachel only sees it because she’s not moving.
 
 “You look steadier,” it says. “Less static.”
 
@@ -2534,7 +2534,7 @@ Another demon tilts its head, studying Rachel openly. Its ears sit a little too 
 
 No one looks at her.
 
-“She brought company,” the demon on the crate says, eyes never leaving Rachel.
+“She brought company,” the one on the crate says, eyes never leaving Rachel.
 
 “She’s with me.”
 
@@ -2549,7 +2549,7 @@ Rachel tightens her grip. “She’s not okay.”
 
 “Then why can I see you,” Lena says, sharp, angry, scared.
 
-A laugh from near the light seams. Teeth too even. “Because you’re close enough to matter.”
+A laugh from near the light seams. Teeth too even, too many. “Because you’re close enough to matter.”
 
 She only hears them because she’s close to you, it said.  
 That won’t last.
@@ -2566,7 +2566,7 @@ Lena goes still.
 
 “That’s not true,” Rachel says, immediately.
 
-The demon smiles. “You say that every time.”
+It smiles. “You say that every time.”
 
 Lena makes a sound she doesn’t finish and bends slightly, hand braced on her thigh.
 
@@ -2600,7 +2600,7 @@ It hurts her when you do.
 
 Rachel doesn’t move.
 
-“If you step over,” the demon continues, patient, “the pressure will ease. For you.”
+“If you step over,” it continues, patient, “the pressure will ease. For you.”
 
 “And for her,” Rachel says.
 
@@ -2642,7 +2642,7 @@ The pressure eases. Lena collapses into her, shaking.
 
 Rachel wraps both arms around her and holds on like if she lets go the room will take something it’s already measuring.
 
-The demons watch.
+They watch.
 
 “You always test it first,” one of them says, almost fond.
 
@@ -2676,7 +2676,7 @@ It sounds steadier than before. That scares Rachel more than if she were shaking
 
 “I can stand,” Lena adds. “I just need— I need a second.”
 
-The demons don’t look at her.
+They don’t look at her.
 
 Someone against the wall shifts, elbows bending wrong. The one on the crate adjusts its seat like it’s settling in for a longer wait. None of them are in a hurry. None of them look concerned.
 
@@ -2695,11 +2695,11 @@ Rachel’s jaw tightens.
 
 Rachel squeezes her sleeve without meaning to.
 
-A demon glances over, bored. “She’s staying longer than she should,” it says. “That’ll do it.”
+One of them glances over, bored. “She’s staying longer than she should,” it says. “That’ll do it.”
 
 Lena turns her head too fast and winces. “Do what.”
 
-The demon doesn’t answer her. It looks at Rachel instead. “That.”
+It doesn’t answer her. It looks at Rachel instead. “That.”
 
 Silence drops again. Thicker this time.
 
@@ -2722,7 +2722,7 @@ She lifts her free hand, then stops halfway, staring at it like it’s misplaced
 
 “This feels like my thoughts are being rearranged,” she says. “Like something moved them and didn’t put them back in the same order.”
 
-The demon on the crate hums, agreeable.
+The one on the crate hums, agreeable.
 
 Rachel’s chest tightens.
 
@@ -2735,7 +2735,7 @@ When she opens them, Lena is watching her too closely.
 
 “You know something,” Lena says. “You’ve known something. Don’t do the face. I can’t do guessing right now.”
 
-Rachel looks at the room instead. At the demons leaning, sitting, waiting like this is a lobby and they’ve been here before.
+Rachel looks at the room instead. At the figures leaning, sitting, waiting like this is a lobby and they’ve been here before.
 
 “I’ve seen this,” Rachel says. Her voice doesn’t sound like hers. “Not you. Just… this shape of wrong.”
 
@@ -2764,17 +2764,17 @@ Rachel flinches like she’s been slapped.
 Holding works until it doesn’t, the voice says quietly.  
 You know what comes after.
 
-One of the demons steps closer—not to Lena. To Rachel. “You’re late,” it says mildly. “But not wrong.”
+One of them steps closer—not to Lena. To Rachel. “You’re late,” it says mildly. “But not wrong.”
 
 Rachel looks at it, then at Lena.
 
 “What happens,” Rachel asks, and the question feels like it’s tearing its way out of her chest, “when someone keeps borrowing alignment and it doesn’t… stop.”
 
-The demon answers immediately. “It gets worse.”
+It answers immediately. “It gets worse.”
 
 “That’s it?” Lena says. “That’s the whole prognosis?”
 
-Another demon shrugs. “Unless it’s stabilized.”
+Another one shrugs. “Unless it’s stabilized.”
 
 Lena turns slowly to Rachel. “Stabilized how.”
 
@@ -2797,15 +2797,15 @@ Lena exhales, shaky. “Options for who.”
 
 Rachel doesn’t say her name.
 
-A demon finally looks at Lena—not really at her, more like checking an item that isn’t theirs. “It would stop hurting,” it says neutrally.
+One of them finally looks at Lena—not really at her, more like checking an item that isn’t theirs. “It would stop hurting,” it says neutrally.
 
 Lena laughs again, bitter. “That’s not comforting.”
 
-“It’s accurate,” the demon replies.
+“It’s accurate,” it replies.
 
 Rachel’s chest feels too tight. “What does it cost,” she asks.
 
-The demon tilts its head. “You already know.”
+It tilts its head. “You already know.”
 
 Lena’s grip loosens, not because she means to let go.
 
@@ -2815,7 +2815,7 @@ Because she’s tired.
 
 Rachel nods immediately. “I know.”
 
-The room hums. The light seams glow. The demons go back to waiting.
+The room hums. The light seams glow. They go back to waiting.
 
 Nothing is offered. Nothing is taken back.
 
@@ -2829,7 +2829,7 @@ Lena doesn’t let go.
 
 Not because she’s afraid Rachel will move. Because letting go would mean deciding something, and she isn’t ready to do that yet.
 
-The room stays the same. The light seams don’t brighten. The demons don’t shift into anything like attention. They keep their places—leaning, sitting, waiting—like this conversation is happening in a public space and no one thinks it’s rude.
+The room stays the same. The light seams don’t brighten. They don’t shift into anything like attention. They keep their places—leaning, sitting, waiting—like this conversation is happening in a public space and no one thinks it’s rude.
 
 Rachel feels the wrongness in her arms, the quiet burn of holding too much for too long. She adjusts her stance without stepping, careful not to change where the room allows her to exist.
 
@@ -2843,7 +2843,7 @@ Rachel opens her mouth.
 
 Closes it.
 
-One of the demons glances over, uninterested. “It varies.”
+One of them glances over, uninterested. “It varies.”
 
 Lena laughs, short and sharp. “Of course it does.”
 
@@ -2851,7 +2851,7 @@ Lena laughs, short and sharp. “Of course it does.”
 
 Lena turns her head slowly, like too-fast movement would make something slip. “You don’t get to tell me what it’s not.”
 
-The demon shrugs. “Then don’t sign.”
+It shrugs. “Then don’t sign.”
 
 The words land with a dull thud. No drama. No threat.
 
@@ -2864,7 +2864,7 @@ Rachel squeezes her eyes shut for half a second. When she opens them Lena is wat
 
 “What does it actually do,” Rachel asks, and hates that the question comes out calm.
 
-One of the demons answers without hesitation. “It would stop the bleed.”
+One of them answers without hesitation. “It would stop the bleed.”
 
 “Bleed,” Lena repeats. “You all love that word.”
 
@@ -2872,11 +2872,11 @@ One of the demons answers without hesitation. “It would stop the bleed.”
 
 Lena exhales slowly. “At what price.”
 
-The demon tilts its head. “You already know there’s a price.”
+It tilts its head. “You already know there’s a price.”
 
 “That’s not an answer.”
 
-“It’s the only one that matters,” the demon replies.
+“It’s the only one that matters,” it replies.
 
 Rachel feels the ache in her arms deepen, the quiet pull of the room asking her to stand just a little differently. She doesn’t.
 
@@ -2887,7 +2887,7 @@ Rachel ignores it.
 
 Lena shifts, a small movement that costs her too much. Her fingers tighten again in Rachel’s sleeve. “Is this the part where you tell me I should do it for her,” she asks the room. “Because if that’s the pitch, it’s not landing.”
 
-“No pitch,” says the demon on the crate. “We don’t need one.”
+“No pitch,” says the one on the crate. “We don’t need one.”
 
 Rachel looks at Lena. “You don’t have to decide anything now.”
 
@@ -2909,13 +2909,13 @@ Lena straightens as much as she can. It costs her. She does it anyway.
 
 “I’m not signing anything,” she says. Not loud. Not dramatic. Just… placed. “Not here. Not like this. Not because the room wants me to stop hurting.”
 
-The demons don’t argue.
+They don’t argue.
 
 One of them nods, like this outcome was on a list somewhere. “Then you’ll continue to degrade.”
 
 Rachel’s stomach drops. “Stop.”
 
-The demon looks at her, mildly surprised. “You asked.”
+It looks at her, mildly surprised. “You asked.”
 
 Lena lets out a breath that shakes. “I don’t care,” she says, and the words wobble but don’t break. “I don’t care if there’s paper. I don’t care if it’s easier. I’m not letting something else decide what I get to be just because it’s inconvenient.”
 
@@ -2934,7 +2934,7 @@ Rachel nods. Once. “Okay.”
 
 The room doesn’t change.
 
-The demons don’t move.
+They don’t move.
 
 The option remains exactly where it was—present, patient, unoffended by refusal.
 
@@ -3007,13 +3007,13 @@ To the space itself.
 
 Something in Rachel’s chest collapses inward.
 
-One of the demons exhales softly, the sound of someone watching a glass finally tip after sitting too close to the edge. “That escalated.”
+One of them exhales softly, the sound of someone watching a glass finally tip after sitting too close to the edge. “That escalated.”
 
 “She refused,” another says mildly. “The room adjusted.”
 
 Rachel whirls on them, vision swimming. “Fix it.”
 
-A demon tilts its head, considering, not unkindly. “We can stabilize it.”
+One of them tilts its head, considering, not unkindly. “We can stabilize it.”
 
 Lena’s head jerks. “No.”
 
@@ -3062,7 +3062,7 @@ It’s barely sound. It’s enough.
 
 The room hums, satisfied.
 
-The demons turn away, already done.
+They turn away, already done.
 
 And Rachel makes the choice she swore she wouldn’t make for someone else, because there is no version of this where waiting makes it better.
 
@@ -3095,7 +3095,7 @@ She doesn’t stop breathing, but she forgets how to breathe normally.
 
 “Stop,” she says, and it comes out thin, like the room swallowed part of it.
 
-The demons don’t react. Someone shifts against the wall. Someone else scratches at the crate with one clawed finger, absentminded. This isn’t a moment to them. It’s just the way things settle.
+They don’t react. Someone shifts against the wall. Someone else scratches at the crate with one clawed finger, absentminded. This isn’t a moment to them. It’s just the way things settle.
 
 Rachel plants herself again, harder this time, arms loose at her sides, refusing to brace, refusing to compensate, refusing to help the correction along, and the ache crawls back in slow and mean, climbing her leg, tugging at her lower back, burning at the base of her neck, and she holds it, teeth clenched, eyes watering, because this is what resistance feels like and she remembers it—
 
@@ -3153,13 +3153,13 @@ Whatever shape she’s in now, it isn’t one she remembers choosing.
 
 The paper doesn’t arrive.
 
-It’s already there, tucked under the crate like it slid there on its own and never bothered to announce itself. Rachel only notices it when the demon’s hand goes for it, fingers hooking the edge, pulling it free with the carefulness of someone handling something that’s been used too many times to argue back.
+It’s already there, tucked under the crate like it slid there on its own and never bothered to announce itself. Rachel only notices it when one of them reaches for it, fingers hooking the edge, pulling it free with the carefulness of someone handling something that’s been used too many times to argue back.
 
 “Wait,” Rachel says.
 
 The word jumps out of her, sharp, unfinished.
 
-The demon pauses anyway. Not startled. Not defensive. Just… considerate.
+It pauses anyway. Not startled. Not defensive. Just… considerate.
 
 “This won’t take long,” it says, quieter than before. “And it hurts less if we don’t rush it.”
 
@@ -3169,7 +3169,7 @@ Lena is standing straight. Not rigid. Focused in a way that feels borrowed, like
 
 “You said it would stop the slipping,” Lena says.
 
-“It will,” the demon replies. “Here.”
+“It will,” it replies. “Here.”
 
 It sets the paper down on the crate between them. No flourish. No sound worth noting.
 
@@ -3187,7 +3187,7 @@ Rachel opens her mouth.
 
 Nothing comes.
 
-The demon exhales, a small sound of apology already baked into it. “She should read it.”
+It exhales, a small sound of apology already baked into it. “She should read it.”
 
 Lena nods and reaches out. Her fingers brush the paper once, recoil, then grip it properly, like she’s bracing for a texture she doesn’t expect.
 
@@ -3199,7 +3199,7 @@ Lena reads silently at first. Her lips move on a few words she doesn’t like. S
 
 “This says I’ll be… registered,” Lena says finally.
 
-The demon nods. “Anchored.”
+It nods. “Anchored.”
 
 “Here,” Lena adds.
 
@@ -3207,13 +3207,13 @@ The demon nods. “Anchored.”
 
 Lena lifts her head. “Not owned.”
 
-The demon shakes its head immediately, almost too fast. “No. Not owned.”
+It shakes its head immediately, almost too fast. “No. Not owned.”
 
 Rachel’s chest tightens. She knows the difference matters, even if she doesn’t know why yet.
 
 “And I won’t—” Lena hesitates, frowns. “I won’t come apart like that again.”
 
-“No,” the demon says. “The space will finish holding you.”
+“No,” it says. “The space will finish holding you.”
 
 Rachel flinches. She can’t help it.
 
@@ -3221,7 +3221,7 @@ Lena notices.
 
 “What doesn’t it say,” Lena asks.
 
-The demon is quiet for a beat. Long enough that when it speaks, the apology is already there.
+It is quiet for a beat. Long enough that when it speaks, the apology is already there.
 
 “It doesn’t say how hard it will be to leave.”
 
@@ -3241,7 +3241,7 @@ Rachel shakes her head, desperate. “There has to be another way.”
 
 Lena gives a tired, almost-smile. “Maybe. But not one I can stand through.”
 
-The demon shifts, uncomfortable. “If you’re going to proceed,” it says gently, “it’s better not to wait too long.”
+It shifts, uncomfortable. “If you’re going to proceed,” it says gently, “it’s better not to wait too long.”
 
 Rachel’s hands curl into fists.
 
@@ -3259,7 +3259,7 @@ When she finishes, the paper warms.
 
 Not hot. Just… alive enough to notice.
 
-The demon folds it once. Twice. Smooths the crease with its thumb.
+It folds it once. Twice. Smooths the crease with its thumb.
 
 “I’m sorry,” it says quietly, and means it.
 
@@ -3281,7 +3281,7 @@ She looks steadier. Clearer. Held.
 
 Rachel lowers her hand.
 
-The demon slides the folded paper back under the crate, already finished with it.
+It slides the folded paper back under the crate, already finished with it.
 
 Behind Rachel’s ear, quiet as breath, the voice says, She’s placed now.
 
