@@ -1,4 +1,4 @@
-# Chapter 50 — The Way She Points
+# Chapter 49 — The Way She Points
 
 Rachel takes a step before she means to.
 
@@ -11,6 +11,7 @@ The ground slopes just enough to make it feel like momentum instead of choice, a
 They stop near the edge of the road where the pavement breaks and turns to churned mud. The lights behind them are louder now, closer, but still wrong—voices overlapping without shape, urgency without direction.
 
 Lena looks back once, then forward. “We should get off the road.”
+“Find cover,” Rachel says. “A roof. Anything that isn’t open.”
 
 Rachel follows her gaze.
 
@@ -20,7 +21,7 @@ Lena points left. “That way. It’ll hide us.”
 
 The pressure inside Rachel tightens, sharp enough to make her breath catch.
 
-**She doesn’t know that.**
+She doesn’t know that, the voice said.
 
 Rachel swallows. “How do you know.”
 
@@ -34,7 +35,7 @@ The rain ticks against the leaves like something counting.
 
 Rachel stares into the trees. The dark there feels busy, layered, full of small sounds that don’t line up. The road, for all its exposure, at least stays straight for a few yards before it bends.
 
-**She points where things gather.**
+She points where things gather, it added.
 
 “That’s not—” Rachel stops herself. Her heart is beating too fast, every thud arriving a fraction late. “You don’t know what’s in there.”
 
@@ -48,7 +49,7 @@ The words come out before Rachel can stop them. Lena looks at her, confusion sha
 
 The pressure leans closer, almost pleased.
 
-**She wasn’t there when you fell.**
+She wasn’t there when you fell, it said.
 
 Rachel’s gaze snaps back to Lena. “You didn’t see it.”
 
@@ -64,12 +65,9 @@ Behind them, a light sweeps briefly across the road and then disappears again, t
 
 Lena points left again, firmer this time. “We go now, or we don’t go at all.”
 
-Rachel looks at her hand.
+Rachel looks at Lena’s hand, at the way her finger doesn’t shake, at the certainty of the gesture.
 
-At the way Lena’s finger doesn’t shake.  
-At how certain the gesture is.
-
-**She’s already chosen without you.**
+She’s already chosen without you, it noted.
 
 Something cold settles in Rachel’s stomach.
 
@@ -91,13 +89,11 @@ Rachel turns to the road. The curve ahead is dark, wet, empty. It doesn’t prom
 
 But it doesn’t close in either.
 
-**She won’t follow you there.**
+She won’t follow you there, it warned.
 
 Rachel’s pulse roars in her ears.
 
 “You don’t know that,” she whispers.
-
-The pressure doesn’t argue.
 
 Lena looks from Rachel to the road, then back to the trees. “Rachel. Please.”
 
@@ -111,10 +107,6 @@ She takes another.
 
 Rachel doesn’t answer. She limps forward, each step deliberate, wrong in a way that feels intentional. The road curves and takes her with it, pulling her line of sight away from the lights, from the trees, from the place Lena is standing.
 
-She hears Lena hesitate behind her.
-
-Then footsteps.
-
-Following.
+She hears Lena hesitate behind her, then footsteps following.
 
 Rachel doesn’t turn around.

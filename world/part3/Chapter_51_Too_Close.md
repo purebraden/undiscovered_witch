@@ -1,4 +1,4 @@
-# Chapter 52 — Too Close
+# Chapter 51 — Too Close
 
 They hear him before they see him.
 
@@ -45,7 +45,7 @@ Rachel gasps.
 
 The ringing slams into her skull a half-second later, high and sudden, a thin screaming tone that slices straight through her thoughts and makes the world tilt without moving. She squeezes her eyes shut, teeth clenched, the sound crowding everything else out.
 
-**There it is.**
+There it is, the voice said.
 
 The voice is right there now.
 
@@ -54,8 +54,8 @@ Not restrained.
 
 Bright with it.
 
-**You felt that.  
-You didn’t wait.**
+You felt that, it said.  
+You didn’t wait.
 
 Rachel staggers, one hand flying up to her head, the ringing spiking as she moves. “Shut up,” she breathes, though she isn’t sure if the words leave her mouth or just bounce around inside her skull.
 
@@ -67,7 +67,7 @@ Behind them, the man pushes himself up, blinking hard like he’s trying to get 
 
 The ringing surges again, pulsing in time with Rachel’s heartbeat.
 
-**Again, if you want.**
+Again, if you want, it offered.
 
 Her stomach drops.
 
@@ -83,8 +83,8 @@ They turn and move, Lena half-dragging her this time, feet slipping on wet groun
 
 The ringing doesn’t fade. It modulates, sharpens when she hesitates, softens when she commits to forward motion, like something tuning itself to her.
 
-**You made space.  
-That’s all this ever was.**
+You made space, it said.  
+That’s all this ever was.
 
 Rachel stumbles and Lena catches her, reality steadying around the contact even as her head screams. She hates how that works now. Hates how quickly the world behaves when she lets someone else anchor her.
 
@@ -96,7 +96,7 @@ Rachel presses her fingers hard against her temples and keeps moving.
 
 The voice stays with her, close and pleased and no longer pretending to be patient.
 
-**You’re allowed to do that now.**
+You’re allowed to do that now, it said.
 
 She doesn’t answer.
 

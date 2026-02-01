@@ -1,4 +1,4 @@
-# Chapter 53 — Still Ringing
+# Chapter 52 — Still Ringing
 
 They don’t stop all at once.
 
@@ -8,24 +8,23 @@ Lena slows first, breath rasping, hands braced on her knees like she’s holding
 
 Rachel stays upright because sitting feels like letting something arrive. The ringing is thinner now but constant, a high wire pulled tight behind her eyes, vibrating whenever she shifts her weight.
 
-The world holds.  
-Uneven. Loud. Real enough to trust.
+The world holds, uneven and loud, real enough to trust.
 
 She presses her palms hard against her temples, as if pressure might cancel pressure.
 
-**You’re listening now**, the voice says, right where the sound is worst.
+You’re listening now, the voice says, right where the sound is worst.
 
 Rachel drops her hands. “I didn’t ask you to stay.”
 
 A flicker of amusement ripples through the ringing.
 
-**You didn’t ask me to leave.**
+You didn’t ask me to leave, it said.
 
 “That’s not—” She swallows, breath catching. “That’s not how this works.”
 
 A pause. Curious. Interested.
 
-**Isn’t it.**
+Isn’t it, it said.
 
 Lena straightens slowly, eyes fixed on Rachel’s face now instead of the ground. “Who are you talking to.”
 
@@ -39,7 +38,7 @@ Rachel’s stomach tightens. “I didn’t touch him.”
 
 The ringing sharpens, pleased.
 
-**She noticed.**
+She noticed, it said.
 
 Rachel turns her head away, staring into the dark between the trees where the light doesn’t reach properly. “We need to keep moving.”
 
@@ -47,13 +46,13 @@ They do, slower now, careful, feet sliding on wet leaves and roots. Every few st
 
 “I don’t want to do that again,” she mutters, not sure if she’s talking to Lena or the sound in her head.
 
-**You will**, the voice says immediately, too certain.
+You will, the voice says immediately, too certain.
 
 Her skin crawls. “You don’t know that.”
 
 The ringing tightens, bright and eager, threading into the back of her thoughts.
 
-**You already crossed it.**
+You already crossed it, it said.
 
 Rachel stops without meaning to. Her breath catches halfway in and stays there, chest burning as she stares too hard at the space ahead of her, like she can force it to make sense if she just looks long enough.
 
@@ -83,7 +82,7 @@ Rachel laughs once, brittle. “I did. Inside.”
 
 The ringing presses closer, intimate.
 
-**She’s asking the wrong question.**
+She’s asking the wrong question, it said.
 
 Rachel winces. “Stop.”
 
@@ -101,7 +100,7 @@ Lena studies her, fear and trust tangling openly. “You’re asking me to do no
 
 The ringing hums, pleased again.
 
-**She understands more than you think.**
+She understands more than you think, it said.
 
 Rachel starts forward, slower now, deliberate. The trail resists, then gives, the world not quite helping, not quite fighting her either.
 

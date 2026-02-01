@@ -1,8 +1,8 @@
-# Chapter 59 — Still Active
+# Chapter 56 — Still Active
 
 The voice doesn’t wait for the ground to decide.
 
-**Here**, it says, and this time it isn’t directional in the way it’s been before. Not left or down or faster. Just a point in space that suddenly feels finished, like the end of a sentence Rachel didn’t realize she was in the middle of.
+Here, it says, and this time it isn’t directional in the way it’s been before. Not left or down or faster. Just a point in space that suddenly feels finished, like the end of a sentence Rachel didn’t realize she was in the middle of.
 
 She slows without stopping, eyes lifting to what looks like nothing at first. A low concrete structure half-swallowed by brush, rain-darkened and unlit, the kind of place you pass without noticing because it doesn’t advertise itself as anything worth entering. A service access, maybe. A maintenance building. The sort of thing that used to matter and doesn’t anymore.
 
@@ -10,7 +10,7 @@ Lena squints at it. “What is that.”
 
 Rachel doesn’t answer right away. The pressure in her chest eases as she steps closer, not relief exactly, more like alignment, the feeling of a joint sliding back into place without pain.
 
-**Cross**, the voice says.
+Cross, the voice says.
 
 “There’s no door,” Lena says. “And if there was, it’d be locked.”
 
@@ -150,8 +150,8 @@ Rachel feels nothing.
 
 The voice speaks, precise.
 
-**You can bring her through.  
-It just won’t adjust for her.**
+You can bring her through, it says.  
+It just won’t adjust for her.
 
 Lena looks at Rachel. “What.”
 

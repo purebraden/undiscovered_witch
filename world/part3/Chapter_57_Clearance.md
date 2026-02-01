@@ -1,4 +1,4 @@
-# Chapter 60 — Clearance
+# Chapter 57 — Clearance
 
 The corridor opens without asking.
 
@@ -26,7 +26,7 @@ Rachel stops.
 
 Lena stops with her. “Who are you talking to?”
 
-Rachel doesn’t answer yet.
+Rachel doesn’t answer yet. The voice in her head stays quiet.
 
 The figure smiles, not kindly, not cruelly. Just… familiarly. “I wondered when you’d show back up.”
 
@@ -78,7 +78,7 @@ The figure nods, pleased. “See? She learns.”
 
 Still nothing.
 
-Another demon passes close, brushing Rachel’s shoulder without touching, its attention lingering just long enough to register approval before moving on.
+Another figure passes close, brushing Rachel’s shoulder without touching, skin taking the light wrong—blue and oil-slick. Its attention lingers just long enough to register approval before moving on.
 
 “You won’t stay,” the broader one says, tone turning serious. “You’re not meant to.”
 
@@ -102,7 +102,7 @@ As they pass, the figure adds quietly, almost fond, “You’re doing better tha
 
 Rachel doesn’t ask what that means.
 
-They move toward the opening together, Rachel walking easily, Lena dragged by closeness and trust and nothing else, the demons parting around them like a crowd that knows exactly who belongs in the flow.
+They move toward the opening together, Rachel walking easily, Lena dragged by closeness and trust and nothing else, the figures parting around them like a crowd that knows exactly who belongs in the flow.
 
 Behind them, someone laughs softly.
 

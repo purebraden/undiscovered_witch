@@ -1,4 +1,4 @@
-# Chapter 64 — Reallocation
+# Chapter 61 — Reallocation
 
 Rachel feels it before she can name it, the way you feel a misstep coming half a second too late, not a warning exactly, just the sudden sense that something has finished deciding without her.
 
@@ -44,8 +44,8 @@ The room refuses.
 
 Not violently. Not even firmly. It just doesn’t finish letting her move.
 
-**There**, the voice says, warm now, unmistakably pleased, like it’s been waiting for this exact moment.  
-**That’s the part you kept fixing.**
+There, the voice says, warm now, unmistakably pleased, like it’s been waiting for this exact moment.  
+That’s the part you kept fixing.
 
 “Shut up,” Rachel snaps, the words coming out raw and breathless.
 
@@ -61,13 +61,13 @@ To the space itself.
 
 Something in Rachel’s chest collapses inward.
 
-One of the demons exhales softly, the sound of someone watching a glass finally tip after sitting too close to the edge. “That escalated.”
+One of them exhales softly, the sound of someone watching a glass finally tip after sitting too close to the edge. “That escalated.”
 
 “She refused,” another says mildly. “The room adjusted.”
 
 Rachel whirls on them, vision swimming. “Fix it.”
 
-A demon tilts its head, considering, not unkindly. “We can stabilize it.”
+One of them tilts its head, considering, not unkindly. “We can stabilize it.”
 
 Lena’s head jerks. “No.”
 
@@ -89,8 +89,8 @@ Close enough to hurt.
 
 Rachel’s eyes burn.
 
-**She’s slipping fast**, the voice says, bright with interest.  
-**You waited too long.**
+She’s slipping fast, the voice says, bright with interest.  
+You waited too long.
 
 Rachel doesn’t answer. She can’t spare the air.
 
@@ -116,6 +116,6 @@ It’s barely sound. It’s enough.
 
 The room hums, satisfied.
 
-The demons turn away, already done.
+They turn away, already done.
 
 And Rachel makes the choice she swore she wouldn’t make for someone else, because there is no version of this where waiting makes it better.

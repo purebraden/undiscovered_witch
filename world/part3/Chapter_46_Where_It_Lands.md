@@ -12,7 +12,7 @@ The difference landed heavy.
 
 Rachel lay there gasping, chest stuttering, vision swimming as the hum thickened until it felt like it was inside her skull instead of around it.
 
-**It took the hit and kept the mess.**
+It took the hit and kept the mess, the voice said.
 
 “That’s—” she tried, and the word dissolved into a cough that tore at her throat. Her ankle flared again as she shifted, pain stacking, heat blooming too fast.
 
@@ -26,7 +26,7 @@ Rachel laughed once, thin and hysterical. “I didn’t exactly get a vote.”
 
 The floor dipped under her hip, delayed and pointed, as if agreeing.
 
-**You went where it didn’t want you.**
+You went where it didn’t want you, it said.
 
 Her stomach dropped.
 
@@ -42,7 +42,7 @@ Rachel closed her eyes.
 
 The pressure inside her shifted, not denying it.
 
-**You didn’t leave it behind.**
+You didn’t leave it behind.
 
 Her breath came shallow and fast. “Then tell me how to get rid of it.”
 
@@ -64,7 +64,7 @@ The floor steadied under them.
 
 Rachel felt the difference like a slap.
 
-**It likes you farther away.**
+It likes you farther away, it observed.
 
 “Oh, fuck you,” she whispered, tears blurring her vision. She wasn’t sure if she meant the voice, the room, or herself.
 
@@ -78,7 +78,7 @@ The other person’s jaw clenched. “They’re almost through,” they said. �
 
 Rachel dragged a breath in through clenched teeth. Her ankle throbbed in time with the hum, each pulse arriving just after the sound.
 
-**It won’t take the hard thing first.**
+It won’t take the hard thing first, it warned.
 
 Her heart stuttered.
 
@@ -96,7 +96,7 @@ They hesitated. “You heard what I said earlier. Staying close makes it worse.�
 
 The floor shifted under her, a shallow dip that made her gasp.
 
-**It already has.**
+It already has.
 
 Boots hit the edge of the space, loud now, real, the sound snapping into place as if they’d finally found the right angle. A shadow moved across the wall, armor catching the dim light.
 

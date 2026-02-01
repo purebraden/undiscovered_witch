@@ -13,7 +13,7 @@ Denser.
 
 It pressed against Rachel’s ears until the air felt packed, resistant.
 
-**You’re carrying excess variance.**
+The pressure pressed a flat statement into her head: you’re carrying excess variance.
 
 Rachel swallowed. “That’s bad,” she muttered, not bothering to ask.
 
@@ -42,7 +42,7 @@ The wrong frame answered.
 
 Its internal distortion tightened, light folding inward and then slipping back, the air around it bending just enough to make Rachel’s eyes sting.
 
-**Weight is misallocated.**
+Weight is misallocated, it noted.
 
 Rachel pushed off the wall experimentally and immediately regretted it. The floor dipped under her good foot—not instantly, but delayed, as if it had waited to be sure—stealing her balance after she thought she’d found it. She grabbed for the rail and felt a faint pulse under her palm, warmth bleeding into her skin.
 
@@ -58,7 +58,7 @@ A low groan rolled through the floor—not sound so much as pressure—like some
 
 Rachel’s heart hammered.
 
-**You destabilize first.**
+You destabilize first, it said.
 
 “That’s not a choice,” Rachel muttered.
 
@@ -73,7 +73,7 @@ Close in a way that didn’t respect the geometry of the room.
 
 Rachel felt it immediately—the pressure inside her tightening, attention snapping toward the sound like it had been waiting for confirmation.
 
-**They’re mapping stress through you.**
+They’re mapping stress through you, it warned.
 
 The wrong frame pulsed brighter, cables sinking imperceptibly deeper into the floor, as if rooting.
 
@@ -87,7 +87,7 @@ The other person swore under their breath. “It’s pulling *you*,” they said
 
 Rachel laughed once, breathless. “You’re saying that like it’s new.”
 
-**You are the variable.**
+You are the variable.
 
 The lights drained again, edges of the room smearing as if someone had dragged a thumb across reality. The hum deepened until it vibrated in her teeth.
 
@@ -109,7 +109,7 @@ Rachel felt it like a rebuke.
 
 The wrong frame shuddered, its internal distortion collapsing inward for a heartbeat before surging back brighter, harsher.
 
-**They’re rerouting containment around you.**
+They’re rerouting containment around you, it said.
 
 Rachel pushed herself upright despite her ankle screaming, forcing weight through pain that arrived in overlapping waves. The floor rejected her this time—not opening, not breaking, but *pushing back*, like it resented the demand.
 
@@ -127,7 +127,7 @@ A voice called out, distorted, stretched. “We’ve got movement. Brace.”
 
 The wrong frame answered with a deep, resonant pulse that blurred Rachel’s vision.
 
-**Choose now.**
+Choose now, it said.
 
 Rachel didn’t know what that meant.
 

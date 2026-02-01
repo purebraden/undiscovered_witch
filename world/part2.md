@@ -1,4 +1,4 @@
-# Chapter 19
+# Chapter 17 — Light Before Sound
 
 The light reached her boots before the sound reached her ears.
 
@@ -7,10 +7,12 @@ A narrow band slid across the floor, pale and steady, cutting the dark into meas
 Rachel froze.
 
 Pressure gathered under her ribs. Not pain. Not yet. Just enough weight to warn her that stillness was the wrong answer.
+Her body recognized the weight before she did.
 
 She shifted her weight.
 
 The light brightened a fraction.
+She tried it again, smaller. The light answered again.
 
 Something hummed behind it. Low and even, the sound of a system running exactly as intended.
 
@@ -19,6 +21,7 @@ Rachel stepped back. The stone beneath her heel warmed, heat blooming too fast t
 The unit rolled into view.
 
 It stayed low to the ground, a wide ring moving without visible joints. The light came from inside it, sweeping outward in slow arcs that never crossed the walls, never rushed ahead.
+She knew its sweep pattern, the pause at her left boot. The knowledge arrived ahead of memory.
 
 It followed at a fixed distance.
 
@@ -30,7 +33,7 @@ Not closer.
 
 Close enough.
 
-The pressure shoved her right at the junction before she registered the turn. She scraped her shoulder on stone and bit back a sound as nausea hit hard enough to steal her breath. Black crept at the edges of her vision. She gagged and kept moving.
+The pressure shoved her right at the junction before she registered the turn. She tried to hold the shove, and for half a step it eased. Then it surged again. She scraped her shoulder on stone and bit back a sound as nausea hit hard enough to steal her breath. Black crept at the edges of her vision. She gagged and kept moving.
 
 Behind her, the hum deepened by a note.
 
@@ -68,7 +71,7 @@ The hum behind her changed pitch.
 
 She burst into a wider passage and skidded to a halt.
 
-A man stood near a stack of crates, hands lifting slowly as he saw her. A dull white line marked his vest, the same one she had seen painted on doors. His gaze flicked to her leg, to the faint pulse beneath her skin, and his throat worked.
+A man stood near a stack of crates, hands lifting slowly as he saw her. A dull white knot marked his vest, the same one she had seen painted on doors. Not a rank. A warning. He touched it once, a habit more prayer than signal. His gaze flicked to her leg, to the faint pulse beneath her skin, and his throat worked.
 
 “Don’t,” he said.
 
@@ -242,7 +245,7 @@ Rachel pushed herself up. Her leg protested, then held.
 
 They slipped deeper into the dark as the stone behind them began, quietly, to warm.
 
-# Chapter 20
+# Chapter 18 — A Mistake in the Wall
 
 The gap wasn’t a tunnel so much as a mistake the wall hadn’t corrected yet.
 
@@ -402,7 +405,7 @@ Not waiting.
 
 Not asking.
 
-# Chapter 21
+# Chapter 19 — Not a Place That Helps
 
 The next place didn’t look like a place that helped.
 
@@ -580,7 +583,7 @@ The pressure leaned forward.
 
 Already moving.
 
-# Chapter 22
+# Chapter 20 — Losing the Floor
 
 They didn’t slow down so much as lose the floor.
 
@@ -740,7 +743,7 @@ Rachel stared into the dark, listening to her own breathing, waiting for somethi
 
 Nothing did.
 
-# Chapter 23
+# Chapter 21 — Slowed Steps
 
 Rachel slowed her steps until the effort made her calves burn.
 
@@ -836,7 +839,7 @@ That scared her more than the fall.
 
 They slipped into the dark, stone warming behind them, the pressure already leaning forward, lining her up with whatever came next.
 
-# Chapter 24
+# Chapter 22 — Not Found
 
 They didn’t find the place.
 
@@ -867,6 +870,7 @@ Rachel followed and felt the pressure recoil, then tighten again a half-second l
 The seam closed behind them with a quiet drag of stone that made Rachel flinch anyway.
 
 The room was low-ceilinged and badly lit, bare bulbs hanging too close together, throwing overlapping shadows that never quite settled. Tables lined the walls. Crates stacked in corners. A kettle hissed softly on a hot plate, steam curling up and vanishing before it reached the ceiling. Someone had tried very hard to make it ordinary.
+A cord with three tight knots hung above the seam, wax-stiff, the kind people touched before crossing.
 
 Three people looked up.
 
@@ -874,7 +878,7 @@ A gray-haired man sat at a table with both hands around a mug he wasn’t drinki
 
 A young woman stood near the far wall with a toolbox at her feet, sleeves rolled up, eyes too bright, like she’d been awake longer than she should have been.
 
-An older woman stood closest to the seam, small and wiry, already turning her body so she wasn’t directly in line with the door. She didn’t block it. She listened to it, palm lifted toward the stone without touching.
+An older woman stood closest to the seam, small and wiry, already turning her body so she wasn’t directly in line with the door. She didn’t block it. She listened to it, palm lifted toward the stone without touching. Under the bare bulbs, her skin held a faint blue cast, not sick, just wrong.
 
 Her gaze moved from Lena to Rachel and stayed there.
 
@@ -1008,7 +1012,7 @@ Not leaving.
 
 Just waiting.
 
-# Chapter 25
+# Chapter 23 — Not a Procedure
 
 They didn’t call it a procedure.
 
@@ -1204,7 +1208,7 @@ Not moving her.
 
 Waiting.
 
-# Chapter 26
+# Chapter 24 — Miri First
 
 They moved Miri first.
 
@@ -1356,7 +1360,7 @@ The pressure stayed.
 
 Learning.
 
-# Chapter 27
+# Chapter 25 — Rachel Waited
 
 Rachel waited.
 
@@ -1514,7 +1518,7 @@ Rachel stayed seated.
 
 For the first time since the run ended, the stillness felt like something she had chosen.
 
-# Chapter 28
+# Chapter 26 — No Hurry
 
 They didn’t hurry.
 
@@ -1696,7 +1700,7 @@ It was filing her.
 
 And it wasn’t done yet.
 
-# Chapter 29
+# Chapter 27 — No Doors
 
 They didn’t use doors.
 
@@ -1838,7 +1842,7 @@ It didn’t come right away.
 
 But she could feel it gathering, patient, learning the room.
 
-# Chapter 30
+# Chapter 28 — Nothing Happened
 
 Nothing happened.
 
@@ -1970,7 +1974,7 @@ Lena’s head came up fast. “No,” she said, and the word came out like a ref
 
 The pressure pressed in and stayed.
 
-# Chapter 31
+# Chapter 29 — The Chair
 
 Lena noticed the chair first.
 
@@ -2108,7 +2112,7 @@ Not patient.
 
 Learning.
 
-# Chapter 32
+# Chapter 30 — Shift Change
 
 The shift change wasn’t announced.
 
@@ -2222,7 +2226,7 @@ Allowance.
 
 And somewhere close, the pressure leaned in, attentive to what she might do next.
 
-# Chapter 33
+# Chapter 31 — Room Lost Its Edge
 
 Enough time passed that the room lost its edge.
 
@@ -2326,7 +2330,7 @@ It just needed time where no one was watching closely enough.
 
 And it had been given that.
 
-# Chapter 34
+# Chapter 32 — They Came for the Room
 
 They came for the room.
 
@@ -2470,7 +2474,7 @@ They hadn’t solved anything.
 
 They’d just decided where the damage was allowed to remain.
 
-# Chapter 35
+# Chapter 33 — The Chair Stayed
 
 The chair stayed where it was, legs aligned with the seam that had been wrong earlier, the light overhead holding steady in that slightly too-even way that made it feel watched rather than lit.
 
@@ -2544,7 +2548,7 @@ It didn’t.
 
 Rachel stayed seated, the pressure easing back into place, not gone, not satisfied — settled, like something had been removed that the room no longer needed to account for.
 
-# Chapter 36
+# Chapter 34 — As It Was
 
 The room stayed as it was, stone and seam and the chair too carefully aligned, the light holding steady in that flattened way that made depth feel optional. Mara remained near the wall, shoulders still squared toward the door that hadn’t reopened, attention drifting and snapping back like she didn’t trust it to stay anywhere too long.
 
@@ -2618,7 +2622,7 @@ Nothing settled.
 
 The room kept negotiating.
 
-# Chapter 37
+# Chapter 35 — The Structure Held
 
 The structure stayed where it was, panels holding their positions around the chair close enough to matter and far enough to pretend they weren’t touching anything important, the hum settling into a steadier register that made the room feel narrower without announcing that anything had changed.
 
@@ -2668,7 +2672,7 @@ The hum held steady.
 
 The structure stayed.
 
-# Chapter 38
+# Chapter 36 — The Wall Plate
 
 The wall plate lit again, dimmer this time, the glow softened as if it had learned how bright it was allowed to be.
 
@@ -2744,7 +2748,7 @@ The structure had found a baseline.
 
 And the room, still out of step, kept trying to meet it.
 
-# Chapter 39
+# Chapter 37 — Before Anything Else
 
 The structure tightened before anything else did.
 
@@ -2868,7 +2872,7 @@ The structure had started anticipating.
 
 And somewhere beyond the walls, something else had begun to break in the same rhythm.
 
-# Chapter 40
+# Chapter 38 — Baseline Didn't Mean Much
 
 After “Prepare transfer,” baseline didn’t mean much.
 

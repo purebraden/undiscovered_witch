@@ -1,4 +1,4 @@
-# Chapter 51 — The Easy Way
+# Chapter 50 — The Easy Way
 
 Rachel’s foot comes down and the ground answers it cleanly, no slip, no hollow delay, and the wrongness of that makes her stumble anyway, breath hitching as her ankle flares hot and bright. She waits for the rest of it—for the lag, the sway, the world deciding whether to keep her upright—but it doesn’t come. The road holds. It keeps holding.
 
@@ -16,7 +16,7 @@ Lena doesn’t answer. Her arm tightens reflexively, not guiding, just there, an
 
 The pressure wakes up close and irritated.
 
-**Don’t get used to that.**
+Don’t get used to that, it warned.
 
 Rachel almost laughs, the sound brittle in her chest. “Too late.”
 
@@ -24,9 +24,7 @@ She tries to step half a pace ahead, just to test it, and the ground grabs her t
 
 “Slow down,” Lena says. “You’re rushing.”
 
-The road clicks back into place.
-
-Rachel stands there shaking, breath tearing in and out of her lungs, hating how fast the relief comes, how easily the noise in her head dulls when she lets Lena take her weight. They start again, and the road opens where Lena angles them, not dramatically, just enough—fewer stones, fewer dips, shadows thinning as if brushed aside.
+The road clicks back into place and they start again, the path opening where Lena angles them, not dramatically, just enough—fewer stones, fewer dips, shadows thinning as if brushed aside.
 
 Rachel notices without wanting to.
 
@@ -40,7 +38,7 @@ Lena shrugs. “Didn’t need to.”
 
 The pressure presses harder, unpleasant now.
 
-**She assumes.**
+She assumes, it noted.
 
 Rachel stumbles again, smaller this time, and Lena steadies her before she can decide whether she wants it. The world obliges immediately, pain dulling, the air smoothing, the night loosening its grip.
 
@@ -54,7 +52,7 @@ They reach a place where the road changes its mind—not a fork, just a widening
 
 The pressure spikes, sharp and immediate.
 
-**That way keeps you quiet.**
+That way keeps you quiet, it warned.
 
 Rachel digs her heel in on instinct. The world lurches, not collapsing, just slipping out of alignment enough to hurt, pain snapping bright up her leg, vision whitening at the edges.
 
@@ -68,7 +66,7 @@ Rachel lets out a thin, broken laugh. “You feel that,” she says. “You have
 
 The pressure hums, displeased.
 
-**She likes when it’s easy.**
+She likes when it’s easy, it said.
 
 Rachel pulls her arm free and everything stutters—not enough to drop her, just enough to make the night feel loud again, rain too present, ground honest and unforgiving under her foot. She sways, catching herself on nothing, breath sawing out of her chest. Lena reaches for her and stops when Rachel shakes her head.
 
@@ -78,7 +76,7 @@ The open road ahead looks inviting now, smooth and reasonable, the kind of choic
 
 The pressure doesn’t rush her this time.
 
-**You can walk where it hurts, or you can walk where you disappear.**
+You can walk where it hurts, or you can walk where you disappear, it offered.
 
 Rachel closes her eyes for half a second and steps toward the worse ground. Pain answers immediately, loud and honest, the night pressing back in, rain sharp in her ears again.
 
@@ -89,5 +87,3 @@ Behind her, Lena exhales, frustrated and frightened. “Rachel. This is harder.�
 Rachel nods, jaw clenched. “I know.”
 
 She keeps moving, choosing discomfort over ease, and after a beat she hears footsteps again—not steadying, not leading.
-
-Just there.

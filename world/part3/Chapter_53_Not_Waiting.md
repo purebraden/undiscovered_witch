@@ -1,4 +1,4 @@
-# Chapter 54 — Not Waiting
+# Chapter 53 — Not Waiting
 
 The ground doesn’t give her anything this time.
 
@@ -10,13 +10,13 @@ Lena slows, glancing back over her shoulder. “Do you want to rest?”
 
 She shifts her weight and the ringing flares, a thin white pressure that makes her vision fuzz at the edges.
 
-**You’re doing it again**, the voice says, not accusing, just interested.
+You’re doing it again, the voice says, not accusing, just interested.
 
 Rachel catches herself on a branch, bark scraping skin from her palm. “Doing what,” she mutters, breath coming too fast.
 
 The answer doesn’t come right away. It slides in with the ringing, timed to the next wrong step.
 
-**Stopping before you have to.**
+Stopping before you have to, it said.
 
 “I’m injured,” she snaps, not looking at Lena, not slowing. “That’s not the same thing.”
 
@@ -32,11 +32,11 @@ Rachel keeps walking.
 
 The ringing smooths just a fraction, enough to notice.
 
-**You know how to keep space now.**
+You know how to keep space now, it said.
 
 Her stomach drops. “Don’t.”
 
-**I didn’t say use it.**
+I didn’t say use it, it added.
 
 “That’s worse,” she says, because it is.
 
@@ -46,7 +46,7 @@ Something shifts at the far end of the road, a shape moving where there shouldn�
 
 The ringing tightens instantly, bright and alert, threading straight through her skull.
 
-**That moment**, the voice says, close enough to feel. **Right before.**
+That moment, the voice says, close enough to feel. Right before.
 
 The figure takes a step closer. Still wrong. Still distant.
 
@@ -54,29 +54,29 @@ The figure takes a step closer. Still wrong. Still distant.
 
 The voice hums, indulgent.
 
-**You didn’t.  
-You made space.**
+You didn’t, it said.  
+You made space.
 
 “That doesn’t mean—” She swallows. “You don’t know that.”
 
-**They stayed behind.**
+They stayed behind, it said.
 
 The figure moves again and Lena shifts beside her, ready to do something human and useless, to step in front, to slow this down, to negotiate.
 
-The choice opens sharp and immediate in Rachel’s chest, not framed, not explained.
+The choice opens sharp and immediate in Rachel’s chest.
 
 Wait.  
 Or decide.
 
 The ringing warms, insistent, almost encouraging.
 
-**You don’t have to wait for them to be closer.**
+You don’t have to wait for them to be closer, it urged.
 
 Rachel jerks sideways instead, pulling Lena with her off the road and back into the trees. The ground fights it, slick and uneven, catching her foot hard enough that pain snaps bright up her leg and she hisses through her teeth.
 
 The ringing spikes, sharp and irritated.
 
-**That’s slower.**
+That’s slower, it said.
 
 “I don’t care,” Rachel says, breath tearing out of her.
 
@@ -86,16 +86,14 @@ She keeps moving until her lungs burn and her vision swims, leaning into a tree 
 
 The ringing settles into a tight, dissatisfied whine.
 
-**You could have ended that already.**
+You could have ended that already, it said.
 
 Rachel presses her forehead to wet bark, chest heaving. “I’m not doing this for you.”
 
 The pause is longer this time. Closer.
 
-**Of course not.  
-You’re doing it because it works.**
-
-The words lodge somewhere she doesn’t touch.
+Of course not, it said.  
+You’re doing it because it works.
 
 Lena’s hand finds her shoulder, solid and warm. “We need to keep going,” she says quietly. “Next time—just tell me what you need.”
 
