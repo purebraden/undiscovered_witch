@@ -7,10 +7,12 @@ A narrow band slid across the floor, pale and steady, cutting the dark into meas
 Rachel froze.
 
 Pressure gathered under her ribs. Not pain. Not yet. Just enough weight to warn her that stillness was the wrong answer.
+Her body recognized the weight before she did.
 
 She shifted her weight.
 
 The light brightened a fraction.
+She tried it again, smaller. The light answered again.
 
 Something hummed behind it. Low and even, the sound of a system running exactly as intended.
 
@@ -19,6 +21,7 @@ Rachel stepped back. The stone beneath her heel warmed, heat blooming too fast t
 The unit rolled into view.
 
 It stayed low to the ground, a wide ring moving without visible joints. The light came from inside it, sweeping outward in slow arcs that never crossed the walls, never rushed ahead.
+She knew its sweep pattern, the pause at her left boot. The knowledge arrived ahead of memory.
 
 It followed at a fixed distance.
 
@@ -30,7 +33,7 @@ Not closer.
 
 Close enough.
 
-The pressure shoved her right at the junction before she registered the turn. She scraped her shoulder on stone and bit back a sound as nausea hit hard enough to steal her breath. Black crept at the edges of her vision. She gagged and kept moving.
+The pressure shoved her right at the junction before she registered the turn. She tried to hold the shove, and for half a step it eased. Then it surged again. She scraped her shoulder on stone and bit back a sound as nausea hit hard enough to steal her breath. Black crept at the edges of her vision. She gagged and kept moving.
 
 Behind her, the hum deepened by a note.
 
@@ -68,7 +71,7 @@ The hum behind her changed pitch.
 
 She burst into a wider passage and skidded to a halt.
 
-A man stood near a stack of crates, hands lifting slowly as he saw her. A dull white line marked his vest, the same one she had seen painted on doors. His gaze flicked to her leg, to the faint pulse beneath her skin, and his throat worked.
+A man stood near a stack of crates, hands lifting slowly as he saw her. A dull white knot marked his vest, the same one she had seen painted on doors. Not a rank. A warning. His gaze flicked to her leg, to the faint pulse beneath her skin, and his throat worked.
 
 “Don’t,” he said.
 

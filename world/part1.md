@@ -22,6 +22,8 @@ His voice shook. So did his hands.
 
 The circle flared.
 
+She knew the cadence of it and hated that she did.
+
 Light crawled along the carved lines, ugly-colored, wrong-colored, the kind that made her teeth ache and her stomach turn. The pull intensified, dragging at her chest like it wanted everything inside her out at once, heart and lungs and all of it.
 
 Someone shouted, "One anchor is dead - cut it, cut it -"
@@ -159,6 +161,7 @@ She forced herself to move.
 The corridor forked.
 
 No markings she understood. No signs. Just left or right, both narrow, both dark, both wrong in different ways.
+There were cuts anyway, spirals scored into the stone, ward marks not meant to guide her. One of them looked familiar for a reason she did not have.
 
 Boots thundered behind her now. Voices carried, overlapping and sharp, the words tearing at the edges of her hearing.
 
@@ -195,6 +198,7 @@ The stone beneath her rippled. The water froze, not into clear ice but into some
 The bleeding slowed.
 
 Not gone. Slower. Like something inside her had clenched without asking.
+She recognized the clamp, the same wrong mercy, and it made her stomach drop.
 
 Rachel stood there shaking, hands slick and red, staring at her leg.
 
@@ -209,6 +213,7 @@ Behind her, something howled.
 Closer now.
 
 Rachel limped forward, the corridor spitting her into a wider hall lined with doors set deep into the walls. Some stood closed. Some were dented. One hung half off its hinges, metal clawed and twisted outward.
+Each door carried a thin white knot of paint at shoulder height, a ward sign, not a number.
 
 She slowed despite herself.
 
