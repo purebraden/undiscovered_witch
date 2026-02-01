@@ -5,6 +5,7 @@
 The word slid instead of landing. Rachel felt it catch in the hollow behind her eye, like it had been said somewhere else first and only arrived now because it remembered to.
 
 The doorway waited ahead of her. The frame stood inside it, upright, ribs exposed, inner surface dull and stippled. It didn’t glow. It didn’t hum yet. That came later.
+She knew when it would and hated that she did.
 
 Hands on her arms. Not gripping. Positioned. The woman on her right kept her thumb hovering just above Rachel’s pulse, never quite touching. The man on her left smelled like disinfectant soaked into old fabric. Someone behind them shifted weight and the floor answered with a soft vibration, a patient mechanical breath from somewhere under the tiles.
 
@@ -77,6 +78,7 @@ The word came from too far away.
 Rachel’s lungs burned.
 
 Breathe, it said. Not a command. A timing note.
+She matched it by reflex, and the grinding steadied for half a beat.
 
 She pulled air and it hurt. Heat flared behind her eyes. The pressure slid, not easing, just relocating.
 
@@ -186,7 +188,7 @@ Boots chased her—not one set, not even a line, too many feet hitting together,
 
 Her heel slid on stone that hadn’t been slick a second ago, balance pitching forward and correcting late, knees absorbing a fall that never fully happened. She gasped and the breath came out wrong, half-formed, and the pressure pressed a word into her head—left—cutting across the motion before she knew where left was supposed to be.
 
-She didn’t turn because she didn’t know where left *was* yet, not in a space that kept rearranging its edges. She kept running straight and the corridor narrowed around her in increments too small to measure until her shoulder scraped stone that hadn’t been there, skin tearing, the sting arriving a beat after the contact and then staying too long.
+She didn’t turn because she didn’t know where left *was* yet, not in a space that kept rearranging its edges. Her body still started to, a reflex she didn’t remember learning. She kept running straight and the corridor narrowed around her in increments too small to measure until her shoulder scraped stone that hadn’t been there, skin tearing, the sting arriving a beat after the contact and then staying too long.
 
 Someone shouted behind her, the sound stretching, thinning, then snapping as if it had hit a seam in the air.
 
@@ -215,6 +217,7 @@ The others flowed around him without slowing. Procedure did not turn its head.
 Rachel faced forward again and swallowed bile as the pressure pressed a single instruction—faster—into the back of her awareness.
 
 “No,” she rasped, the word breaking apart before the breath finished forming, and not speed. Timing slid in behind it, close enough to feel like it was leaning.
+She tried to meet it. The hall eased for one step.
 
 Her footfalls were wrong; she could feel it now, each step arriving half a beat out of phase with the hall, her body moving before her mind finished deciding, her thoughts chasing after her own motion like they were late to themselves.
 
@@ -368,6 +371,7 @@ The space around her did not resemble the archive.
 No shelves. No paper smell. No desk.
 
 The ceiling was lower here, unfinished concrete with seams that didn’t line up, fluorescent strips buzzing unevenly overhead, one flickering with a rhythm that didn’t match the others. The walls were bare except for conduit and a single painted line that ran waist-high and then vanished into nothing where the wall broke off into a corridor that bent sharply out of sight.
+Her body read it as a ward and stayed on the safe side.
 
 Rachel staggered upright and leaned against the wall, palm sliding over cold paint.
 
@@ -1159,7 +1163,7 @@ The voice slid in: you didn’t wait—
 
 “For what,” she snapped, and the anger surprised her with how easy it came.
 
-She wiped rain out of her eyes and forced herself to look properly. Grass torn to mud. A slope that didn’t line up with how she remembered the ground being. A fence farther off, leaning wrong, reflective tape snapping wetly in the wind.
+She wiped rain out of her eyes and forced herself to look properly. Grass torn to mud. A slope that didn’t line up with how she remembered the ground being. A fence farther off, leaning wrong, reflective tape snapping wetly in the wind. Below the tape, thin tags fluttered with knot-stamped warnings instead of words.
 
 Footprints.
 
