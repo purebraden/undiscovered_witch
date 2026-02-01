@@ -1,4 +1,4 @@
-# Chapter 41 — Transfer, Then Voice
+# Chapter 39 — Transfer, Then Voice
 
 “Four.”
 
@@ -176,7 +176,7 @@ Rachel turned and ran.
 
 The hallway didn’t quite keep up.
 
-# Chapter 42 — Baseline Break
+# Chapter 40 — Baseline Break
 
 Rachel ran and the hallway refused to decide what it was.
 
@@ -349,7 +349,7 @@ Not guiding.
 Not apologizing.  
 Waiting.
 
-# Chapter 43 — The Wrong Floor
+# Chapter 41 — The Wrong Floor
 
 Rachel hit tile that wasn’t meant to be a floor.
 
@@ -506,7 +506,7 @@ The floor behind her shifted.
 Not yet.
 Waiting.
 
-# Chapter 44 — What Slips Through
+# Chapter 42 — What Slips Through
 
 Rachel didn’t jump.
 
@@ -663,7 +663,7 @@ Rachel didn’t have an answer.
 
 The hum deepened. Layers stacked out of sync. The space waited.
 
-# Chapter 45 — Shared Weight
+# Chapter 43 — Shared Weight
 
 They didn’t move right away.
 
@@ -806,7 +806,7 @@ The other person reached for her at the same instant the space lurched sideways.
 
 Everything slid.
 
-# Chapter 46 — Where It Lands
+# Chapter 44 — Where It Lands
 
 The slide didn’t stop so much as redistribute.
 
@@ -916,7 +916,7 @@ Rachel felt herself sliding, not across the floor this time but *into* it, the s
 
 “No,” she sobbed, and then there was no floor.
 
-# Chapter 47 — After the Floor
+# Chapter 45 — After the Floor
 
 There was weight and then there wasn’t, and the difference hurt more than the fall.
 
@@ -1032,7 +1032,7 @@ Somewhere not-here, something heavy moved, a distant groan rippling through laye
 
 Rachel stayed very still and waited to see what would remember her next.
 
-# Chapter 48 — Not Where It Keeps Things
+# Chapter 46 — Not Where It Keeps Things
 
 The light changed first.
 
@@ -1232,7 +1232,7 @@ Lena’s hand landed on Rachel’s shoulder.
 
 The moment tore.
 
-# Chapter 49 — The Way She Points
+# Chapter 47 — The Way She Points
 
 Rachel takes a step before she means to.
 
@@ -1345,7 +1345,7 @@ She hears Lena hesitate behind her, then footsteps following.
 
 Rachel doesn’t turn around.
 
-# Chapter 50 — The Easy Way
+# Chapter 48 — The Easy Way
 
 Rachel’s foot comes down and the ground answers it cleanly, no slip, no hollow delay, and the wrongness of that makes her stumble anyway, breath hitching as her ankle flares hot and bright. She waits for the rest of it—for the lag, the sway, the world deciding whether to keep her upright—but it doesn’t come. The road holds. It keeps holding.
 
@@ -1435,7 +1435,7 @@ Rachel nods, jaw clenched. “I know.”
 
 She keeps moving, choosing discomfort over ease, and after a beat she hears footsteps again—not steadying, not leading.
 
-# Chapter 51 — Too Close
+# Chapter 49 — Too Close
 
 They hear him before they see him.
 
@@ -1539,7 +1539,7 @@ She doesn’t answer.
 
 She just runs.
 
-# Chapter 52 — Still Ringing
+# Chapter 50 — Still Ringing
 
 They don’t stop all at once.
 
@@ -1649,7 +1649,7 @@ The ringing never fully fades.
 
 It stays with her, thin and eager, threaded through every step, waiting for the next time she decides not to wait.
 
-# Chapter 53 — Not Waiting
+# Chapter 51 — Not Waiting
 
 The ground doesn’t give her anything this time.
 
@@ -1757,7 +1757,7 @@ Not fading.
 
 Just waiting.
 
-# Chapter 54 — Somewhere That Holds
+# Chapter 52 — Somewhere That Holds
 
 They keep moving without saying why, the kind of motion that doesn’t feel chosen so much as required, like breathing through pain until it dulls into something you can carry. The trees thin and thicken again, ground changing under Rachel’s feet—mud to gravel to something harder she doesn’t want to look at too closely—and the ringing stays tucked behind her eyes, not gone, just quieter, like it’s learned where to sit without being noticed.
 
@@ -1869,7 +1869,7 @@ You’re learning, it said.
 
 Rachel stays on her feet, listening to a place that doesn’t listen back, and knows they’re still moving even now—just more slowly, in the wrong direction.
 
-# Chapter 55 — Noticing
+# Chapter 53 — Noticing
 
 Rachel stays standing.
 
@@ -2183,7 +2183,7 @@ The night folds inward around them.
 
 And every step after that feels shorter than it should have been.
 
-# Chapter 56 — Still Active
+# Chapter 54 — Still Active
 
 The voice doesn’t wait for the ground to decide.
 
@@ -2352,7 +2352,7 @@ Rachel walks easily.
 
 And there’s no clean way back out without making a choice she isn’t ready to name.
 
-# Chapter 57 — Clearance
+# Chapter 55 — Clearance
 
 The corridor opens without asking.
 
@@ -2472,7 +2472,7 @@ They aren’t afraid of her.
 
 They’re relieved she’s finally acting like herself.
 
-# Chapter 58 — Standing Room
+# Chapter 56 — Standing Room
 
 The room doesn’t open so much as *already be there*.
 
@@ -2656,7 +2656,7 @@ Just not the same way.
 The light hums.  
 The room waits.
 
-# Chapter 59 — Paper
+# Chapter 57 — Paper
 
 No one moves.
 
@@ -2819,7 +2819,7 @@ The option sits between them now, fully formed, not spoken out loud again, not d
 
 And the room keeps holding them exactly the way it has been.
 
-# Chapter 60 — Refusal
+# Chapter 58 — Refusal
 
 Lena doesn’t let go.
 
@@ -2940,7 +2940,7 @@ For now.
 
 And somewhere in the quiet, something that had been waiting simply adjusts its expectations.
 
-# Chapter 61 — Reallocation
+# Chapter 59 — Reallocation
 
 Rachel feels it before she can name it, the way you feel a misstep coming half a second too late, not a warning exactly, just the sudden sense that something has finished deciding without her.
 
@@ -3062,7 +3062,7 @@ The demons turn away, already done.
 
 And Rachel makes the choice she swore she wouldn’t make for someone else, because there is no version of this where waiting makes it better.
 
-# Chapter 62 — Correction
+# Chapter 60 — Correction
 
 Rachel doesn’t move.
 
@@ -3145,7 +3145,7 @@ The room hums.
 
 Whatever shape she’s in now, it isn’t one she remembers choosing.
 
-# Chapter 63 — Registered
+# Chapter 61 — Registered
 
 The paper doesn’t arrive.
 

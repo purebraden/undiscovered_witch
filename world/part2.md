@@ -1,4 +1,4 @@
-# Chapter 19 — Light Before Sound
+# Chapter 17 — Light Before Sound
 
 The light reached her boots before the sound reached her ears.
 
@@ -242,7 +242,7 @@ Rachel pushed herself up. Her leg protested, then held.
 
 They slipped deeper into the dark as the stone behind them began, quietly, to warm.
 
-# Chapter 20 — A Mistake in the Wall
+# Chapter 18 — A Mistake in the Wall
 
 The gap wasn’t a tunnel so much as a mistake the wall hadn’t corrected yet.
 
@@ -402,7 +402,7 @@ Not waiting.
 
 Not asking.
 
-# Chapter 21 — Not a Place That Helps
+# Chapter 19 — Not a Place That Helps
 
 The next place didn’t look like a place that helped.
 
@@ -580,7 +580,7 @@ The pressure leaned forward.
 
 Already moving.
 
-# Chapter 22 — Losing the Floor
+# Chapter 20 — Losing the Floor
 
 They didn’t slow down so much as lose the floor.
 
@@ -740,7 +740,7 @@ Rachel stared into the dark, listening to her own breathing, waiting for somethi
 
 Nothing did.
 
-# Chapter 23 — Slowed Steps
+# Chapter 21 — Slowed Steps
 
 Rachel slowed her steps until the effort made her calves burn.
 
@@ -836,7 +836,7 @@ That scared her more than the fall.
 
 They slipped into the dark, stone warming behind them, the pressure already leaning forward, lining her up with whatever came next.
 
-# Chapter 24 — Not Found
+# Chapter 22 — Not Found
 
 They didn’t find the place.
 
@@ -1008,7 +1008,7 @@ Not leaving.
 
 Just waiting.
 
-# Chapter 25 — Not a Procedure
+# Chapter 23 — Not a Procedure
 
 They didn’t call it a procedure.
 
@@ -1204,7 +1204,7 @@ Not moving her.
 
 Waiting.
 
-# Chapter 26 — Miri First
+# Chapter 24 — Miri First
 
 They moved Miri first.
 
@@ -1356,7 +1356,7 @@ The pressure stayed.
 
 Learning.
 
-# Chapter 27 — Rachel Waited
+# Chapter 25 — Rachel Waited
 
 Rachel waited.
 
@@ -1514,7 +1514,7 @@ Rachel stayed seated.
 
 For the first time since the run ended, the stillness felt like something she had chosen.
 
-# Chapter 28 — No Hurry
+# Chapter 26 — No Hurry
 
 They didn’t hurry.
 
@@ -1696,7 +1696,7 @@ It was filing her.
 
 And it wasn’t done yet.
 
-# Chapter 29 — No Doors
+# Chapter 27 — No Doors
 
 They didn’t use doors.
 
@@ -1838,7 +1838,7 @@ It didn’t come right away.
 
 But she could feel it gathering, patient, learning the room.
 
-# Chapter 30 — Nothing Happened
+# Chapter 28 — Nothing Happened
 
 Nothing happened.
 
@@ -1970,7 +1970,7 @@ Lena’s head came up fast. “No,” she said, and the word came out like a ref
 
 The pressure pressed in and stayed.
 
-# Chapter 31 — The Chair
+# Chapter 29 — The Chair
 
 Lena noticed the chair first.
 
@@ -2108,7 +2108,7 @@ Not patient.
 
 Learning.
 
-# Chapter 32 — Shift Change
+# Chapter 30 — Shift Change
 
 The shift change wasn’t announced.
 
@@ -2222,7 +2222,7 @@ Allowance.
 
 And somewhere close, the pressure leaned in, attentive to what she might do next.
 
-# Chapter 33 — Room Lost Its Edge
+# Chapter 31 — Room Lost Its Edge
 
 Enough time passed that the room lost its edge.
 
@@ -2326,7 +2326,7 @@ It just needed time where no one was watching closely enough.
 
 And it had been given that.
 
-# Chapter 34 — They Came for the Room
+# Chapter 32 — They Came for the Room
 
 They came for the room.
 
@@ -2470,7 +2470,7 @@ They hadn’t solved anything.
 
 They’d just decided where the damage was allowed to remain.
 
-# Chapter 35 — The Chair Stayed
+# Chapter 33 — The Chair Stayed
 
 The chair stayed where it was, legs aligned with the seam that had been wrong earlier, the light overhead holding steady in that slightly too-even way that made it feel watched rather than lit.
 
@@ -2544,7 +2544,7 @@ It didn’t.
 
 Rachel stayed seated, the pressure easing back into place, not gone, not satisfied — settled, like something had been removed that the room no longer needed to account for.
 
-# Chapter 36 — As It Was
+# Chapter 34 — As It Was
 
 The room stayed as it was, stone and seam and the chair too carefully aligned, the light holding steady in that flattened way that made depth feel optional. Mara remained near the wall, shoulders still squared toward the door that hadn’t reopened, attention drifting and snapping back like she didn’t trust it to stay anywhere too long.
 
@@ -2618,7 +2618,7 @@ Nothing settled.
 
 The room kept negotiating.
 
-# Chapter 37 — The Structure Held
+# Chapter 35 — The Structure Held
 
 The structure stayed where it was, panels holding their positions around the chair close enough to matter and far enough to pretend they weren’t touching anything important, the hum settling into a steadier register that made the room feel narrower without announcing that anything had changed.
 
@@ -2668,7 +2668,7 @@ The hum held steady.
 
 The structure stayed.
 
-# Chapter 38 — The Wall Plate
+# Chapter 36 — The Wall Plate
 
 The wall plate lit again, dimmer this time, the glow softened as if it had learned how bright it was allowed to be.
 
@@ -2744,7 +2744,7 @@ The structure had found a baseline.
 
 And the room, still out of step, kept trying to meet it.
 
-# Chapter 39 — Before Anything Else
+# Chapter 37 — Before Anything Else
 
 The structure tightened before anything else did.
 
@@ -2868,7 +2868,7 @@ The structure had started anticipating.
 
 And somewhere beyond the walls, something else had begun to break in the same rhythm.
 
-# Chapter 40 — Baseline Didn't Mean Much
+# Chapter 38 — Baseline Didn't Mean Much
 
 After “Prepare transfer,” baseline didn’t mean much.
 
