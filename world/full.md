@@ -290,7 +290,7 @@ This is insane. This is completely insane. Something is steering me like a fucki
 
 Rachel didn't slow.
 
-The streets changed as she went, stone underfoot growing uneven and old, patched and repatched until it looked like scars layered over scars. The buildings thinned, windows narrowing, doors reinforced with iron bands and deep-cut marks that hadn'thing decorative about them.
+The streets changed as she went, stone underfoot growing uneven and old, patched and repatched until it looked like scars layered over scars. The buildings thinned, windows narrowing, doors reinforced with iron bands and deep-cut marks that had nothing decorative about them.
 
 No one ran here.
 
@@ -798,7 +798,7 @@ Rachel stepped back.
 
 The tug loosened.
 
-The woman stared at her with a kind of fear that hadn'thing to do with knives or thieves. It was the look you gave a storm when you realized it hadn'ticed you.
+The woman stared at her with a kind of fear that had nothing to do with knives or thieves. It was the look you gave a storm when you realized it had noticed you.
 
 Down the street, a lantern flared to life.
 
@@ -1160,7 +1160,7 @@ It didn't.
 
 He made another mark, then tilted his head slightly and asked if she had companions.
 
-The question landed wrong, tightening her stomach in a way that hadn'thing to do with fear. She said no because anything else felt impossible.
+The question landed wrong, tightening her stomach in a way that had nothing to do with fear. She said no because anything else felt impossible.
 
 The slate scraped softly as he wrote.
 
@@ -1957,7 +1957,7 @@ Rachel slid down the wall until she was sitting on the uneven floor, breath tear
 
 Her thoughts scattered.
 
-The tools flashed in her mind. The channel. The way the pressure had turned toward Lena like it hadn'ticed her for the first time.
+The tools flashed in her mind. The channel. The way the pressure had turned toward Lena like it had noticed her for the first time.
 
 Rachel pressed her back harder into the stone until the ache grounded her, sharp and familiar, something she could name.
 
@@ -3014,7 +3014,7 @@ Not because she wanted to.
 
 Because the pressure did something strange.
 
-It didn’t surge. It didn’t crowd. It slid sideways, like it hadn'ticed something Rachel hadn’t yet.
+It didn’t surge. It didn’t crowd. It slid sideways, like it had noticed something Rachel hadn’t yet.
 
 Rachel’s foot caught on a raised seam and she swore, the sound bouncing wrong in the narrow space. Her leg held, but she felt the delay now—the fraction of time between impact and response stretching, rubbery and unpleasant.
 
@@ -4203,7 +4203,7 @@ Lena’s voice cracked. “You’re writing her like a weapon.”
 
 The woman finally looked at her. “I’m writing her like a variable.”
 
-Rachel felt something cold open under her ribs that hadn'thing to do with the room.
+Rachel felt something cold open under her ribs that had nothing to do with the room.
 
 The pressure stayed close, intent on the exchange.
 
@@ -10249,7 +10249,7 @@ But now it was starting to look like it.
 
 The woman volunteered before Rachel understood what she was offering.
 
-Her name wasn't given — names worked differently here, Rachel hadn'ticed, used sparingly and earned rather than assigned. But she was young by the standards of this place, with skin that still held warmth and eyes that hadn't yet learned to settle into fixed positions. She stepped forward in a chamber filled with cascading light, the walls embedded with crystals that split the lantern glow into scattered rainbows.
+Her name wasn't given — names worked differently here, Rachel had noticed, used sparingly and earned rather than assigned. But she was young by the standards of this place, with skin that still held warmth and eyes that hadn't yet learned to settle into fixed positions. She stepped forward in a chamber filled with cascading light, the walls embedded with crystals that split the lantern glow into scattered rainbows.
 
 "I can take some of it," she said. "I've done it before."
 
