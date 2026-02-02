@@ -4732,7 +4732,7 @@ And somewhere close, the pressure leaned in, attentive to what she might do next
 
 # Chapter 31 — Room Lost Its Edge
 
-Enough time passed that the room lost its edge.
+Enough time passed that the room lost its edge, and Rachel hated the relief of it—hated how quickly her body started pretending this could be normal if you squinted.
 
 Mara stopped moving. Not deliberately—just the way people did when they decided nothing else was going to happen. She leaned back against the wall, arms loose, attention drifting in short, habitual passes instead of the tight scans from earlier. Lena shifted her weight in the corner, one boot braced against the stone, eyes on Rachel without counting her breaths anymore.
 
@@ -5378,7 +5378,7 @@ And somewhere beyond the walls, something else had begun to break in the same rh
 
 # Chapter 38 — Baseline Didn't Mean Much
 
-After “Prepare transfer,” baseline didn’t mean much.
+After “Prepare transfer,” baseline didn’t mean much. It was just a word you used until something proved you weren’t entitled to it.
 
 The structure stayed where it was.
 
@@ -6067,7 +6067,7 @@ Waiting.
 
 # Chapter 42 — What Slips Through
 
-Rachel didn’t jump.
+Rachel didn’t jump. Jumping implied choice; this was her ankle giving up first and the building taking advantage.
 
 She stepped because her ankle failed first, because the floor behind her loosened its opinion about being solid, because the space in front of her felt crowded by intent even though nothing had touched her yet. Her heel crossed the seam and the moment stretched thin, tugged sideways, then let go all at once.
 
@@ -6224,7 +6224,7 @@ The hum deepened. Layers stacked out of sync. The space waited.
 
 # Chapter 43 — Shared Weight
 
-They didn’t move right away.
+They didn’t move right away, and the silence felt like a dare.
 
 Rachel leaned into the wall because it was there and because the floor still felt undecided about whether standing counted as a stable request. The ache in her ankle had spread upward into a heavy, nauseating throb that made her leg feel borrowed, like it belonged to a slightly misaligned version of her body and hadn’t been returned properly.
 
