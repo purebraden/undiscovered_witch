@@ -6595,7 +6595,7 @@ Rachel stayed very still and waited to see what would remember her next.
 
 The light changed first.
 
-Not brighter. Not darker.  
+Not brighter, not darker.  
 Different.
 
 Rachel felt it through her eyelids before she opened them, a pressure shift that didn’t belong to the place she was in, like someone had opened a door somewhere far above and the air had decided to notice. The thing near the wall stilled, its shape compressing in on itself, attention snapping away from her so fast it felt like being dropped.
@@ -7211,7 +7211,7 @@ It stays with her, thin and eager, threaded through every step, waiting for the 
 
 # Chapter 51 — Not Waiting
 
-The ground doesn’t give her anything this time.
+The ground doesn’t give her anything this time, and for a second she wants to scream at it like it’s a person with a grudge.
 
 It isn’t hostile, exactly, but it stops cooperating, roots catching her bad ankle after she’s already leaned into the step, slopes tilting late so her weight lands wrong and pain snaps sharp enough to make her breath hitch. The ringing tightens with it, not louder so much as closer, threading itself behind her eyes and making every misstep feel deliberate.
 
