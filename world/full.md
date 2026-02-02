@@ -183,7 +183,7 @@ They were talking about her like she was a thing. Like she was the monster here.
 
 Rachel went right, half because she had to choose and half because fuck them.
 
-The floor dipped almost immediately. Water slicked the stone, old and stagnant, and her bad foot slid out from under her. She went down hard, the breath ripped from her lungs as pain tore up her leg so fast her vision sparked.
+The floor dipped almost at once. Water slicked the stone, old and stagnant, and her bad foot slid out from under her. She went down hard, the breath ripped from her lungs as pain tore up her leg so fast her vision sparked.
 
 She screamed.
 
@@ -344,7 +344,7 @@ Rachel looked back just long enough to see pale light flicker at the far end of 
 
 She turned and went down the stairs.
 
-The air changed immediately.
+The air changed the moment she stepped in.
 
 Cooler. Damp. Heavy with mold and a faint sweetness underneath that made her stomach roll. The stairs spiraled down farther than they should have, stone slick under her boots, walls pressing close enough that her shoulders brushed both sides when she lost her balance.
 
@@ -777,7 +777,7 @@ The woman did not scream.
 
 She just went very still.
 
-Rachel lifted her hands without meaning to.
+Rachel lifted her hands—a reflex, useless.
 
 "I -" she started.
 
@@ -1099,7 +1099,7 @@ The woman opened the case and lifted out a small device. A thin line of light ra
 
 The thing inside Rachel went still.
 
-She felt the absence immediately. The device flickered. The woman frowned and tapped it.
+She felt the absence at once. The device flickered. The woman frowned and tapped it.
 
 Pain flared through Rachel's leg. She hissed and shifted her weight. The frame creaked, a low metal groan that did not belong to the room.
 
@@ -1155,7 +1155,7 @@ Rachel stepped forward and felt the pressure in her chest loosen, its pull easin
 
 *It's letting me breathe*, she thought. *Why is it letting me breathe?*
 
-The answer came immediately: because this was public. Because people were watching. Because whatever lived inside her didn't want to be noticed any more than she did.
+The answer came to her: because this was public. Because people were watching. Because whatever lived inside her didn't want to be noticed any more than she did.
 
 The space opened into a wide hall cut deep into the stone, ceiling swallowed by shadow above a grid of hanging lights that burned steady and white. People moved through it in established paths—alone, in pairs, small groups—their trajectories intersecting without pause. No negotiation. No hesitation. A machine made of bodies.
 
@@ -1169,7 +1169,7 @@ They were ignoring her on purpose. The realization settled like cold water.
 
 Tables lined one side of the hall, long and narrow and scarred by use, each occupied by two people facing one another with heads bent and hands busy over slates, papers, tools she could not make out from where she stood. On the opposite side, rails guided a slow-moving line of carts carrying crates stamped with the same simple mark she had seen painted on doors and cloth, workers stepping on and off without breaking stride, loading and unloading with a rhythm that suggested they had done this too many times to count.
 
-Rachel limped forward, her movement immediately noticeable to herself even if no one else reacted, the pressure in her chest stirring when she slowed and easing again when she kept moving, nudging rather than forcing, keeping her just shy of stopping.
+Rachel limped forward, painfully aware of how visible she must be even if no one else reacted, the pressure in her chest stirring when she slowed and easing again when she kept moving, nudging rather than forcing, keeping her just shy of stopping.
 
 A woman passed close enough to glance at Rachel's leg, her eyes flicking to the bandage and then away again without comment, her pace never changing, her broom of attention already sweeping forward to the next thing that needed doing.
 
@@ -1301,13 +1301,13 @@ Then the pressure stopped responding.
 
 It wasn't tightening, wasn't easing.
 
-It went still, the way air does when someone holds their breath without meaning to. Rachel felt it immediately, the absence more noticeable than any movement, and at the same time the device dipped in the handler's grip.
+It went still, the way air does when someone holds their breath. Rachel felt it—the absence more noticeable than any movement, and at the same time the device dipped in the handler's grip.
 
 They frowned and adjusted their hold, tapping the casing once with their thumb.
 
 The light flickered.
 
-Pain flared through Rachel's leg, sharp and immediate, tearing through the bandage and up into her hip. She hissed and shifted her weight without meaning to, her foot sliding a fraction across the stone.
+Pain flared through Rachel's leg, sharp and sudden, tearing through the bandage and up into her hip. She hissed and her weight shifted before she could stop it, her foot sliding a fraction across the stone.
 
 The circle did not react.
 
@@ -1628,7 +1628,7 @@ A chamber that looked like it had been repurposed and then repurposed again, sto
 
 A metal frame stood near one wall, not the same as the one she had broken, but close enough that her stomach clenched anyway. Beside it, a rack of objects hung in neat order, thin rods, loops of chain, a curved tool with a blunt edge that caught the dim light.
 
-Rachel stopped without meaning to.
+Rachel stopped. Her feet just wouldn't move.
 
 The pressure tightened hard.
 
@@ -2940,7 +2940,7 @@ The pressure spread, sloppy and wide, brushing the room. The lever rattled in it
 
 “They follow you anyway,” Lena said. “She’s here.”
 
-Rachel took a step forward without meaning to, and the pressure surged with her, uncontrolled. A seam in the ceiling lit up.
+Rachel took a step forward—her body moving before her mind caught up—and the pressure surged with her, uncontrolled. A seam in the ceiling lit up.
 
 The man’s mouth worked. He swallowed.
 
@@ -3965,7 +3965,7 @@ The older woman watched without blinking.
 
 The pressure stayed close to Rachel’s ribs, not pushing, not pulling, just there, the way a thought sits unfinished.
 
-Rachel replayed the rules without meaning to.
+The rules replayed in her head unbidden.
 
 Stay seated. Don’t watch. Don’t step in. Don’t resist. Don’t anticipate.
 
@@ -4003,7 +4003,7 @@ Rachel nodded without looking up. “I know.”
 
 The pressure leaned forward at the sound of her voice.
 
-Rachel inhaled slowly, counting without meaning to.
+Rachel inhaled slowly, counting breaths before she realized she was doing it.
 
 Then she shifted her weight.
 
@@ -4933,7 +4933,7 @@ The lock released with a soft sound that didn’t belong to it, followed by a pa
 
 The pressure tightened at Rachel’s ribs. Not alarmed. Sharper. Like it had felt a change in posture.
 
-Mara stepped back without meaning to, palms lifting, body giving ground she hadn’t planned to give. Lena shifted toward the wall, eyes tracking the doorway instead of Rachel for the first time since the chair had moved.
+Mara stepped back—involuntary, instinctive—palms lifting, body giving ground she hadn’t planned to give. Lena shifted toward the wall, eyes tracking the doorway instead of Rachel for the first time since the chair had moved.
 
 “Hold,” someone said.
 
@@ -5089,7 +5089,7 @@ Lena didn’t move, and for a moment it wasn’t clear whether the words had rea
 
 “No,” she said finally, but the word landed wrong, detached from anything it could anchor to.
 
-The chair creaked, soft but insistent, and all three of them went still without meaning to, waiting for the room to decide whether that counted.
+The chair creaked, soft but insistent, and all three of them went still, waiting for the room to decide whether that counted.
 
 Nothing followed.
 
@@ -5555,7 +5555,7 @@ Something deeper in the wall slid, a soft scrape that didn’t belong to any mec
 
 Rachel’s breath stayed even.
 
-Mara took another step without meaning to, testing the floor this time, careful and slow.
+Mara took another step, testing the floor, careful and slow.
 
 The structure didn’t react.
 
@@ -6217,7 +6217,7 @@ Rachel yanked her hand back like she’d touched something alive.
 
 It’s listening, it warned—
 
-“Everything is listening,” she snapped, anger punching through the fear sharp enough to hurt, and limped forward anyway, hand skimming the wall for balance, counting steps without meaning to—one, two—then stopping when the numbers slipped and refused to line up.
+“Everything is listening,” she snapped, anger punching through the fear sharp enough to hurt, and limped forward anyway, hand skimming the wall for balance, counting steps—one, two—then losing track when the numbers slipped and refused to line up.
 
 The space widened ahead of her into something that felt almost polite by comparison, ceiling lifting, lights spacing themselves more evenly, grids and arcs painted across the floor that overlapped without agreeing, some faded, some too bright, like several versions of the room had been mapped on top of each other and left there.
 
