@@ -138,6 +138,146 @@ The demon communicates as "the voice" in Rachel's head. Key traits:
 
 ---
 
+## SENTENCE-LEVEL RULES (CRITICAL — ENFORCE STRICTLY)
+
+ChatGPT tends to add summary sentences, thesis statements, and clean prose that doesn't match this story's voice. **DO NOT DO THIS.**
+
+### NO SUMMARY SENTENCES
+
+**❌ BAD — Summary/thesis lines that tell the reader what to think:**
+> Rachel realized that the demon had been protecting her all along, not out of kindness, but out of necessity.
+
+> She understood now that the binding was more than just a prison—it was a partnership.
+
+> In that moment, everything changed.
+
+> It was clear that she had no choice but to move forward.
+
+> The truth of the situation settled over her like a weight.
+
+**✅ GOOD — Just show what happens, let readers figure it out:**
+> The pressure eased. Rachel kept walking.
+
+> *That's why,* the voice said. Nothing else.
+
+> She moved. The floor let her.
+
+### NO RUN-ON SENTENCES
+
+**❌ BAD — Too many clauses, too much happening in one breath:**
+> Rachel stumbled through the doorway and felt the air change around her as the space reconfigured itself to accommodate her presence while the light beneath her skin flickered in response to her fear and uncertainty about what lay ahead.
+
+**✅ GOOD — Break it up. Short and medium sentences. Varying rhythm:**
+> Rachel stumbled through the doorway. The air changed around her—thicker, warmer, wrong. The space reconfigured itself. Her skin flickered in response.
+
+### NO FRAGMENT SENTENCES (Unless for Specific Effect)
+
+**❌ BAD — Fragments used carelessly:**
+> Walking forward. The light growing brighter. Her chest tight with fear. Moving anyway.
+
+**✅ GOOD — Complete sentences with occasional fragments for impact:**
+> She walked forward. The light grew brighter. Her chest was tight with fear, but she kept moving.
+> 
+> Then the floor dropped out.
+
+### NO EMOTIONAL LABELING
+
+**❌ BAD — Telling us what Rachel feels:**
+> Rachel felt terrified.
+
+> She was overwhelmed with grief.
+
+> A sense of dread washed over her.
+
+> She experienced a profound sense of loss.
+
+**✅ GOOD — Show the feeling through body and action:**
+> Her hands wouldn't stop shaking.
+
+> She couldn't swallow past the knot in her throat.
+
+> The air felt too thin. She breathed faster and it didn't help.
+
+### NO RHETORICAL QUESTIONS
+
+**❌ BAD:**
+> What was she supposed to do now? How could she possibly survive this? Was there any hope left?
+
+**✅ GOOD — If Rachel questions something, make it concrete:**
+> She looked at the path ahead. Both directions looked wrong. The voice didn't offer guidance.
+
+### NO "LITTLE DID SHE KNOW" / FORESHADOWING
+
+**❌ BAD:**
+> She didn't know it yet, but this would be the last time she saw the sky.
+
+> If only she had realized what was waiting for her.
+
+**✅ GOOD — Just write the scene. Let tension come from the situation:**
+> She looked up at the sky. Wrong color. Wrong number of moons. She kept walking.
+
+### NO PERFECT DIALOGUE TAGS
+
+**❌ BAD — Dialogue tags that editorialize:**
+> "I can't do this," she admitted reluctantly.
+
+> "Follow me," it commanded authoritatively.
+
+> "Please," she begged desperately.
+
+**✅ GOOD — Simple tags, action beats, or nothing:**
+> "I can't do this." Her voice cracked.
+
+> "Follow me." It didn't wait for an answer.
+
+> "Please." The word came out smaller than she meant it to.
+
+### SENTENCE RHYTHM GUIDE
+
+Vary sentence length. Don't let them all be the same.
+
+**❌ BAD — Same length, same rhythm:**
+> Rachel walked down the corridor. The walls were made of stone. The light was dim and flickering. She heard something behind her. She started to run faster.
+
+**✅ GOOD — Varied rhythm creates tension:**
+> Rachel walked down the corridor. Stone walls. Dim light, flickering.
+> 
+> Something behind her.
+> 
+> She ran.
+
+### THE KING-ADJACENT VOICE
+
+Stephen King's prose is:
+- **Direct** — says what's happening without prettifying it
+- **Physical** — lives in the body, not the mind
+- **Rhythmic** — varies sentence length for effect
+- **Unflinching** — doesn't look away from ugly details
+- **Unpretentious** — no fancy vocabulary when simple words work
+
+**Sample of what we're going for:**
+> The guard's face folded inward. Not like paper—like meat. Rachel heard the sound it made and kept running anyway because stopping meant thinking about it and thinking about it meant throwing up.
+> 
+> The corridor bent. She bent with it.
+> 
+> *Left,* the voice said, and she went left before she could argue, boots skidding on stone that was suddenly wet with something she didn't want to identify.
+
+### SELF-CHECK BEFORE SUBMITTING
+
+After drafting, scan for:
+1. ❌ Any sentence starting with "Rachel realized..." or "She understood..."
+2. ❌ Any sentence containing "In that moment..."
+3. ❌ Any paragraph that summarizes what just happened
+4. ❌ Any run-on sentence with more than two commas
+5. ❌ Any fragment that doesn't serve a specific purpose
+6. ❌ Any dialogue tag fancier than "said" or an action beat
+7. ❌ Any rhetorical questions
+8. ❌ Any telling of emotions instead of showing
+
+**If you find these, rewrite them before submitting.**
+
+---
+
 ## PACING RULES (ENFORCED)
 
 - Danger begins immediately in every chapter
@@ -260,6 +400,7 @@ Rachel should have moments of:
 
 ## WHAT TO AVOID
 
+### Story-Level
 - ❌ Training arcs or "leveling up"
 - ❌ Power-fantasy moments where Rachel feels awesome
 - ❌ Cozy interludes or safe resting
@@ -268,6 +409,19 @@ Rachel should have moments of:
 - ❌ Rachel being passive or waiting for things to happen
 - ❌ Overexplaining the magic system
 - ❌ Flashbacks or memories that stop the action
+
+### Prose-Level (CRITICAL)
+- ❌ Summary sentences ("Rachel realized that...", "She understood now that...")
+- ❌ Thesis statements ("In that moment, everything changed")
+- ❌ Run-on sentences with 3+ clauses
+- ❌ Careless fragment sentences
+- ❌ Emotional labeling ("She felt terrified")
+- ❌ Rhetorical questions ("What was she supposed to do?")
+- ❌ Foreshadowing ("Little did she know...")
+- ❌ Fancy dialogue tags ("she admitted reluctantly")
+- ❌ Same-length sentences in a row
+- ❌ Paragraphs that recap what just happened
+- ❌ Any sentence that tells readers what to think
 
 ---
 
