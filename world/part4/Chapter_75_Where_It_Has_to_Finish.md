@@ -1,109 +1,53 @@
-# Chapter 75 — Where It Has to Finish
+# Chapter 73 — Leaving the Hold
 
-The woman was still shaking.
+The demons didn’t stop her. They didn’t bless her either.
 
-Not worse. Not better. Just there, the tremor running through her hands in a way that had stopped apologizing for itself. Someone had brought her a cloth at some point. She held it without using it.
+One of them handed her a folded paper. Not a contract. Just directions, the Relay’s location written in a hand that wasn’t quite writing.
 
-Lena stood beside her now, close enough to matter, far enough not to touch. She hadn’t tried to help again. She looked like she’d learned something she didn’t want.
+Rachel held it without opening it. The pressure in her chest knew where it pointed.
 
-A man stepped forward and crouched, reaching out as if to steady the woman’s wrist.
+She found Lena at the edge of the space, where *held* became *outside*. The boundary wasn’t a wall. It was a refusal. A line the room didn’t argue with.
 
-“No,” someone said immediately.
+Lena stepped forward and stopped, as if something had decided for her mid-stride. “Say it again,” she said, and Rachel realized she hadn’t heard the first words at all.
 
-The word cut clean.
+Rachel frowned. “I can’t hear you.”
 
-The man froze, hand hovering, then withdrew it slowly.
+Lena’s mouth moved. Nothing came with it.
 
-“That makes it spread,” the other voice said, not sharply, just certain. “You don’t anchor it by sharing it.”
+Rachel felt a cold pressure bloom behind her eyes. She could hear the hum of the room, a breath that wasn’t hers, the soft scrape of someone shifting a chair.
 
-The woman let out a breath she hadn’t finished taking and folded forward slightly, shoulders tight. Lena swore under her breath.
+She couldn’t hear Lena.
 
-Rachel felt the room tilt toward that sentence and lock there.
+“This is what leaving sounds like,” the voice said, calm and merciless.
 
-“So what,” she said, and didn’t recognize how flat her voice sounded. “You just let it do this.”
+Lena pressed her palm to the air between them. The space firmed. She said Rachel’s name again, louder.
 
-“No,” the voice replied. “We don’t finish it here.”
+Rachel watched her say it and felt the vibration without the sound.
 
-Finish what.
+She swallowed hard and nodded anyway.
 
-No one rushed to answer. The woman’s shaking didn’t stop. It just kept happening, small and relentless.
+“I’m here,” Lena mouthed.
 
-“This is attachment strain,” the man said finally, as if naming it would reduce it. “You stabilized one end and left the other live.”
+Rachel read her lips. “I know.”
 
-Rachel’s stomach dropped. “I didn’t know there was another end.”
+She looked down at the folded paper, then back at Lena, committing the shape of her to memory while it still held.
 
-“No,” the man agreed. “You wouldn’t have.”
+The boundary leaned. The room began to reconfigure its attention, making staying feel like a decision the space no longer allowed.
 
-Lena turned sharply. “What does that mean.”
+Rachel stepped forward.
 
-“It means,” someone else said, stepping in, “that what she did bought time. It didn’t complete the binding.”
+The space folded.
 
-Binding.
+The room behind her unstitched itself, seams coming apart without drama, replaced by a narrower passage that didn’t adjust for her. The floor wasn’t resisting anymore. It was guiding.
 
-The word sat there without decoration.
+She looked back once. Lena stood where the room wanted her to stand, steady and clear, one hand pressed flat against the line she couldn’t cross.
 
-Rachel swallowed. “Then complete it.”
+“Go,” she mouthed.
 
-A pause. A real one this time.
+Rachel couldn’t hear it. She still obeyed.
 
-“Not here,” they said.
+The world outside was cold and loud and full of things that wanted her.
 
-Lena shook her head. “Why not.”
+*Now we move,* the voice said.
 
-“Because proximity keeps it diffused,” came the answer. “It keeps looking for bodies. It won’t settle as long as there’s anyone else close enough to carry part of it.”
-
-Rachel looked at the woman, still shaking, at the way the room kept adjusting around her instead of resolving her. Something inside Rachel pulled tight and didn’t release.
-
-“So what,” Rachel said again. “I just walk far enough away.”
-
-“No,” the man said. “You go to where these things finish.”
-
-Lena went very still. “Where.”
-
-The answer came without ceremony. “The place that holds the remainder. Where incomplete bindings are drawn to ground out.”
-
-“That’s not a place,” Lena said. “That’s a sentence.”
-
-Someone exhaled. “It’s not close.”
-
-Rachel felt cold spread under her ribs. “Can she come.”
-
-The silence that followed was different. Not careful. Not polite.
-
-“No,” they said.
-
-Lena turned on them. “You don’t get to say that.”
-
-“We do,” the voice replied, and for the first time there was something immovable in it. “Because if she does, it resets the diffusion.”
-
-Lena looked at Rachel, eyes bright and furious. “Then we don’t do it.”
-
-Rachel shook her head, already. She could feel it now — not the shaking, not the pull, but the shape of the thing she’d left unfinished, the way it kept reaching outward because she hadn’t closed it.
-
-“If I stay,” Rachel said, “this keeps happening.”
-
-No one argued.
-
-“If I leave,” she said, and didn’t finish the thought.
-
-“You finish it,” they said.
-
-“And then what.”
-
-A pause. Smaller. Less rehearsed.
-
-“Then it stops looking,” someone said. “For anyone else.”
-
-The woman on the floor let out a sound, low and exhausted, and leaned her forehead against her knees. Lena knelt beside her without touching.
-
-Rachel watched the two of them and felt something in her chest break cleanly instead of tearing.
-
-*You knew this was half-done,* the voice said quietly. *You just hoped it wouldn’t show.*
-
-Rachel closed her eyes once.
-
-“Tell me where,” she said.
-
-The room shifted — not in resistance, not in relief. In recognition.
-
-Someone began to explain.
+Rachel ran.

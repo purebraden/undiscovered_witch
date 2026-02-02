@@ -1,127 +1,31 @@
-# Chapter 69 — The Shape That Settles
+# Chapter 67 — What Wants Her Dead
 
-Rachel realized something had changed because no one waited.
+The presence was there when Rachel looked for it. Or it was there before she did. The space didn’t make that distinction easy.
 
-Lena shifted first, leaning back without looking for permission, and the space adjusted around her in one smooth motion, like it had been anticipating the change. Rachel followed a half second later and felt the familiar drag, the moment where the floor hesitated, then complied in pieces.
+She sat across from it, the floor steady under her, the pressure in her chest taut and alert.
 
-Someone was already talking.
+“What wants me dead,” she asked.
 
-“—better like this,” a voice said, not aimed at anyone in particular.
+It considered her. “Several things. Be specific.”
 
-Lena blinked. “Sorry?”
+Rachel held the word in her mouth, turned it once. “What wanted the summoning to succeed.”
 
-The person smiled. “The angle. It settles faster when you’re comfortable.”
+“The Convocation,” it said. “They funded the circle. They lost control when it broke.”
 
-Rachel frowned. “Settles what.”
+Rachel felt the pressure tighten. The word Convocation landed like a label on something she hadn’t been able to name.
 
-Another voice answered, overlapping the first. “The drift.”
+“Why do they want me,” she asked.
 
-“The tension,” someone else added.
+It didn’t hesitate. “They don’t want you. They want what’s inside you. You’re the seal they didn’t mean to make.”
 
-“It’s minor,” a third said. “But it accumulates.”
+The voice inside her tightened. *Don’t ask the next question.*
 
-Lena looked around. “I didn’t notice anything was wrong.”
+Rachel asked anyway. “What happens if they get it.”
 
-“That’s the point,” the first voice said warmly.
+The presence’s expression didn’t change. “The binding breaks. You die. It moves to something else.”
 
-Rachel opened her mouth. “I think—”
+Rachel sat very still and let the answer settle. It wasn’t fear that landed first. It was clarity.
 
-“—you don’t need to worry,” someone said, not to her, already leaning toward Lena. “It’s correcting.”
+She wasn’t the target.
 
-“Correcting for what,” Rachel asked, louder now.
-
-“For efficiency,” the answer came immediately, and then, softer, “Not you.”
-
-Lena shook her head. “You’re talking around her.”
-
-“We’re talking with you,” someone said, gently correcting the phrasing.
-
-“And she’s here,” another added, glancing at Rachel briefly, like checking a box.
-
-Rachel laughed, sharp. “That’s not the same thing.”
-
-“It doesn’t have to be,” someone said, already moving a low seat closer to Lena. “You’re stable. We can work from that.”
-
-“I’m not doing anything,” Lena said.
-
-“That’s why it holds,” two voices said at once, one amused, one relieved.
-
-Rachel shifted, felt the floor catch too late, then too much, the correction clumsy enough that someone nearby winced in sympathy.
-
-“You don’t have to mirror her,” a voice said, and Rachel couldn’t tell if it was advice or instruction. “It introduces lag.”
-
-“I wasn’t—” Rachel started.
-
-“—we know,” another voice said. “You’re responsive. That’s the issue.”
-
-Lena frowned. “What issue.”
-
-A pause, brief but coordinated, like several people deciding who should answer.
-
-“Variation,” someone said.
-
-“Noise,” said another.
-
-“Excess,” a third added, then smiled apologetically at Rachel. “Not morally.”
-
-Rachel’s ears rang. “You’re describing me like I’m not—”
-
-“—a person,” Lena finished, sharp now.
-
-“No,” the response came quickly, overlapping itself. “No, of course not.”
-
-“Just not a reference point,” someone clarified.
-
-“We don’t orient to you,” another said, still looking at Lena. “We orient around her.”
-
-The space shifted again, smoother this time, everything aligning subtly toward Lena’s position, sightlines adjusting, movement redistributing without anyone consciously directing it.
-
-Rachel stood up.
-
-The movement broke the conversational rhythm for half a second.
-
-Then it continued without her.
-
-“You don’t need to relocate,” someone said. “It won’t help.”
-
-“I wasn’t going to leave,” Rachel said.
-
-“We know,” came the reply, kind, overlapping with another voice saying, “She carries it with her.”
-
-“Carries what,” Rachel asked.
-
-“Distortion,” someone said.
-
-“Pull,” said another.
-
-“Questions,” a third added, smiling at her like this was a shared joke.
-
-Lena stepped between them. “Stop.”
-
-The conversations didn’t stop. They bent.
-
-“She’s upset,” someone said, concerned.
-
-“That’s expected,” another replied. “It’s a transitional response.”
-
-Rachel felt the floor steady under Lena’s feet as she shifted again, the motion absorbed cleanly, silently.
-
-When Rachel shifted to match it, the space stuttered.
-
-There it is, the voice said quietly. That’s the difference.
-
-Rachel swallowed. “I’m right here.”
-
-“Yes,” someone said, sincerely. “That’s what makes this difficult.”
-
-Around Lena, things finished settling. The last faint adjustments eased out of the room like a held breath finally released.
-
-Rachel stayed standing because sitting felt like agreeing.
-
-No one asked her to sit.
-
-No one needed to.
-
-She felt, with a clarity that hurt more than fear, that the space had found its preferred shape.
-
-And she wasn’t it.
+She was the cage.

@@ -40,7 +40,7 @@ The arc ends with Rachel choosing to leave Lena behind—not because Lena asks h
 
 ## Part 4 Chapter Breakdown
 
-### Chapter 64 — Still Here
+### Chapter 62 — Still Here
 **Goal:** Establish the new status quo—safety that doesn't feel safe.
 
 Rachel wakes (or comes to awareness—she may not have truly slept) in the demon space. The first thing she notices: no one is chasing her. The absence of pursuit feels wrong, like holding her breath waiting for a blow that doesn't come.
@@ -55,7 +55,7 @@ Rachel asks Lena how she feels. Lena says she feels okay. Better. The word "bett
 
 ---
 
-### Chapter 65 — The Shape of Asking
+### Chapter 63 — The Shape of Asking
 **Goal:** Rachel's first attempt to get answers from the demons.
 
 One of them approaches—or was always there, Rachel can't tell. It doesn't introduce itself. It waits.
@@ -78,7 +78,7 @@ The voice inside Rachel observes: *You're asking around the thing instead of at 
 
 ---
 
-### Chapter 66 — What the Room Remembers
+### Chapter 64 — What the Room Remembers
 **Goal:** Rachel learns the space holds memory—and other registered people.
 
 She explores (within limits the room allows). She finds others—humans who signed, beings that were never human, things that exist in the margins. Some speak. Most don't.
@@ -95,7 +95,7 @@ The voice stirs: *That one knows.*
 
 ---
 
-### Chapter 67 — The Binding's Purpose
+### Chapter 65 — The Binding's Purpose
 **Goal:** Rachel confronts the demon inside her directly.
 
 Night (or what passes for it). Lena sleeps, steady and unmoving. Rachel sits alone, the room dim, the hum low.
@@ -118,7 +118,7 @@ The implications settle. She's a vehicle. A container. The summoning wasn't abou
 
 ---
 
-### Chapter 68 — Lena's Question
+### Chapter 66 — Lena's Question
 **Goal:** The first real conversation about Rachel leaving.
 
 Rachel finds Lena in what passes for a common space. They sit together, the resistance between them a constant presence.
@@ -141,7 +141,7 @@ Lena: "So whatever you're supposed to do—you have to figure it out. Because I 
 
 ---
 
-### Chapter 69 — What Wants Her Dead
+### Chapter 67 — What Wants Her Dead
 **Goal:** Rachel asks the right question.
 
 She returns to the demon who answered before. This time she asks: "What wants me dead?"
@@ -166,7 +166,7 @@ The demon's expression doesn't change. *The binding breaks. You die. It moves to
 
 ---
 
-### Chapter 70 — The Convocation
+### Chapter 68 — The Convocation
 **Goal:** Rachel learns about her hunters.
 
 Through careful questions, Rachel pieces together:
@@ -186,7 +186,7 @@ A long pause. *Incomplete.*
 
 ---
 
-### Chapter 71 — What She Could Do
+### Chapter 69 — What She Could Do
 **Goal:** Rachel learns she has options—none of them good.
 
 She asks the demons what her choices are:
@@ -205,7 +205,7 @@ Rachel: "I'm considering all of them."
 
 ---
 
-### Chapter 72 — The Original Destination
+### Chapter 70 — The Original Destination
 **Goal:** Rachel learns where the demon was meant to go.
 
 The binding was incomplete because the circle broke. The demon was being transferred *from* somewhere—a holding space, a prison, something like this place but worse.
@@ -226,7 +226,7 @@ Rachel: "Do you want to go there?"
 
 ---
 
-### Chapter 73 — Not a Tool
+### Chapter 71 — Not a Tool
 **Goal:** Rachel and the demon reach a new understanding.
 
 Alone in the dark. Rachel addresses the voice directly.
@@ -249,7 +249,7 @@ Rachel understands now. The demon doesn't want freedom—it wants to stop being 
 
 ---
 
-### Chapter 74 — Telling Lena
+### Chapter 72 — Telling Lena
 **Goal:** The hardest conversation.
 
 Rachel finds Lena. The resistance between them feels thicker now, or maybe Rachel is more aware of it.
@@ -280,7 +280,7 @@ They sit in silence. Lena reaches out—the resistance pushes back, but she push
 
 ---
 
-### Chapter 75 — Leaving the Hold
+### Chapter 73 — Leaving the Hold
 **Goal:** Rachel departs. Part 4 ends.
 
 The demons don't stop her. They don't bless her either. One of them hands her a folded paper—not a contract, just directions. The Relay's location, written in a hand that isn't quite writing.
@@ -338,6 +338,6 @@ Rachel runs.
 
 ## Word Count Targets
 
-- 12 chapters (64-75)
+- 12 chapters (62-73)
 - ~2,000-2,400 words per chapter
 - Total Part 4: ~24,000-29,000 words

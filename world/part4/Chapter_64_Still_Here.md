@@ -1,4 +1,4 @@
-# Chapter 64 — Still Here
+# Chapter 62 — Still Here
 
 Rachel came back to herself without a clean edge.
 
@@ -62,70 +62,10 @@ Rachel shifted her weight. For the first time since the circle broke, nothing de
 
 She didn’t know what to do with that.
 
-Something settled within her line of sight.
+Something moved at the edge of her sight, a shape that might have been a person or a rule, but it didn’t come closer. It didn’t have to. The space held, quiet and patient.
 
-It hadn’t approached. It hadn’t crossed distance. It simply occupied a place that felt reserved for it, its form close enough to familiar to unsettle, features aligning and misaligning as if certainty were optional.
+Rachel sat beside Lena, hands braced on the floor. For the first time since the circle broke, nothing was trying to kill her.
 
-Rachel watched it for a moment before speaking. It waited.
+That felt worse than running.
 
-“Why does it feel different?” she asked.
-
-It smiled slightly. Not kind. Not unkind. Familiar in the way a stranger’s face sometimes was, like it reminded her of someone she couldn’t quite place.
-
-“Because you stopped running,” it said.
-
-“I didn’t choose that.”
-
-“No,” it agreed. “You reached the end of what movement could do for you.”
-
-“That’s not an answer.”
-
-“It is,” it said softly. “Just not the one you were hoping for.”
-
-Lena shifted beside her. “Is it done?” she asked. The question landed carefully, like she didn’t want to break anything. “What was happening to me.”
-
-The presence turned its attention to her. Its expression gentled in a way that made Rachel’s stomach twist.
-
-“Yes,” it said. “That part is finished.”
-
-Lena let out a slow breath. “So I’m… okay?”
-
-“You’re where you belong,” it said. “That’s why it feels like relief.”
-
-Rachel felt the pressure in her chest tighten, alert.
-
-“And me?” she asked. “What am I supposed to be now?”
-
-The presence studied her. “You ask that like you think there’s an answer waiting.”
-
-“There was a circle,” Rachel said. “Someone wanted something.”
-
-“Yes,” it said. “And they didn’t get it.”
-
-“Because of me?”
-
-It considered her long enough that she felt the urge to fill the silence and didn’t.
-
-“No,” it said. “Because you changed what you were holding.”
-
-The pressure stirred, pleased and wary all at once.
-
-Lena looked between them. “What does that mean for her?”
-
-The presence didn’t answer immediately. When it did, it spoke to Rachel, not Lena.
-
-“It means you’re inconvenient,” it said. “And inconvenience lasts longer than obedience.”
-
-Rachel swallowed. “So what do I do?”
-
-The presence smiled again, smaller this time. “You’re not ready for that question yet.”
-
-Rachel felt irritation rise. “Then tell me what I should be asking.”
-
-It shook its head, almost fond. “I won’t. You’ll ask it when you’re willing to hear the answer.”
-
-The space seemed to pause around them, not stilling, just listening.
-
-Rachel stayed where she was, muscles coiled despite the calm, aware of the distance she couldn’t cross and the stillness she hadn’t earned.
-
-*Not yet,* the voice said.
+She didn’t know what to do with herself when nothing was chasing her.
