@@ -1316,9 +1316,9 @@ This was no longer routine.
 
 # Chapter 9 — Not Lifted Gently
 
-They did not lift her gently.
+They didn't lift her gently.
 
-They lifted her like a problem that had to be moved before it got worse, hands under her shoulders and hips and then a shift of weight that tore a sound out of her throat when her bandaged leg dragged across the stone. Rachel tried to help out of reflex, tried to make herself smaller and easier, but her body did not have the coordination for it, pain and shock eating the space between thought and motion.
+They lifted her like a problem that had to be moved before it got worse, hands under her shoulders and hips and then a shift of weight that tore a sound out of her throat when her bandaged leg dragged across the stone. Rachel tried to help out of reflex, tried to make herself smaller and easier, but her body didn't have the coordination for it, pain and shock eating the space between thought and motion.
 
 "Keep her inside the circle," someone said, and another voice answered, "The circle's compromised."
 
@@ -1328,28 +1328,26 @@ The fractured line in the floor sat under her like a broken boundary, the crack 
 
 Something brushed her ribs from the inside.
 
-The pressure.
-
-It was not pulling now. It was braced, like an elbow jammed into a door.
+The thing. It wasn't pulling now. It was braced, like an elbow jammed into a door.
 
 They carried her out through the corridor, the air changing as they crossed thresholds, the light shifting from thin and clinical to warmer and dirtier, noise rising in layers ahead. Somewhere behind them, someone was talking quickly, listing steps, counting failures.
 
-"...device is dead. Circle line is-"
-"-don't say it like that."
-"-it is compromised-"
-"-move."
+"...device is dead. Circle line is—"
+"—don't say it like that."
+"—it is compromised—"
+"—move."
 
-The hall came back at her in a blur, the smell of oil and sweat and stone dust, the constant movement of people who did not stop just because one thing had gone wrong. Heads turned as she passed, not gawking, not dramatic, quick glances that snapped back to work.
+The hall came back at her in a blur, the smell of oil and sweat and stone dust, the constant movement of people who didn't stop just because one thing had gone wrong. Heads turned as she passed, not gawking, not dramatic, quick glances that snapped back to work.
 
 Rachel's leg throbbed with each jolt of the carry. The bandage felt too tight now, like the swelling had decided to catch up all at once, and her stomach rolled hard enough that she made a low sound and someone swore.
 
-"Set her down," a voice said, and then, "No - keep moving."
+"Set her down," a voice said, and then, "No—keep moving."
 
-They did not set her down.
+They didn't set her down.
 
-They angled away from the tables and the groove, away from the visible lines that told the hall how to behave, and Rachel felt the pressure shift against her ribs as if it noticed the change too, the same sideways lean that had gotten her caught before.
+They angled away from the tables and the groove, away from the visible lines that told the hall how to behave, and Rachel felt the thing shift against her ribs as if it noticed the change too, the same sideways lean that had gotten her caught before.
 
-A door appeared in the stone wall where she had not noticed one earlier, darker than the surrounding rock, its edges cut clean. They pushed through it without slowing.
+A door appeared in the stone wall where she hadn't noticed one earlier, darker than the surrounding rock, its edges cut clean. They pushed through it without slowing.
 
 Inside was quieter.
 
@@ -1357,11 +1355,13 @@ Not safe quiet.
 
 Work quiet.
 
-The room was narrow and bright, lit from slits high above, the floor stained in pale ghosts of older spills. A bench ran along one wall. Along the other stood a table with straps folded on top of it as if they had been set down between uses.
+The room was narrow and bright, lit from slits high above, the floor stained in pale ghosts of older spills. A bench ran along one wall. Along the other stood a table with straps folded on top of it as if they'd been set down between uses.
 
 Rachel's throat tightened.
 
-They laid her on the bench instead of the table, not because they were kind but because her leg would not tolerate the height without her screaming, and screaming drew attention in this place the way blood drew flies.
+Straps. That's a table with straps. They're going to—
+
+They laid her on the bench instead of the table, not because they were kind but because her leg wouldn't tolerate the height without her screaming, and screaming drew attention in this place the way blood drew flies.
 
 Someone pressed a hand to her shoulder. "Look at me."
 
@@ -1379,19 +1379,21 @@ Rachel's heart jumped.
 
 "No," she said, or tried to. It came out thin.
 
-The pressure pinched once, quick and unpleasant.
+No no no please no—
+
+The thing pinched once, quick and unpleasant.
 
 Someone approached with a vial and a cloth. Rachel turned her head, tried to pull away, but hands caught her forearm and wrist, firm and controlled.
 
 "Just a little," the calm voice said. "We're not hurting you."
 
-The words did not match the room. They did not match the straps waiting nearby.
+The words didn't match the room. They didn't match the straps waiting nearby.
 
-Rachel inhaled and the cloth pressed to her face smelled sharply of something herbal and chemical at the same time. She tried to hold her breath. It did not matter.
+Rachel inhaled and the cloth pressed to her face smelled sharply of something herbal and chemical at the same time. She tried to hold her breath. It didn't matter.
 
 The room slid.
 
-Thought softened at the edges. The pressure did not disappear, but it loosened the wrong way, like a rope going slack because the knot had shifted.
+Thought softened at the edges. The thing didn't disappear, but it loosened the wrong way, like a rope going slack because the knot had shifted.
 
 Her eyelids grew heavy.
 
@@ -1409,13 +1411,13 @@ Not a voice.
 
 A decision.
 
-The pressure returned before she did.
+The thing returned before she did.
 
 It came in at an angle, not pulling forward or back but up, like something had hooked under her sternum and tried to lift her out of herself. Rachel's eyes snapped open without her choosing it. Her breath tore in.
 
 Hands tightened.
 
-"What-"
+"What—"
 
 The room felt wrong, distances slipping. Rachel gagged against the cloth still near her mouth.
 
@@ -1423,7 +1425,7 @@ The room felt wrong, distances slipping. Rachel gagged against the cloth still n
 
 Someone pressed her shoulder.
 
-The pressure flared sideways.
+The thing flared sideways.
 
 Not at them. Past them.
 
@@ -1435,7 +1437,7 @@ Rachel lay there breathing too fast, half-awake and wrong.
 
 The person with the vial stared at it as if it had changed.
 
-"It shouldn't-"
+"It shouldn't—"
 
 "It didn't," another voice cut in.
 
@@ -1445,7 +1447,7 @@ The person with the vial stared at it as if it had changed.
 
 "Use the strip."
 
-A narrow band was pulled from a drawer and brought toward Rachel's chest. As it neared her skin, the pressure went still again, the held-breath absence returning, and the strip's edge curled slightly as if the air had thickened.
+A narrow band was pulled from a drawer and brought toward Rachel's chest. As it neared her skin, the thing went still again, the held-breath absence returning, and the strip's edge curled slightly as if the air had thickened.
 
 The handler hesitated.
 
@@ -1465,9 +1467,11 @@ Silence shifted.
 
 "Again," the calm voice said.
 
-The strip hovered above Rachel's sternum this time, not touching. The pressure leaned outward.
+The strip hovered above Rachel's sternum this time, not touching. The thing leaned outward.
 
 It darkened anyway.
+
+What the hell is happening? What are they seeing?
 
 "That's not possible," someone whispered.
 
@@ -1483,7 +1487,7 @@ The words changed the room.
 
 Someone swore softly. Someone else started to object and stopped.
 
-They lifted Rachel again, faster now, not careful with her leg because the priority had changed. She made a sound she could not stop, and the pressure braced hard in her ribs, keeping her from folding.
+They lifted Rachel again, faster now, not careful with her leg because the priority had changed. She made a sound she couldn't stop, and the thing braced hard in her ribs, keeping her from folding.
 
 They moved through a back corridor, light thinner, air colder, sound falling away. Rachel tried to track turns. Left. Right. Down. Her thoughts dragged, sedation still thick.
 
@@ -1505,19 +1509,21 @@ The channel began to move.
 
 Behind her, the calm voice spoke again, not reassurance or threat, just procedure. "If it spikes, drop her."
 
+Drop her. If what spikes? What are they—
+
 Rachel tried to turn her head. The motion of the channel stole it.
 
-The corridor slid past, light stretching and thinning, and Rachel clung to the rail as the pressure in her chest settled heavy and focused, not pulling toward safety or away from danger, just holding her in a line that did not belong to her.
+The corridor slid past, light stretching and thinning, and Rachel clung to the rail as the thing in her chest settled heavy and focused, not pulling toward safety or away from danger, just holding her in a line that didn't belong to her.
 
-She did not know where they were taking her.
+She didn't know where they were taking her.
 
 She knew it was worse.
 
 The channel carried her longer than the first time.
 
-Rachel clung to the rail with fingers that did not quite feel like hers, her grip tightening and loosening in small involuntary pulses as the vibration traveled up her arms and settled in her shoulders. The corridor slid past in stretched bands of light and shadow, the air thinning and cooling in a way that made her lungs ache on the inhale, and the pressure in her chest stayed heavy and focused, not pulling her toward safety or away from danger, just keeping her aligned with motion.
+Rachel clung to the rail with fingers that didn't quite feel like hers, her grip tightening and loosening in small involuntary pulses as the vibration traveled up her arms and settled in her shoulders. The corridor slid past in stretched bands of light and shadow, the air thinning and cooling in a way that made her lungs ache on the inhale, and the thing in her chest stayed heavy and focused, not pulling her toward safety or away from danger, just keeping her aligned with motion.
 
-Her leg throbbed in a steady, deep rhythm under the bandage, the pain spreading when she shifted her weight and narrowing to a hot point when she held still. She tried to find a position that did not make her want to vomit and failed, and somewhere behind her the words If it spikes, drop her replayed as if her brain had latched onto them for something to hold.
+Her leg throbbed in a steady, deep rhythm under the bandage, the pain spreading when she shifted her weight and narrowing to a hot point when she held still. She tried to find a position that didn't make her want to vomit and failed. Somewhere behind her the words If it spikes, drop her replayed as if her brain had latched onto them for something to hold.
 
 The channel bent.
 
@@ -1525,15 +1531,15 @@ It descended.
 
 The light thinned.
 
+Where are they taking me? Deeper. They're taking me deeper.
+
 Rachel's stomach rolled hard and she swallowed against it, eyes fixed forward because looking anywhere else made the moving walls feel too close.
 
-The pressure eased for half a second.
+The thing eased for half a second.
 
-Not relief.
+Not relief. A recalculation.
 
-A recalculation.
-
-Then it pressed again, slightly off-center, as if the line she was on was not the one the world preferred.
+Then it pressed again, slightly off-center, as if the line she was on wasn't the one the world preferred.
 
 Rachel tightened her grip and rode it.
 
@@ -1541,23 +1547,25 @@ The channel slowed.
 
 The vibration softened.
 
-Ahead, the corridor widened into a rough-cut opening that did not match the clean stone she had seen in the processing hall. The edges were uneven, tool marks visible in the rock, and the air that seeped out carried a different smell, damp earth and old smoke, something faintly animal beneath it.
+Ahead, the corridor widened into a rough-cut opening that didn't match the clean stone she'd seen in the processing hall. The edges were uneven, tool marks visible in the rock, and the air that seeped out carried a different smell—damp earth and old smoke, something faintly animal beneath it.
 
 The channel stopped.
 
 Rachel loosened her fingers with effort, her hands tingling as she let go, and stepped out onto stone that felt less finished under her boots, grittier, dust catching in the seams.
 
-Behind her, the channel did not seal smoothly this time.
+Behind her, the channel didn't seal smoothly this time.
 
 The stone hesitated, as if deciding whether it was allowed to close at all, and then slid partway, leaving a narrow gap of darkness where it should have been seamless.
 
 Rachel stared at it.
 
-The pressure tightened.
+That's wrong. That's not supposed to happen. Even I can tell that's not supposed to happen.
+
+The thing tightened.
 
 She turned away.
 
-The corridor ahead was narrower and lower than the hallways she had been moved through before, the ceiling dipping in places where the rock bulged, forcing her to duck. Light came from small openings cut into the wall at irregular intervals, dim and yellowed, more like lantern light than the steady white she had grown used to.
+The corridor ahead was narrower and lower than the hallways she'd been moved through before, the ceiling dipping in places where the rock bulged, forcing her to duck. Light came from small openings cut into the wall at irregular intervals, dim and yellowed, more like lantern light than the steady white she'd grown used to.
 
 No voices.
 
@@ -1565,35 +1573,35 @@ No footsteps.
 
 No carts.
 
-The silence here was not absence. It was ownership.
+The silence here wasn't absence. It was ownership.
 
 Rachel limped forward, one hand skimming the wall for balance. The sedation still dragged at her thoughts, making everything feel a fraction delayed. She tried to count her steps to keep herself present and lost the numbers twice.
 
-The pressure stayed heavy.
+The thing stayed heavy.
 
-It did not tug her forward so much as keep her from stopping, tightening when she hesitated and easing when she moved, a simple brutal agreement, motion in exchange for air.
+It didn't tug her forward so much as keep her from stopping, tightening when she hesitated and easing when she moved, a simple brutal agreement—motion in exchange for air.
 
 The corridor opened into a larger space.
 
-Not a hall.
-
-Not a room.
+Not a hall. Not a room.
 
 A chamber that looked like it had been repurposed and then repurposed again, stone walls pocked with old bolt holes, stains in irregular arcs where something had once been mounted and removed. The floor dipped toward the center, and there a shallow depression held a dark patch that might have been water or old burn.
 
-A metal frame stood near one wall, not the same as the one she had broken, but close enough that her stomach clenched anyway. Beside it, a rack of objects hung in neat order, thin rods, loops of chain, a curved tool with a blunt edge that caught the dim light.
+A metal frame stood near one wall, not the same as the one she'd broken, but close enough that her stomach clenched anyway. Beside it, a rack of objects hung in neat order—thin rods, loops of chain, a curved tool with a blunt edge that caught the dim light.
+
+Oh god. Oh god, what is this place?
 
 Rachel stopped without meaning to.
 
-The pressure tightened hard.
+The thing tightened hard.
 
 She breathed in sharply and felt the air scrape.
 
 Her leg shook.
 
-The chamber was not empty.
+The chamber wasn't empty.
 
-A person sat in the far corner on a low stool, elbows on their knees, head bowed as if they had been waiting long enough to get tired of looking up. They wore plain clothing, darker than the stone, and their hair was cut short.
+A person sat in the far corner on a low stool, elbows on their knees, head bowed as if they'd been waiting long enough to get tired of looking up. They wore plain clothing, darker than the stone, and their hair was cut short.
 
 As Rachel stepped forward, the person lifted their head.
 
@@ -1603,7 +1611,7 @@ Assessing.
 
 Rachel's mouth dried.
 
-She took another step and the pressure eased by a fraction, enough that she could inhale without her ribs protesting. The relief was small and immediate.
+She took another step and the thing eased by a fraction, enough that she could inhale without her ribs protesting. The relief was small and immediate.
 
 The person in the corner stood.
 
@@ -1621,9 +1629,11 @@ Rachel swallowed. "Where is here?"
 
 The person snorted softly. "A place they pretend isn't part of the system. A place where mistakes go to stop being mistakes."
 
+Mistakes. I'm a mistake now. That's what I am to them.
+
 Rachel's pulse sped.
 
-The pressure in her chest shifted, pressing at an angle that made her want to turn her body slightly.
+The thing in her chest shifted, pressing at an angle that made her want to turn her body slightly.
 
 The person watched that too.
 
@@ -1655,13 +1665,13 @@ Lena's mouth tightened. "I'm not. I'm telling you what's true."
 
 Rachel shifted her weight and her leg flared with pain. She hissed and braced herself against the wall.
 
-The pressure eased.
+The thing eased.
 
 Lena's eyes flicked to Rachel's hand, then to the corridor behind her.
 
 "You're bleeding under that wrap," Lena said. "And you're drugged."
 
-Rachel did not answer.
+Rachel didn't answer.
 
 Lena's gaze moved to the rack of tools.
 
@@ -1679,17 +1689,21 @@ Lena's eyes went distant for a heartbeat.
 
 Rachel felt a small shift under her ribs, not a pull but a tightening in place.
 
+She knows. She can see it. She knows what's inside me.
+
 Lena stepped back.
 
 "Do you know what they do when they decide you're concurrent," Lena asked.
 
-Rachel did not answer.
+Rachel didn't answer.
 
 "They cut," Lena said. "They cut until the overlap stops. If it doesn't stop, they cut more. If it still doesn't stop, they stop calling it a person."
 
 Rachel's stomach lurched.
 
-The pressure tightened.
+Cut. They're going to cut me open to get at it.
+
+The thing tightened.
 
 "You have one advantage," Lena said. "They're scared of you. That buys you seconds. Not mercy."
 
@@ -1705,7 +1719,7 @@ Stone sliding.
 
 Slow.
 
-The pressure went still.
+The thing went still.
 
 Held breath.
 
@@ -1719,13 +1733,13 @@ The stone ground again.
 
 The gap widened.
 
-The pressure leaned, just slightly, toward the tools.
+The thing leaned, just slightly, toward the tools.
 
 # Chapter 10 — The Tools
 
-Rachel did not move toward the tools.
+Rachel didn't move toward the tools.
 
-The pressure leaned that way anyway, subtle at first and then more insistent, the same sideways insistence she had learned to recognize, the promise of motion if she followed and the threat of collapse if she did not, and she stood there with her hand braced against the wall, her leg shaking hard enough now that she could feel it up through her hip.
+The thing leaned that way anyway, subtle at first and then more insistent, the same sideways insistence she'd learned to recognize—the promise of motion if she followed and the threat of collapse if she didn't—and she stood there with her hand braced against the wall, her leg shaking hard enough now that she could feel it up through her hip.
 
 "Don't," Lena said quietly.
 
@@ -1735,39 +1749,43 @@ Lena stood farther back than before, one shoulder nearly touching the stone, her
 
 "They want you to choose fast," Lena said. "That's how they keep it clean."
 
-The pressure tightened in response, sharp enough that Rachel sucked in a breath and tasted metal.
+The thing tightened in response, sharp enough that Rachel sucked in a breath and tasted metal.
 
 "They're coming," Rachel said, the words scraping on the way out.
 
 "I know," Lena said. "That's why I'm still here."
 
-The chamber felt smaller now, the walls pressing in by degrees the way the corridors had earlier, and under that was the other pressure, the one that did not care about walls or exits or tools, only outcomes. Rachel looked back at the rack and felt how easy it would be to reach for something, anything, to hurt first and make herself impossible to handle.
+The chamber felt smaller now, the walls pressing in by degrees the way the corridors had earlier, and under that was the other presence, the one that didn't care about walls or exits or tools, only outcomes. Rachel looked back at the rack and felt how easy it would be to reach for something, anything, to hurt first and make herself impossible to handle.
 
 The thought slid into place too smoothly.
+
+That's not me. That thought isn't mine. It's putting things in my head now.
 
 She hated that.
 
 Rachel turned back to Lena. "If I stay," she said, and her voice shook despite her effort to keep it steady, "does it make it worse for you."
 
-Lena did not answer right away.
+Lena didn't answer right away.
 
 The pause stretched just long enough to tell the truth.
 
 "Yes," Lena said finally. "Eventually."
 
-The pressure pressed harder, almost pleased, and Rachel felt it like fingers tightening under her ribs.
+The thing pressed harder, almost pleased, and Rachel felt it like fingers tightening under her ribs.
 
 She took a step toward Lena.
 
-The pressure flared sharp and angry, no longer nudging but resisting, a sudden tightness that stole half her breath and sent sparks across her vision. Rachel gasped and nearly went down, her hand slapping the wall as her balance gave.
+The thing flared sharp and angry, no longer nudging but resisting, a sudden tightness that stole half her breath and sent sparks across her vision. Rachel gasped and nearly went down, her hand slapping the wall as her balance gave.
 
 Lena moved without thinking, crossing the space and catching Rachel under the arm before she could slide, the contact brief but solid, human weight and heat anchoring her just long enough to matter.
 
-The pressure recoiled.
+The thing recoiled.
 
 Not gone.
 
 Offended.
+
+It doesn't want me touching her. It doesn't want me connecting with anyone.
 
 Rachel leaned into Lena's shoulder, breathing hard, aware of how wrong her body felt, how close she was to folding completely if she let go.
 
@@ -1785,7 +1803,7 @@ Rachel met her eyes. "I don't have a halfway."
 
 Another grinding sound followed, slower and heavier, and a shadow passed across the gap without rushing.
 
-The pressure surged, no longer subtle, a hard shove toward the rack that made Rachel's teeth clack together. She hissed and planted her feet, pain tearing through her leg as she resisted, breath coming in sharp, ugly pulls.
+The thing surged, no longer subtle, a hard shove toward the rack that made Rachel's teeth clack together. She hissed and planted her feet, pain tearing through her leg as she resisted, breath coming in sharp, ugly pulls.
 
 Lena swore. "It's pushing."
 
