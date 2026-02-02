@@ -5502,7 +5502,7 @@ The sound of Mara’s breath reached the room before her chest finished rising.
 
 Then came the footsteps.
 
-Not the careful ones. Not escort shoes trying not to make a room notice them. These were heavier, confident, synchronized in a way that made Rachel’s stomach clench. A transfer team didn’t sneak.
+Not the careful ones. Not escort shoes trying not to make a room notice them. These were heavier, confident, synchronized enough to make Rachel’s stomach clench. A transfer team didn’t sneak.
 
 The wall plate brightened, and the voice returned with that same calm that didn’t belong in a place where time was coming apart.
 
@@ -6116,7 +6116,7 @@ It wasn’t a room.
 
 The air smelled sharp and sweet, ozone and something like rain trapped underground, and every sound she made came back altered, breath returning half a beat late, the scrape of her sleeve echoing longer than it should have.
 
-She pushed herself up and immediately regretted it as her vision washed pale, pressure inside her chest shifting forward in response, attentive in a way that made her skin crawl.
+She pushed herself up and immediately regretted it as her vision washed pale, pressure inside her chest shifting forward in response, attentive enough to make her skin crawl.
 
 Careful, it warned.
 
@@ -6303,7 +6303,7 @@ Boots sounded somewhere distant.
 Not above.  
 Not below.
 
-Close in a way that didn’t respect the geometry of the room.
+Close enough to ignore the geometry of the room.
 
 Rachel felt it immediately—the pressure inside her tightening, attention snapping toward the sound like it had been waiting for confirmation.
 
@@ -6909,7 +6909,7 @@ She takes another.
 
 “Rachel,” Lena says again, sharper now.
 
-Rachel doesn’t answer. She limps forward, each step deliberate, wrong in a way that feels intentional. The road curves and takes her with it, pulling her line of sight away from the lights, from the trees, from the place Lena is standing.
+Rachel doesn’t answer. She limps forward, each step deliberate, wrong on purpose. The road curves and takes her with it, pulling her line of sight away from the lights, from the trees, from the place Lena is standing.
 
 She hears Lena hesitate behind her, then footsteps following.
 
@@ -6921,7 +6921,7 @@ Rachel’s foot comes down and the ground answers it cleanly, no slip, no hollow
 
 She blinks and takes another step, slower this time, and it still behaves.
 
-Lena is close enough that Rachel can feel her through the damp fabric of her jacket, warmth and weight lining up in a way that shouldn’t matter and somehow does. Lena’s breathing is steady at her shoulder, human and ordinary, and the rain sounds like rain again instead of static tearing at the edges of Rachel’s hearing. The night pulls itself into something continuous.
+Lena is close enough that Rachel can feel her through the damp fabric of her jacket, warmth and weight lining up; it shouldn’t matter, and it does. Lena’s breathing is steady at her shoulder, human and ordinary, and the rain sounds like rain again instead of static tearing at the edges of Rachel’s hearing. The night pulls itself into something continuous.
 
 Rachel swallows.
 
@@ -7223,7 +7223,7 @@ It stays with her, thin and eager, threaded through every step, waiting for the 
 
 The ground doesn’t give her anything this time.
 
-It isn’t hostile, exactly, but it stops cooperating, roots catching her bad ankle after she’s already leaned into the step, slopes tilting late so her weight lands wrong and pain snaps sharp enough to make her breath hitch. The ringing tightens with it, not louder so much as closer, threading itself behind her eyes in a way that makes every misstep feel deliberate.
+It isn’t hostile, exactly, but it stops cooperating, roots catching her bad ankle after she’s already leaned into the step, slopes tilting late so her weight lands wrong and pain snaps sharp enough to make her breath hitch. The ringing tightens with it, not louder so much as closer, threading itself behind her eyes and making every misstep feel deliberate.
 
 Lena slows, glancing back over her shoulder. “Do you want to rest?”
 
