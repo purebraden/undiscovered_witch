@@ -394,7 +394,7 @@ The pull shifted her attention to the far end of the chamber, where something la
 
 At its center sat a figure.
 
-Not bound. Not caged.
+Neither bound nor caged.
 
 It sat with its hands folded loosely in its lap, bare feet on stone, toes too long, nails clear as glass, long dark hair hanging in tangled ropes down its back.
 
@@ -1299,7 +1299,7 @@ The device came up again, this time angled toward her injured leg. The light alo
 
 Then the pressure stopped responding.
 
-Not tightening. Not easing.
+It wasn't tightening, wasn't easing.
 
 It went still, the way air does when someone holds their breath without meaning to. Rachel felt it immediately, the absence more noticeable than any movement, and at the same time the device dipped in the handler's grip.
 
@@ -1339,7 +1339,7 @@ Rachel lay on her side, gasping, the room tilting as if it had shifted without t
 
 The pressure returned.
 
-Not smoothly. Not aligned.
+Rough, misaligned.
 
 It pressed in from the side, heavy and urgent, forcing Rachel to curl inward, to protect what it could without regard for what broke in the process. The vibration faded. The crack stopped spreading.
 
@@ -2650,7 +2650,7 @@ Its light cut through the steam and dimmed, just slightly, before correcting.
 
 Rachel ran.
 
-Not fast. Not clean. Her body moved because it was already moving, because stopping felt worse than falling. The corridor bent twice and sloped downward, the floor slick beneath her boots.
+Neither fast nor clean—her body moved because it was already moving, because stopping felt worse than falling. The corridor bent twice and sloped downward, the floor slick beneath her boots.
 
 The pressure surged ahead of her, yanking her left at the next split before she could think about it. She slammed a hand into the wall to stay upright, palm skidding over stone.
 
@@ -3805,7 +3805,7 @@ Waiting.
 
 They moved Miri first.
 
-Not lifted. Not carried.
+She wasn't lifted, wasn't carried.
 
 Someone slid a mat across the floor and Miri ended up on it in pieces, her body guided by hands that hovered instead of touched, fingers stopping short and then adjusting again when the first angle proved wrong. She cried under her breath, teeth knocking together, breath coming apart in little skips. Her arm lay against her side in a way that wasn’t broken and wasn’t right, the timing off, like it had missed a step and never caught up.
 
@@ -4323,7 +4323,7 @@ The pressure leaned toward the markings anyway, tugging lightly at her attention
 
 They walked.
 
-Not fast. Not slow.
+Measured, deliberate.
 
 Just fast enough that stopping would have been noticeable.
 
@@ -5497,7 +5497,7 @@ The structure didn’t react.
 
 The light flickered.
 
-Not sharp. Not failing. Just long enough to register.
+Long enough to register—neither sharp nor failing.
 
 A sound followed from behind the wall, a low click that didn’t line up with anything Mara had just done.
 
@@ -5517,7 +5517,7 @@ The structure held.
 
 Mara pushed off the wall.
 
-Not fast. Not urgent. Just a step, weight shifting the way it always had, her foot moving forward before she thought about it.
+Just a step—unhurried, unremarkable—weight shifting the way it always had, her foot moving forward before she thought about it.
 
 Her foot landed before the floor did.
 
@@ -5529,7 +5529,7 @@ Then stone snapped into place under her palm, hard enough to sting, the surface 
 
 The room lurched.
 
-Not collapsing. Not dramatic. Just enough.
+Nothing dramatic. Just enough.
 
 Mara swore and dragged in a breath, balance off by inches that didn’t exist before, her body scrambling to catch up to a space that refused to agree with it. Her knee throbbed, heat blooming where the timing had gone wrong.
 
@@ -5659,7 +5659,7 @@ They stepped.
 
 Rachel’s foot lagged.
 
-Not refusal. Not fear. The instruction just arrived late, like it had been routed the long way around.
+The instruction just arrived late, like it had been routed the long way around. Neither refusal nor fear—just delay.
 
 The woman’s thumb dipped, corrected. Someone murmured, low, meant for the others.
 
@@ -5705,7 +5705,7 @@ The pressure pressed a word into her head: stop.
 
 Not the ceiling speakers. Inside.
 
-Not loud. Not gentle. Just there, pressed exactly where the pressure peaked.
+Just there—neither loud nor gentle—pressed exactly where the pressure peaked.
 
 Rachel choked. Her mouth moved. Nothing followed.
 
@@ -6093,7 +6093,7 @@ The door didn’t open.
 
 The wall behind it *did*.
 
-Not breaking. Not collapsing.
+Still holding, though barely.
 
 Just… sliding.
 
@@ -6684,8 +6684,7 @@ Rachel stayed very still and waited to see what would remember her next.
 
 The light changed first.
 
-Not brighter. Not darker.  
-Different.
+The same intensity, but different. Changed in some way she couldn't name.
 
 Rachel felt it through her eyelids before she opened them, a pressure shift that didn’t belong to the place she was in, like someone had opened a door somewhere far above and the air had decided to notice. The thing near the wall stilled, its shape compressing in on itself, attention snapping away from her so fast it felt like being dropped.
 
@@ -7896,7 +7895,7 @@ Lena steps forward again.
 
 The space reacts this time.
 
-Not violently. Not dramatically.
+Quietly, without drama.
 
 A tightening. A firm pressure at Lena’s chest.
 
@@ -7950,7 +7949,7 @@ Rachel’s throat tightens. “I didn’t ask.”
 
 The figure shifts its weight.
 
-Not away. Not forward.
+Sideways, somehow—neither away nor forward.
 
 It makes room.
 
@@ -8960,7 +8959,7 @@ She looked at her hands. The wrongness was still there — light moving beneath 
 
 Others were present.
 
-Not gathered. Not watching. Occupying places the way fixtures did. A tall figure leaned against a pillar that curved like a frozen wave, its outline bending where joints should have made firmer decisions. Its skin looked like wet clay, and when it breathed, the surface rippled slightly. Something broad and low rested near a recessed pool filled with dark water that didn't reflect the lantern light — a creature with too many limbs folded beneath it, eyes like drops of oil sliding slowly across a face that never settled.
+They weren't gathered, weren't watching—just occupying places the way fixtures did. A tall figure leaned against a pillar that curved like a frozen wave, its outline bending where joints should have made firmer decisions. Its skin looked like wet clay, and when it breathed, the surface rippled slightly. Something broad and low rested near a recessed pool filled with dark water that didn't reflect the lantern light — a creature with too many limbs folded beneath it, eyes like drops of oil sliding slowly across a face that never settled.
 
 Farther off, a human-shaped form passed behind a translucent screen — the kind of privacy that suggested rather than enforced. When it moved, the screen flickered with colors that didn't exist in the light.
 
@@ -9264,7 +9263,7 @@ The figure approached — not walked, approached, its movement more like flowing
 
 It looked at Lena.
 
-Not curious. Not hungry.
+Neither curious nor hungry.
 
 Recognizing.
 
@@ -9346,7 +9345,7 @@ Lena didn't answer right away. Her hand moved to the iridescent bowl beside her,
 
 Movement stirred elsewhere. Another figure paused near the edge of sight — this one made of what looked like stacked stones, each one balanced impossibly on the next. Then another appeared, something with wings folded tight against a body covered in what might have been feathers or might have been scales.
 
-Not approaching. Not retreating. Watching without focus, the way people did when they recognized something familiar but didn't want to claim it.
+They didn't approach or retreat—just watched without focus, the way people did when they recognized something familiar but didn't want to claim it.
 
 Rachel realized, slowly, that none of it was aimed at her.
 
@@ -10156,7 +10155,7 @@ She stepped toward the archway.
 
 The floor pushed back.
 
-Not hard. Not violent. Just resistance — her momentum redirected, her weight shifted, her path curving away from where she'd aimed. She ended up standing parallel to the threshold instead of in front of it, like the space had gently turned her sideways.
+Gentle resistance—her momentum redirected, her weight shifted, her path curving away from where she'd aimed. She ended up standing parallel to the threshold instead of in front of it, like the space had gently turned her sideways.
 
 The shadow-figure watched without expression. "Interesting."
 
@@ -10259,7 +10258,7 @@ Then she looked at the woman.
 
 The woman's hands were shaking.
 
-Not violently. Not obviously. Just a fine tremor running through her fingers, visible when she pressed them flat against her thighs. She smiled, an expression that flickered at the edges like a lantern about to go out.
+A fine tremor ran through her fingers, subtle but visible when she pressed them flat against her thighs. She smiled, an expression that flickered at the edges like a lantern about to go out.
 
 "It's fine," the woman said. "I just need to adjust."
 
@@ -10758,7 +10757,7 @@ The pressure in her chest shifted—not tightening, not easing, but aligning.
 
 The light beneath her skin dimmed further.
 
-Not gone. Not hidden. Just quieter.
+Still there, just quieter.
 
 The nausea receded, leaving behind a strange, hollow steadiness. The world around her blurred slightly, edges losing interest in her presence.
 
@@ -11006,7 +11005,7 @@ One step carried Rachel forward. The next landed too soon, her foot striking sto
 
 Buildings.
 
-Not clean. Not planned. Shapes pressed up out of the ground like the terrain had tried to imitate memory instead of architecture. Walls leaned into one another at uneven angles. Rooflines sagged, bent, or stopped halfway through forming. Nothing repeated cleanly. Nothing aligned.
+Nothing clean about it, nothing planned. Shapes pressed up out of the ground like the terrain had tried to imitate memory instead of architecture. Walls leaned into one another at uneven angles. Rooflines sagged, bent, or stopped halfway through forming. Nothing repeated cleanly. Nothing aligned.
 
 The air smelled lived in.
 
@@ -11215,7 +11214,7 @@ A pause.
 
 The air ahead wavered.
 
-Not heat. Not distortion. Alignment. The space itself seemed to brace, pulling taut in several directions at once like fabric pinned down too tightly.
+Alignment—not heat, not distortion. The space itself seemed to brace, pulling taut in several directions at once like fabric pinned down too tightly.
 
 Rachel crested a low rise that hadn’t existed until she needed it to, and froze.
 
@@ -11444,7 +11443,7 @@ Rachel felt the alignment happen—not a snap, not a sudden change, but a gradua
 
 The light beneath her skin steadied.
 
-Not dimmer. Not brighter.
+Neither dimmer nor brighter.
 
 Coherent.
 
@@ -11491,7 +11490,7 @@ The seam closed behind her without sound.
 
 The seam closed behind her without sound.
 
-Not sealed. Not erased. Just no longer available.
+The option simply wasn't available anymore—not sealed, not erased, just gone.
 
 Rachel stood still and waited for the floor to decide what it was. It didn’t lag. It didn’t soften. It held her weight immediately, without negotiation, without interest.
 
@@ -11611,7 +11610,7 @@ Rachel clenched her fists. “I’m not broken.”
 
 The presence turned its head toward her then.
 
-Not sharply. Not aggressively.
+Gently, without aggression.
 
 Just enough to register.
 
@@ -11789,7 +11788,7 @@ The structure’s surface brightened in a controlled gradient, light narrowing i
 
 Rachel felt the change immediately.
 
-Not pain. Not pressure.
+Something other than pain or pressure.
 
 Constraint.
 
@@ -11845,7 +11844,7 @@ The structure adjusted again.
 
 Something inside Rachel shifted.
 
-Not breaking. Not tearing.
+Holding, somehow—neither breaking nor tearing.
 
 Sliding.
 
@@ -11883,7 +11882,7 @@ The light beneath Rachel’s skin bucked sharply, a brief, uncontrolled surge th
 
 The hum dropped by a fraction.
 
-Not silence. Not relief. A recalculation.
+A recalculation—neither silence nor relief.
 
 The light bands held their position without advancing. The pressure along Rachel’s spine loosened just enough to keep her upright.
 
@@ -12273,7 +12272,7 @@ Rachel swallowed. Her throat felt tight, dry.
 
 The pressure along her spine shifted.
 
-Not pain. Not restraint.
+Something beyond pain or restraint.
 
 Alignment.
 
@@ -13100,7 +13099,7 @@ The pressure at her sternum increased, firm and exact, trying to smooth the irre
 
 The pulse continued anyway.
 
-Not defiance. Not power.
+Something other than defiance or power.
 
 Just Rachel's heartbeat, refusing to match.
 
@@ -13186,7 +13185,7 @@ The voice burned with it.
 
 The containment field cracked.
 
-Not visibly. Not loudly. Rachel felt it as a shift in the texture of the pressure—a seam where smoothness had been, a hesitation where certainty had reigned.
+Rachel felt it as a shift in the texture of the pressure—subtle, quiet—a seam where smoothness had been, a hesitation where certainty had reigned.
 
 The Relay noticed.
 
@@ -13214,7 +13213,7 @@ Rachel nodded. Her head moved.
 
 Actually moved.
 
-Not far. Not freely. But more than before.
+Limited range, limited freedom. But more than before.
 
 "Let them," she said.
 
