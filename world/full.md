@@ -657,7 +657,7 @@ She climbed until her lungs burned and every breath tasted like ash, the tunnel 
 
 Smoke followed her in thin, lazy ropes, never close enough to choke her, never far enough to forget.
 
-Her leg did not throb the way it should have, and that was the problem. It should have been screaming at her, open and raw and furious, demanding attention, but instead it sat in her awareness like a hot coin pressed to the skin, warm and heavy and wrong in a way that made her stomach uneasy.
+Her leg did not throb the way it should have, and that was the problem. It should have been screaming at her, open and raw and furious, demanding attention, but instead it sat in her awareness like a hot coin pressed to the skin—warm, heavy, wrong enough to turn her stomach.
 
 She kept moving anyway, because stopping felt too much like lying down, and lying down felt like dying.
 
@@ -1062,7 +1062,7 @@ A door opposite the sealed panel opened. A narrow corridor waited beyond, light 
 
 The pressure pulled her toward it. She went because staying meant the room that had failed.
 
-The corridor sloped downward, narrow and close, walls brushing her shoulders when she drifted. The air smelled clean in a way that made her skin prickle.
+The corridor sloped downward, narrow and close, walls brushing her shoulders when she drifted. The air smelled clean and it made her skin prickle.
 
 The pressure stayed steady, heavier than before, aligned with the corridor as if it had decided there was only one safe direction left.
 
@@ -1176,7 +1176,7 @@ The corridor narrowed as she walked, not abruptly but in small degrees, the wall
 
 She followed because nothing in her body argued against it.
 
-The archway ahead opened into a smaller chamber where the corridor ended cleanly, the stone cut smooth and precise. A shallow circle was scored into the floor, the groove she had been following stopping exactly at its edge. When she stepped into the circle, the pressure eased in a way that felt finished, not permissive, as if the space had been waiting for her and was now satisfied.
+The archway ahead opened into a smaller chamber where the corridor ended cleanly, the stone cut smooth and precise. A shallow circle was scored into the floor, the groove she had been following stopping exactly at its edge. When she stepped into the circle, the pressure eased and it felt finished, not permissive, as if the space had been waiting for her and was now satisfied.
 
 Rachel stopped.
 
@@ -1254,7 +1254,7 @@ The pressure did not correct her.
 
 She went down hard, her shoulder striking stone as pain ripped through her leg and chest at once, white flashing across her vision. Someone shouted. The device clattered across the floor and skidded to a stop near the wall, its casing split, the light dark.
 
-Rachel lay on her side, gasping, the room tilting as if it had shifted without telling her. The crack in the floor widened by a hair and then stopped, the stone holding in a way that felt temporary rather than fixed.
+Rachel lay on her side, gasping, the room tilting as if it had shifted without telling her. The crack in the floor widened by a hair and then stopped, the stone holding—temporarily, not fixed.
 
 "That's impossible," someone said quietly.
 
@@ -1333,7 +1333,7 @@ Someone pressed a hand to her shoulder. "Look at me."
 
 Rachel tried.
 
-A face hovered close, sharp eyes, calm mouth. Calm in a way that felt practiced.
+A face hovered close, sharp eyes, calm mouth. Calm and practiced.
 
 "Do you understand what I'm saying?"
 
@@ -1481,7 +1481,7 @@ She knew it was worse.
 
 The channel carried her longer than the first time.
 
-Rachel clung to the rail with fingers that did not quite feel like hers, her grip tightening and loosening in small involuntary pulses as the vibration traveled up her arms and settled in her shoulders. The corridor slid past in stretched bands of light and shadow, the air thinning and cooling in a way that made her lungs ache on the inhale, and the pressure in her chest stayed heavy and focused, not pulling her toward safety or away from danger, just keeping her aligned with motion.
+Rachel clung to the rail with fingers that did not quite feel like hers, her grip tightening and loosening in small involuntary pulses as the vibration traveled up her arms and settled in her shoulders. The corridor slid past in stretched bands of light and shadow, the air thinning and cooling until her lungs ached on the inhale, and the pressure in her chest stayed heavy and focused, not pulling her toward safety or away from danger, just keeping her aligned with motion.
 
 Her leg throbbed in a steady, deep rhythm under the bandage, the pain spreading when she shifted her weight and narrowing to a hot point when she held still. She tried to find a position that did not make her want to vomit and failed, and somewhere behind her the words If it spikes, drop her replayed as if her brain had latched onto them for something to hold.
 
@@ -1853,7 +1853,7 @@ Rachel's heart kicked.
 
 Whatever was inside her went still.
 
-The footsteps resumed, slower now, closer to the opening, and Rachel felt the pressure tilt, not toward the sound but sideways, brushing against Lena's presence in a way that made Rachel's chest tighten.
+The footsteps resumed, slower now, closer to the opening, and Rachel felt the pressure tilt, not toward the sound but sideways, brushing against Lena's presence and tightening Rachel's chest.
 
 Lena stiffened. Her jaw set. "No," she said under her breath. "Don't."
 
@@ -1929,7 +1929,7 @@ Light slid across the opening again. Not a sweep. A placement. Deliberate, stead
 
 Lena's hand stayed on Rachel's wrist. Not squeezing. Just there. A point of contact that felt almost unreal compared to the pressure coiled under Rachel's ribs, heavy and contained, like something holding its breath with her.
 
-Rachel kept her back pressed to the stone and breathed shallow through her nose, counting without numbers. The pressure stayed quiet. Not gone. Quiet in a way that made her skin itch.
+Rachel kept her back pressed to the stone and breathed shallow through her nose, counting without numbers. The pressure stayed quiet. Not gone. Quiet enough to make her skin itch.
 
 A voice spoke from outside.
 
@@ -2011,7 +2011,7 @@ Rachel froze.
 
 Lena went very still.
 
-The pressure inside Rachel quieted in a way that felt wrong, like something lowering itself just out of sight.
+The pressure inside Rachel quieted and it felt wrong, like something lowering itself just out of sight.
 
 Another voice cut in, sharper. "Bring the secondary."
 
@@ -2425,7 +2425,7 @@ Each time she stepped, another light came on ahead. Each time she tried to slow,
 
 A click sounded inside the walls. Then another, deeper, farther away. The sound did not travel right. It bent around corners it should not have reached.
 
-Rachel's chest burned. The pressure spread low and wide in her ribs, not flaring, not pulling back, just rearranging itself in a way that made her skin prickle.
+Rachel's chest burned. The pressure spread low and wide in her ribs, not flaring, not pulling back, just rearranging itself until her skin prickled.
 
 She reached a door that was not a door a moment ago. It sat half open, cold air breathing out.
 
