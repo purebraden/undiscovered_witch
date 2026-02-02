@@ -1,4 +1,4 @@
-# Chapter 73 — What Leaks Through
+# Chapter 71 — What Leaks Through
 
 Rachel noticed the lanterns first.
 

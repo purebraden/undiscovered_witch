@@ -1,4 +1,4 @@
-# Chapter 74 — The Distance That Grows
+# Chapter 72 — The Distance That Grows
 
 Rachel tried walking beside Lena the next time — if there was a next time, if time worked that way here. The light had cycled from amber to something cooler, a pale blue that made the walls look like ice, and beings had shifted positions without anyone announcing a change. Routines existed here, even if Rachel couldn't read them yet.
 

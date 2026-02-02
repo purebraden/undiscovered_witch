@@ -1,4 +1,4 @@
-# Chapter 71 — The Original Destination
+# Chapter 69 — The Original Destination
 
 Rachel went back to the presence with sharper questions.
 

@@ -1,4 +1,4 @@
-# Chapter 64 — Still Here
+# Chapter 62 — Still Here
 
 Rachel came back to herself without a clean edge.
 
@@ -141,7 +141,7 @@ Rachel stayed where she was, muscles coiled despite the calm, aware of the dista
 *Not yet,* the voice said.
 
 
-# Chapter 65 — The Shape of Asking
+# Chapter 63 — The Shape of Asking
 
 Rachel waited longer than she meant to.
 
@@ -296,7 +296,7 @@ Rachel sat with the pressure in her chest and the words she hadn't meant to offe
 Rachel closed her eyes, not in relief, not in understanding — just to keep from saying the wrong thing next.
 
 
-# Chapter 66 — What the Space Keeps
+# Chapter 64 — What the Space Keeps
 
 Rachel noticed the others when she stopped trying not to.
 
@@ -435,7 +435,7 @@ She had the growing sense that the space was tracking her questions.
 And that some answers were already circulating — just not through her.
 
 
-# Chapter 67 — The Binding's Purpose
+# Chapter 65 — The Binding's Purpose
 
 The space didn't have night, but it had quiet.
 
@@ -548,7 +548,7 @@ Rachel stayed where she was, the pressure in her chest neither lighter nor heavi
 Just clearer.
 
 
-# Chapter 68 — What Wants Her Dead
+# Chapter 66 — What Wants Her Dead
 
 Rachel found the presence waiting in the same place it always seemed to occupy — not arriving, not lingering, just there when she looked for it.
 
@@ -641,7 +641,7 @@ The presence smiled, and for the first time, there was something almost like app
 "Now you're asking the right questions."
 
 
-# Chapter 69 — The Convocation
+# Chapter 67 — The Convocation
 
 Rachel asked careful questions.
 
@@ -736,7 +736,7 @@ It moved away, or the space moved around it, and Rachel was left alone with the 
 Rachel sat with that, and with everything else, and tried to figure out what any of it meant for what came next.
 
 
-# Chapter 70 — What She Could Do
+# Chapter 68 — What She Could Do
 
 Rachel found Lena near what passed for a common area, watching other beings move through the space with the detached interest of someone who had stopped trying to understand everything.
 
@@ -851,7 +851,7 @@ The space around them settled, as if it had been listening and decided the conve
 But Rachel could feel it continuing, somewhere beneath the words they'd said — all the things that didn't need to be spoken because they both already understood.
 
 
-# Chapter 71 — The Original Destination
+# Chapter 69 — The Original Destination
 
 Rachel went back to the presence with sharper questions.
 
@@ -952,7 +952,7 @@ Rachel stood, feeling the space adjust around her without the usual resistance.
 "Show me," she said. "Show me where I need to go."
 
 
-# Chapter 72 — Not a Tool
+# Chapter 70 — Not a Tool
 
 Rachel sat alone in the dim section, the space around her settling into something close to privacy. She could feel Lena somewhere nearby, steady and held, her presence a constant Rachel had learned not to reach for.
 
@@ -1047,7 +1047,7 @@ Rachel stood, feeling the space adjust around her without argument.
 For the first time since the circle broke, she felt like she was moving toward something instead of away.
 
 
-# Chapter 73 — What Leaks Through
+# Chapter 71 — What Leaks Through
 
 Rachel noticed the lanterns first.
 
@@ -1172,7 +1172,7 @@ Moving had started to feel like a declaration.
 And declarations, she was learning, had consequences here.
 
 
-# Chapter 74 — The Distance That Grows
+# Chapter 72 — The Distance That Grows
 
 Rachel tried walking beside Lena the next time — if there was a next time, if time worked that way here. The light had cycled from amber to something cooler, a pale blue that made the walls look like ice, and beings had shifted positions without anyone announcing a change. Routines existed here, even if Rachel couldn't read them yet.
 
@@ -1307,7 +1307,7 @@ The distance between them had never been physical.
 But now it was starting to look like it.
 
 
-# Chapter 75 — What Others Carry
+# Chapter 73 — What Others Carry
 
 The woman volunteered before Rachel understood what she was offering.
 
@@ -1448,7 +1448,7 @@ The goodbye had already started.
 She was only just noticing.
 
 
-# Chapter 76 — What Doesn’t Carry
+# Chapter 74 — What Doesn’t Carry
 
 Rachel noticed it because everything else still sounded right.
 
@@ -1569,7 +1569,7 @@ Rachel nodded, breath shaking. “I know.”
 And it landed then — not as a realization, not as a thought she finished — that hearing and knowing were already two different things, and one of them was slipping out of reach whether she moved or not.
 
 
-# Chapter 77 — The Part Where You Go
+# Chapter 75 — The Part Where You Go
 
 They didn’t count down.
 

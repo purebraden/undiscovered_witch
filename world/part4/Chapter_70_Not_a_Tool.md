@@ -1,4 +1,4 @@
-# Chapter 72 — Not a Tool
+# Chapter 70 — Not a Tool
 
 Rachel sat alone in the dim section, the space around her settling into something close to privacy. She could feel Lena somewhere nearby, steady and held, her presence a constant Rachel had learned not to reach for.
 

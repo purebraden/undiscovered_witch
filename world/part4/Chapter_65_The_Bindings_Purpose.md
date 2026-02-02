@@ -1,4 +1,4 @@
-# Chapter 67 — The Binding's Purpose
+# Chapter 65 — The Binding's Purpose
 
 The space didn't have night, but it had quiet.
 

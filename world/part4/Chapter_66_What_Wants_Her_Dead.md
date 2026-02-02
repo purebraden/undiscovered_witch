@@ -1,4 +1,4 @@
-# Chapter 68 — What Wants Her Dead
+# Chapter 66 — What Wants Her Dead
 
 Rachel found the presence waiting in the same place it always seemed to occupy — not arriving, not lingering, just there when she looked for it.
 

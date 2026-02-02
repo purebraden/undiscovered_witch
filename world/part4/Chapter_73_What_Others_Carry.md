@@ -1,4 +1,4 @@
-# Chapter 75 — What Others Carry
+# Chapter 73 — What Others Carry
 
 The woman volunteered before Rachel understood what she was offering.
 

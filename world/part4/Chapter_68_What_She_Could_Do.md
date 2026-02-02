@@ -1,4 +1,4 @@
-# Chapter 70 — What She Could Do
+# Chapter 68 — What She Could Do
 
 Rachel found Lena near what passed for a common area, watching other beings move through the space with the detached interest of someone who had stopped trying to understand everything.
 

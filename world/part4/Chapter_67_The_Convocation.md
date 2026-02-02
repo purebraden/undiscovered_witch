@@ -1,4 +1,4 @@
-# Chapter 69 — The Convocation
+# Chapter 67 — The Convocation
 
 Rachel asked careful questions.
 
