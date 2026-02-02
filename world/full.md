@@ -830,7 +830,7 @@ Behind her, lantern light slid along the cobbles like a searching finger, and th
 
 # Chapter 4 — Testing for Voices
 
-Rachel did not get far underground before the air cooled and the light behind her thinned to a distant glow. The pressure in her chest tugged her left, then right, testing for voices.
+Rachel didn't get far underground before the air cooled and the light behind her thinned to a distant glow. The pressure in her chest tugged her left, then right, testing for voices, and she hated it for the competence of it. Like whatever had gotten inside her had opinions about foot traffic.
 
 Each time she drifted toward sound, nausea snapped tight behind her eyes and the pull shoved her back toward the quiet. It was not guiding her to safety. It was keeping her unseen.
 
@@ -846,9 +846,9 @@ Her name landed wrong in the space. She looked behind him. Grooves cut the floor
 
 "Do not turn around," he said. "They are closing the route behind you."
 
-Rachel took a step back anyway. The floor tipped under her heel, just enough to steal her balance. Her vision slid sideways. She froze. The floor leveled.
+Rachel took a step back anyway, because of course she did. The floor tipped under her heel, just enough to steal her balance. Her vision slid sideways. She froze. The floor leveled.
 
-"We keep records," the man added, answering the question she had not asked.
+"We keep records," the man added, answering the question she had not asked. Records. Of her. Like she was already a case file with a stamp and a shelf.
 
 Heat flared at the mark on her leg. She hissed and shifted her weight, breath catching as the sensation climbed and then settled into a deep, heavy throb.
 
@@ -884,7 +884,7 @@ Rachel stopped. The pressure tightened. Her stomach rolled.
 
 The woman and boy appeared at the far end, guided by a guard who pointed them along and then retreated without looking at Rachel. The woman saw Rachel and froze. The boy peered around her with open curiosity.
 
-"Stay back," Rachel said. The words came out wrong. Flat. Wrong in her mouth.
+"Stay back," Rachel said. The words came out wrong—flat, procedural, like she'd stolen them from one of their mouths and still didn't know how to hold them.
 
 The boy took a step anyway.
 
@@ -892,7 +892,7 @@ The pressure spiked hard. Nausea clawed up her throat. The stone beneath the boy
 
 The corridor shuddered. Air compressed. The woman slammed into the wall with a crack. The boy hit the floor and did not get up.
 
-Rachel staggered back, hands lifted, breath torn short. "I did not."
+Rachel staggered back, hands lifted, breath torn short. "I didn't—" She swallowed hard. "I didn't touch them."
 
 "Clear the lane," a voice called from behind the woman. Boots pounded, measured, not panicked.
 
@@ -910,9 +910,9 @@ The corridor swallowed the sound of their breathing. The line in the floor pulle
 
 # Chapter 5 — The Line Led Downward
 
-The line led her downward. The air cooled. The light thinned to seams in the stone that glowed faintly like embers under ash.
+The line led her downward, which was almost funny if she let herself think about it—down, down, down, away from air and sky and witnesses, like the whole city had a throat and she'd slid into it. The air cooled. The light thinned to seams in the stone that glowed faintly like embers under ash.
 
-She heard work above her. Not the open noise of a city, but voices measured and low, boots stopping and starting, the scrape of wood dragged across stone.
+She heard work above her. Not city noise—work noise. Voices measured and low, boots stopping and starting, the scrape of wood dragged across stone like somebody tidying up a mess that was still bleeding.
 
 A side passage opened to her left, barred with iron. Through it she saw men with lanterns placing a painted cloth across an alley mouth. A woman with a broom stopped, listened, then turned away when a guard touched her shoulder.
 
@@ -964,7 +964,7 @@ Rachel went in because it was the only direction that did not hurt.
 
 The passage behind the arch curved inward and down, the ceiling low enough to hunch. The air cooled and thickened, damp stone and standing water and something faintly metallic underneath.
 
-It opened into a small room cut cleanly from stone. Grooves ran straight from floor to ceiling. A bench sat against one wall. A basin waited in the corner. A dark metal frame stood bolted to the floor, too tall and too narrow, wrong in a way her eyes did not like.
+It opened into a small room cut cleanly from stone. Grooves ran straight from floor to ceiling. A bench sat against one wall. A basin waited in the corner. A dark metal frame stood bolted to the floor, too tall and too narrow, wrong enough that her eyes wanted to slide away from it.
 
 Rachel stopped just inside. The pressure settled, heavy and still, as if the room had taken possession of her.
 
@@ -1679,7 +1679,7 @@ The pressure leaned, just slightly, toward the tools.
 
 # Chapter 10 — The Tools
 
-Rachel did not move toward the tools.
+Rachel didn't move toward the tools. She stared at them anyway, because some ugly part of her wanted the simplest answer—pick something sharp, pick something heavy, make yourself unmanageable on purpose.
 
 The pressure leaned that way anyway, subtle at first and then more insistent, the same sideways insistence she had learned to recognize, the promise of motion if she followed and the threat of collapse if she did not, and she stood there with her hand braced against the wall, her leg shaking hard enough now that she could feel it up through her hip.
 
@@ -2401,7 +2401,7 @@ The pressure tightened, urging her forward. She tore her gaze away and limped on
 
 # Chapter 15 — The Corridor Woke
 
-The passage opened into a corridor that had been dark and was not anymore.
+The passage opened into a corridor that had been dark and was not anymore, and Rachel had the stupid thought that even the building was waking up faster than she was.
 
 A thin strip of light ran along the ceiling, pale and steady, then another came on farther down, then another, like stepping stones calling her forward.
 
