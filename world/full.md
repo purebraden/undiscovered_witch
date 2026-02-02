@@ -1973,21 +1973,23 @@ Just waiting.
 
 # Chapter 11 — The Footsteps Did Not Rush
 
-The footsteps did not rush, and that was the first wrong thing.
+The footsteps didn't rush, and that was the first wrong thing.
 
-Rachel felt it before she understood it, the way the air outside the recess changed, the way the quiet settled instead of breaking, like the stone itself had made a decision and was just waiting for the people to catch up. Her shoulders stayed tight, her muscles braced for noise or impact or shouting, and when none of that came it left her stranded in the waiting, listening too hard.
+Rachel felt it before she understood it—the way the air outside the recess changed, the way the quiet settled instead of breaking, like the stone itself had made a decision and was just waiting for the people to catch up. Her shoulders stayed tight, her muscles braced for noise or impact or shouting, and when none of that came it left her stranded in the waiting, listening too hard.
 
 Light slid across the opening again. Not a sweep. A placement. Deliberate, steady, like someone had leaned in and decided this was the angle they wanted.
 
-Lena's hand stayed on Rachel's wrist. Not squeezing. Just there. A point of contact that felt almost unreal compared to the pressure coiled under Rachel's ribs, heavy and contained, like something holding its breath with her.
+Lena's hand stayed on Rachel's wrist. Not squeezing. Just there. A point of contact that felt almost unreal compared to the thing coiled under Rachel's ribs, heavy and contained, like something holding its breath with her.
 
-Rachel kept her back pressed to the stone and breathed shallow through her nose, counting without numbers. The pressure stayed quiet. Not gone. Quiet in a way that made her skin itch.
+Rachel kept her back pressed to the stone and breathed shallow through her nose, counting without numbers. The thing stayed quiet. Not gone. Quiet in a way that made her skin itch.
 
 A voice spoke from outside.
 
 Not the calm one from before. This one was flatter, older, worn smooth by repetition.
 
 "Subject located."
+
+Subject. That's me. I'm a subject now.
 
 Another voice answered, closer. "Confirm."
 
@@ -1997,35 +1999,35 @@ A pause stretched, long enough that Rachel felt her stomach tighten around it.
 
 The words slid into her chest and sat there, ugly and heavy.
 
-Lena's jaw set. She did not look at Rachel. She watched the opening like she was measuring how much space it would take to ruin everything.
+Lena's jaw set. She didn't look at Rachel. She watched the opening like she was measuring how much space it would take to ruin everything.
 
 "Open," the flat voice said.
 
 Stone scraped.
 
-The wall shuddered as something leaned into it, not forcing, just insisting, patient pressure that made the seam begin to move. Cold air spilled into the recess carrying the smell of metal and clean rock, the kind of clean that did not mean safe.
+The wall shuddered as something leaned into it, not forcing, just insisting, patient pressure that made the seam begin to move. Cold air spilled into the recess carrying the smell of metal and clean rock, the kind of clean that didn't mean safe.
 
-The pressure inside Rachel flared, quick and hot, and she bit down hard, keeping the sound locked in her chest where it burned.
+The thing inside Rachel flared, quick and hot, and she bit down hard, keeping the sound locked in her chest where it burned.
 
 "There," someone said.
 
 The opening widened another inch.
 
-Boots came into view, careful and placed, and Rachel hated that more than if they had rushed. The chamber beyond looked wrong now, too orderly, the tools hanging neat and patient in the dim light like they had been waiting for permission.
+Boots came into view, careful and placed, and Rachel hated that more than if they'd rushed. The chamber beyond looked wrong now, too orderly, the tools hanging neat and patient in the dim light like they'd been waiting for permission.
 
-Lena shifted without looking at her, stepping slightly in front, shoulder angling into the space. Rachel saw the tremor in her arm and thought, stupidly, she is tired, even though she knew that was not it.
+Lena shifted without looking at her, stepping slightly in front, shoulder angling into the space. Rachel saw the tremor in her arm and thought, stupidly, she's tired, even though she knew that wasn't it.
 
 "Step out," the flat voice said.
 
 No threat. No explanation.
 
-Rachel swallowed. Her mouth opened before her brain caught up. "We can't-"
+Rachel swallowed. Her mouth opened before her brain caught up. "We can't—"
 
 "Rachel."
 
 Lena said her name low and urgent, like a hand closing around something fragile. "Listen."
 
-Rachel turned her head just enough to see her, the hard line of her jaw, the way she was not blinking.
+Rachel turned her head just enough to see her, the hard line of her jaw, the way she wasn't blinking.
 
 "They're not here for both of us," Lena said. "They won't risk it."
 
@@ -2033,7 +2035,7 @@ Rachel turned her head just enough to see her, the hard line of her jaw, the way
 
 Lena breathed out through her nose, slow and controlled. "You already did. The moment you came in here."
 
-The pressure tightened then, not sharp, just heavy, like something shifting its weight, and Rachel felt how much space it took up when it moved, how it crowded everything else out without making a sound.
+The thing tightened then, not sharp, just heavy, like something shifting its weight, and Rachel felt how much space it took up when it moved, how it crowded everything else out without making a sound.
 
 Outside, the voice repeated, "Step out."
 
@@ -2041,21 +2043,21 @@ A softer sound followed. Metal against metal. Something being prepared without c
 
 Lena's fingers tightened on Rachel's wrist. "If they see you," she said, "they'll take you. And it won't stop where it did last time."
 
-Rachel's breath caught. "Where did it-"
+Rachel's breath caught. "Where did it—"
 
-Lena did not answer.
+Lena didn't answer.
 
 The opening widened just enough for a hand to reach through.
 
 A gloved hand appeared, fingers spread, palm angled inward toward the darkness, patient and still.
 
-The pressure inside Rachel twitched, sharp and responsive, like it recognized the shape of the gesture even if she did not.
+The thing inside Rachel twitched, sharp and responsive, like it recognized the shape of the gesture even if she didn't.
 
 "Don't," Lena said. Not to Rachel.
 
 The hand paused.
 
-For a moment everything held - breath, light, stone - like the world had forgotten what came next.
+For a moment everything held—breath, light, stone—like the world had forgotten what came next.
 
 Then the flat voice said, "Secondary present."
 
@@ -2063,7 +2065,7 @@ Rachel froze.
 
 Lena went very still.
 
-The pressure inside Rachel quieted in a way that felt wrong, like something lowering itself just out of sight.
+The thing inside Rachel quieted in a way that felt wrong, like something lowering itself just out of sight.
 
 Another voice cut in, sharper. "Bring the secondary."
 
@@ -2077,23 +2079,25 @@ A pause followed, long enough for Rachel to hear the measured breathing outside,
 
 Lena exhaled once, slow. "There," she whispered. "That's it."
 
-Rachel stared at her. "What are you-"
+Rachel stared at her. "What are you—"
 
 Lena moved.
 
-She pulled Rachel deeper into the recess for a heartbeat and then shoved her sideways behind a jut of stone Rachel had not noticed, a narrow bend that broke the line of sight. Rachel's shoulder struck hard and white pain flashed across her vision. She bit down on a cry.
+She pulled Rachel deeper into the recess for a heartbeat and then shoved her sideways behind a jut of stone Rachel hadn't noticed, a narrow bend that broke the line of sight. Rachel's shoulder struck hard and white pain flashed across her vision. She bit down on a cry.
 
 Lena stepped forward into the light.
 
 Rachel reached for her and missed, fingers scraping cloth.
 
-"Lena-"
+"Lena—"
 
-Lena did not look back.
+Lena didn't look back.
 
-She lifted her hands, palms out, slow and visible, like she had practiced this in her head a thousand times.
+She lifted her hands, palms out, slow and visible, like she'd practiced this in her head a thousand times.
 
-The pressure surged, furious now, hot and insistent, and Rachel pressed her forehead into the stone and breathed through it, refusing to give it movement.
+The thing surged, furious now, hot and insistent, and Rachel pressed her forehead into the stone and breathed through it, refusing to give it movement.
+
+No. No, I won't let you make me move. I won't—
 
 "It's her," Lena said evenly. "Not me."
 
@@ -2117,7 +2121,7 @@ The word landed with weight. Rachel heard it in the way the air shifted, the way
 
 Hands closed around Lena's arm. She adjusted her stance instead of fighting, turning with the pull like she knew exactly how resistance would be read, how it would be written down later.
 
-Rachel's chest burned. The pressure leaned toward the opening, eager and bright, like it wanted her to break cover and make everything loud again.
+Rachel's chest burned. The thing leaned toward the opening, eager and bright, like it wanted her to break cover and make everything loud again.
 
 She stayed still.
 
@@ -2139,35 +2143,37 @@ Stone ground.
 
 The recess began to close.
 
-Rachel stared at the narrowing strip of light, at the empty space where Lena had been, and the pressure inside her tightened, not pulling now, not pushing, just compressing like a hand around her heart.
+Rachel stared at the narrowing strip of light, at the empty space where Lena had been, and the thing inside her tightened, not pulling now, not pushing, just compressing like a hand around her heart.
 
 The stone sealed shut.
 
 Rachel was alone in the dark.
 
-She did not scream.
+She didn't scream.
 
-She did not move.
+She didn't move.
 
-And in the black, the pressure settled, quiet and patient, as if it had been waiting for this shape of absence all along.
+And in the black, the thing settled, quiet and patient, as if it had been waiting for this shape of absence all along.
 
-Rachel did not scream when the recess sealed. She did not have air to waste on it.
+Lena. She gave herself up so I could—
 
-She pressed a hand to the wall where Lena had pushed her and felt for a seam. Smooth. Cold. No give. The pressure inside her tightened, not a shove, a warning.
+Rachel didn't scream when the recess sealed. She didn't have air to waste on it.
+
+She pressed a hand to the wall where Lena had pushed her and felt for a seam. Smooth. Cold. No give. The thing inside her tightened, not a shove, a warning.
 
 Lena's last look stayed with her, hard and instructive.
 
 Somewhere deeper in the stone, a hum woke, low and unsteady. A line of light stitched itself across the floor, thin as chalk.
 
-The pressure leaned toward it.
+The thing leaned toward it.
 
 Rachel followed because the only other direction was the wall at her back and the sound of something waking behind it.
 
-The corridor beyond was rougher than the intake halls, old stone, uneven floor. The light lines ran in short segments, guttering. She limped, dragging her bad foot, and every time she slowed the pressure tightened until nausea blurred her vision.
+The corridor beyond was rougher than the intake halls, old stone, uneven floor. The light lines ran in short segments, guttering. She limped, dragging her bad foot, and every time she slowed the thing tightened until nausea blurred her vision.
 
 A door ahead slid open without noise. Cold air pushed out. The floor lines brightened.
 
-She stepped through and felt the pressure spike, hard enough to make her gasp.
+She stepped through and felt the thing spike, hard enough to make her gasp.
 
 The room was bare, a square chamber with embedded lines and no exit she could see. The moment she moved, the lines responded, as if tracking her weight.
 
@@ -2175,13 +2181,15 @@ A voice spoke from nowhere and everywhere at once. Flat. Distant.
 
 "Subject relocated."
 
-Rachel backed toward the door she had come through. The pressure slammed into her chest and stopped her cold. The door sealed without sound.
+Rachel backed toward the door she'd come through. The thing slammed into her chest and stopped her cold. The door sealed without sound.
+
+What the fuck? Where am I supposed to go?
 
 "Stand by," the voice said.
 
 A seam opened in the floor.
 
-Rachel swore and lunged sideways, but the pressure shoved her the other way. The opening widened, light bleeding up from below like a deep well.
+Rachel swore and lunged sideways, but the thing shoved her the other way. The opening widened, light bleeding up from below like a deep well.
 
 "Transport initiated."
 
@@ -2189,7 +2197,7 @@ She dropped.
 
 # Chapter 12 — The Chute
 
-Rachel hit the chute hard and slid, the stone tilted just enough that she could not slow herself. Air tore past her ears. The pressure inside her spiked and then flattened, as if it was bracing for impact it could not prevent.
+Rachel hit the chute hard and slid, the stone tilted just enough that she couldn't slow herself. Air tore past her ears. The thing inside her spiked and then flattened, like it was bracing for impact it couldn't prevent.
 
 Voices echoed above, distorted by distance and motion.
 
@@ -2201,7 +2209,7 @@ She slammed into a bend, shoulder first. Pain flashed white behind her eyes. The
 
 Light came on. Clean. Steady.
 
-She pushed herself upright, breath tearing, and pressed her back to the wall. The pressure stayed coiled and watchful under her ribs.
+She pushed herself upright, breath tearing, and pressed her back to the wall. The thing stayed coiled and watchful under her ribs.
 
 The door across the room hissed open.
 
@@ -2215,7 +2223,7 @@ Rachel shook her head. "Don't touch me."
 
 The slate holder looked up, not alarmed. "Speak when prompted."
 
-The pressure flickered, sharp and brief, like a held breath.
+The thing flickered, sharp and brief, like a held breath.
 
 "Classification?" the other asked.
 
@@ -2224,6 +2232,8 @@ The pressure flickered, sharp and brief, like a held breath.
 The word landed wrong, heavy as a dropped plate.
 
 "No," Rachel said. "That's wrong."
+
+They don't know. They don't know what's inside me.
 
 They moved in anyway.
 
@@ -2235,9 +2245,11 @@ The floor lines flared bright.
 
 No alarm sounded.
 
-The slate holder stared at the fallen body, then at Rachel, then at the slate. "That is not-"
+The slate holder stared at the fallen body, then at Rachel, then at the slate. "That is not—"
 
-Rachel sagged against the wall, gasping, vision dimming around the edges. The pressure coiled tight inside her, heavy and present, humming faintly.
+Rachel sagged against the wall, gasping, vision dimming around the edges. The thing coiled tight inside her, heavy and present, humming faintly.
+
+I did it again. I keep doing it and I can't stop.
 
 Footsteps arrived at a run. More than two. The door hissed again.
 
@@ -2247,7 +2259,7 @@ Rachel closed her eyes.
 
 Whatever rules had failed to follow her into this room had finally arrived.
 
-They did not rush her. They hovered instead, stopping short of the etched lines as if the floor were a fence.
+They didn't rush her. They hovered instead, stopping short of the etched lines as if the floor were a fence.
 
 Someone swore under their breath. Another voice said, "Secondary," and the word chilled the air.
 
@@ -2255,13 +2267,15 @@ Someone swore under their breath. Another voice said, "Secondary," and the word 
 
 Boots scraped stone. Space opened around Rachel, too wide, too bright.
 
-The pressure inside her shifted, restless, like it did not like the distance.
+The thing inside her shifted, restless, like it didn't like the distance.
 
 A seam split along one wall.
 
 Something spilled out low and fast. Not smoke. Not liquid. It hugged the floor, dense and heavy, swallowing light where it passed.
 
-Cold punched through Rachel's boots, biting and wrong. She tried to scramble back and the pressure slammed down, crushing and sudden, pinning her in place hard enough that her vision went white at the edges.
+What the fuck is that?
+
+Cold punched through Rachel's boots, biting and wrong. She tried to scramble back and the thing slammed down, crushing and sudden, pinning her in place hard enough that her vision went white at the edges.
 
 "No," she gasped.
 
@@ -2272,13 +2286,13 @@ The dark climbed her calves. Burning and freezing at once.
 
 The etched lines flared.
 
-Rachel clawed at the stone. The pressure inside her surged wild and jagged, heat bursting through her chest in uneven pulses that made everything worse.
+Rachel clawed at the stone. The thing inside her surged wild and jagged, heat bursting through her chest in uneven pulses that made everything worse.
 
 Then it shifted.
 
 Not gone. Different.
 
-The heat under her skin steadied, no longer bursting at random. The dark slowed, then hesitated, as if it had met something it could not calculate.
+The heat under her skin steadied, no longer bursting at random. The dark slowed, then hesitated, as if it had met something it couldn't calculate.
 
 "Hold," the woman said. "Do not touch her."
 
@@ -2292,7 +2306,7 @@ Silence hit the room. Not empty. Loaded.
 
 "Clear the sector," the woman said.
 
-"We cannot leave her-"
+"We cannot leave her—"
 "We cannot keep her," another voice snapped.
 
 Rachel lay on her side, shaking, listening to boots retreat, to equipment being rolled back, to the door sealing.
@@ -2301,7 +2315,7 @@ She needed a way out before they decided to cut her.
 
 The lights dimmed. The etched lines dulled.
 
-She was alone again, but the air was no longer calm. It hummed with something that had been woken and did not want to go back to sleep.
+She was alone again, but the air was no longer calm. It hummed with something that had been woken and didn't want to go back to sleep.
 
 # Chapter 13 — The Room Started Emptying
 
@@ -2309,17 +2323,19 @@ The room started emptying before Rachel could get her breath back.
 
 No announcements. No sirens. People backed out in quick, controlled steps, equipment lifted and rolled away, voices dropped to the edges of hearing. The lights thinned with every person who left.
 
-The pressure inside her tracked it all, tightening, easing, tightening again, like it was keeping count.
+The thing inside her tracked it all, tightening, easing, tightening again, like it was keeping count.
 
 "Move," a man said from the doorway, not looking at her. "You cannot stay in this chamber."
 
 Rachel laughed once, raw and tired. "You just said clear the sector."
 
-"This is not the sector anymore," he said, and that did not make sense until the floor lines shifted.
+"This is not the sector anymore," he said, and that didn't make sense until the floor lines shifted.
+
+What the hell does that mean? How is this not—
 
 A seam opened near the far wall. Cold air breathed out.
 
-The pressure leaned toward it.
+The thing leaned toward it.
 
 Rachel pushed herself up, slow and shaking, and limped across the room before the floor decided for her. Her leg screamed. She bit down on it and kept moving.
 
