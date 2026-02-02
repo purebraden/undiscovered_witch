@@ -1,4 +1,4 @@
-# Chapter 65 — The Shape of Asking
+# Chapter 63 — The Shape of Asking
 
 Rachel waited longer than she meant to.
 
@@ -131,6 +131,30 @@ Rachel stared at it. “You’re doing this on purpose.”
 Rachel’s pulse thudded in her ears. “Which is.”
 
 The presence leaned back, giving her space she hadn’t asked for. “You’ll ask it,” it said. “You always do. Just not when you think you will.”
+
+Rachel’s mouth went dry. “Fine.” She held its gaze. “What wants me dead.”
+
+The presence’s expression didn’t change, but the space seemed to register the question anyway — a small tightening, a brief reorientation, like attention being paid somewhere else.
+
+“Be precise,” it said.
+
+Rachel swallowed. “Who drew the circle.”
+
+“The Convocation,” it answered, and for the first time it sounded less like a person speaking and more like a label being applied. “They wanted a clean transfer. They wanted obedience.”
+
+Lena’s head snapped up. “The—what.”
+
+“A group that buys endings,” the presence said, still looking at Rachel. “They didn’t get one.”
+
+Rachel felt the pressure in her chest coil, not warning, not comfort — possessive.
+
+“They chased me,” Rachel said. “Why.”
+
+“Not you,” it replied. “What you’re holding.”
+
+Rachel’s throat tightened. “And if they take it.”
+
+The presence blinked slowly. “Then you stop interrupting,” it said. “And it moves on.”
 
 Silence followed. Not empty. Weighted.
 

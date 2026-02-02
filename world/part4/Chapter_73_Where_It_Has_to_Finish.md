@@ -1,4 +1,4 @@
-# Chapter 75 — Where It Has to Finish
+# Chapter 73 — Where It Has to Finish
 
 The woman was still shaking.
 
@@ -106,4 +106,38 @@ Rachel closed her eyes once.
 
 The room shifted — not in resistance, not in relief. In recognition.
 
-Someone began to explain.
+Someone began to explain, words careful like they were trying not to snag on anything that could propagate.
+
+“There was a destination,” they said. “Before you.”
+
+Rachel’s pulse thudded. “Before me.”
+
+“A prepared place,” the man added, like this was a technical detail he’d said a thousand times. “A facility where incomplete work gets finished cleanly. Where the remainder is held until it can be grounded out.”
+
+Lena’s jaw tightened. She didn’t look away from Rachel. “Name it.”
+
+The answer came after a pause that felt like permission being granted. “The Relay.”
+
+Rachel held the word in her mouth like it might cut her. “The Convocation’s.”
+
+No one contradicted her.
+
+The voice in her chest stirred, interested in a way that made Rachel nauseous. *That’s where they were pulling me. Before you interrupted it.*
+
+“If I go there,” Rachel said slowly, “what happens.”
+
+“Either they take what you’re holding and you don’t survive the separation,” someone said, clinical and unkind only because it refused to soften. “Or you finish the binding on your terms and they can’t.”
+
+“Or you don’t go,” someone else added, not arguing, just completing the shape. “You stay. It keeps looking for places to rest. We keep paying for it in smaller pieces.”
+
+Rachel’s hands curled into fists. “And if I end it.”
+
+The room went very still.
+
+“Then you end,” they said, and there was no judgment in it, only finality. “Maybe it ends with you. Maybe it doesn’t. But it stops spreading through other bodies either way.”
+
+Lena’s eyes widened. “Finish it how.”
+
+Rachel didn’t look away. “By making it permanent.”
+
+The room stayed quiet, as if it had already accepted the shape of the choice.

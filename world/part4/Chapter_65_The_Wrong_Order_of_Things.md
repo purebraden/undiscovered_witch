@@ -1,4 +1,4 @@
-# Chapter 67 — The Wrong Order of Things
+# Chapter 65 — The Wrong Order of Things
 
 Rachel missed the first one because Lena was still talking, circling her knee again, how folding it didn’t pull the way it used to except sometimes except maybe that was habit, she laughed and waved it off like she’d said too much about something that no longer mattered, and Rachel nodded in a place that didn’t quite line up with the sentence.
 

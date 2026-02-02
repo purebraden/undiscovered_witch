@@ -1,4 +1,4 @@
-# Chapter 77 — The Part Where You Go
+# Chapter 75 — The Part Where You Go
 
 They didn’t count down.
 
@@ -61,6 +61,16 @@ The room she’d been standing in unstitched itself, seams coming apart without 
 Rachel stumbled and caught herself on instinct that didn’t feel like hers.
 
 “Breathe,” someone said, farther away now. Or closer. It was hard to tell. “You’re already between.”
+
+Something brushed her palm.
+
+Paper.
+
+Not a contract. Not a signature. Just a folded sheet pressed into her hand with the same detached efficiency the space used to move furniture around Lena. The ink looked too dark, too sure of itself.
+
+One word sat at the top, written like a name and a warning at once.
+
+Relay.
 
 Between what didn’t get answered.
 

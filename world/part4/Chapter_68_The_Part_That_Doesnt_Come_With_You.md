@@ -1,4 +1,4 @@
-# Chapter 70 — The Part That Doesn’t Come With You
+# Chapter 68 — The Part That Doesn’t Come With You
 
 Rachel stood longer than made sense.
 

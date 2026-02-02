@@ -1,4 +1,4 @@
-# Chapter 68 — How to Be Smaller
+# Chapter 66 — How to Be Smaller
 
 Rachel decided to be careful.
 

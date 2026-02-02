@@ -1,4 +1,4 @@
-# Chapter 73 — What It Costs
+# Chapter 71 — What It Costs
 
 Lena stood up and then didn’t go anywhere, weight shifting once like she’d forgotten what she meant to do with it, shoulder rolling forward and back, not stretching so much as checking.
 

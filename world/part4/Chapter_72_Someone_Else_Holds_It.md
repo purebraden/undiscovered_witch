@@ -1,4 +1,4 @@
-# Chapter 74 — Someone Else Holds It
+# Chapter 72 — Someone Else Holds It
 
 Lena stayed where she was, upright and still, hands flat on her thighs, shoulders set in a way that looked practiced rather than comfortable, like she’d already learned which movements were a waste and wasn’t interested in proving it again. People moved around her carefully, not circling exactly, not avoiding either, just adjusting paths a fraction too late and then again, like the room itself hadn’t quite agreed on how wide the space around her needed to be.
 

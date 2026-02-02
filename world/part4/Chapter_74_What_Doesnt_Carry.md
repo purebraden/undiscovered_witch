@@ -1,4 +1,4 @@
-# Chapter 76 — What Doesn’t Carry
+# Chapter 74 — What Doesn’t Carry
 
 Rachel noticed it because everything else still sounded right.
 
@@ -115,5 +115,9 @@ Rachel read her lips.
 I’m here.
 
 Rachel nodded, breath shaking. “I know.”
+
+Lena mouthed something else, smaller, angrier, like it hurt to give it away.
+
+Go.
 
 And it landed then — not as a realization, not as a thought she finished — that hearing and knowing were already two different things, and one of them was slipping out of reach whether she moved or not.
