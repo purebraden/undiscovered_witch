@@ -152,11 +152,7 @@ Behind her, something struck the walls hard enough to shake dust loose from the 
 
 Rachel pushed harder, breath tearing in and out of her chest, the corridor stretching ahead of her in a way that made distance feel meaningless. Her bad leg buckled and she nearly went down, her hand slapping the wall to keep her upright.
 
-The stone was warm.
-
-Too warm.
-
-She jerked her hand back.
+The stone was warm—too warm—and she jerked her hand back.
 
 Light surged under her skin.
 
@@ -168,7 +164,7 @@ She forced herself to move.
 
 The corridor forked.
 
-No markings she understood. No signs. Just left or right, both narrow, both dark, both wrong in different ways.
+No markings she understood, no signs—just left or right, both narrow, both dark, both wrong in different ways.
 Spirals scored into the stone—ward marks, not directions. One of them looked familiar and she had no idea why. She'd never seen anything like this in her life, except apparently her body disagreed.
 
 Boots thundered behind her. Voices carried, overlapping and sharp.
@@ -197,11 +193,9 @@ She screamed again, louder, jaw clenched so tight it popped as she yanked harder
 
 "No," she gasped, hands pressing uselessly against the wound. "No, stop."
 
-It did not stop.
+It didn't stop.
 
-The light surged.
-
-Not outward. Down.
+The light surged—not outward, but down.
 
 The stone beneath her rippled. The water froze, not into clear ice but into something cloudy and brittle that cracked under its own weight. The floor bulged upward, lifting Rachel with it, forcing her onto her feet as the corridor warped and groaned.
 
@@ -219,9 +213,7 @@ The flesh had pulled together unevenly, tight and pale. Thin dark lines spread b
 
 The question surfaced before she could stop it, and she shoved it back down because she couldn't afford to think about it, couldn't afford to acknowledge that her body was doing things bodies weren't supposed to do.
 
-Behind her, something howled.
-
-Closer now.
+Behind her, something howled—closer now.
 
 Rachel limped forward, the corridor spitting her into a wider hall lined with doors set deep into the walls. Some stood closed. Some were dented. One hung half off its hinges, metal clawed and twisted outward.
 Each door carried a thin white knot of paint at shoulder height, a ward sign, not a number.
@@ -302,7 +294,7 @@ If anything, it tightened—a steady pressure behind her breastbone, patient and
 
 She tried to cut left, away from the pull.
 
-Pain bloomed behind her eyes. Heavy. Dull. Squeezing until her vision tunneled and her knees wobbled. She staggered, caught herself on a wall rough with old mortar, and swore.
+Pain bloomed behind her eyes—heavy, dull—squeezing until her vision tunneled and her knees wobbled. She staggered, caught herself on a wall rough with old mortar, and swore.
 
 *What the fuck is inside me?*
 
@@ -316,9 +308,7 @@ She wanted to scream. She kept running instead.
 
 The streets changed as she went, stone underfoot growing uneven and old, patched and repatched until it looked like scars layered over scars. The buildings thinned, windows narrowing, doors reinforced with iron bands and deep-cut marks that had nothing decorative about them.
 
-No one ran here.
-
-They watched.
+No one ran here. They watched.
 
 Faces hovered behind shutters. Eyes tracked her from alleys that smelled of damp and rot. The light under Rachel's skin pulsed with her heartbeat, brightening with each step, and with it came a faint shift in the air, like breathing out of time with her own.
 
@@ -552,9 +542,7 @@ The word landed flat and final.
 
 The circle flared again, tighter this time, squeezing until Rachel cried out and curled in on herself, the light searing behind her eyes and down her spine.
 
-Stone cracked overhead.
-
-Fragments fell.
+Stone cracked overhead. Fragments fell.
 
 Rachel screamed as something inside her shifted and locked, the pressure settling into a new shape that did not move when she did.
 
@@ -564,9 +552,7 @@ Above them, the ceiling began to come apart.
 
 The ceiling came down in pieces first—stone cracking, splitting overhead, dust pouring down in choking sheets while heat rolled through the chamber and stole what little breath Rachel had left.
 
-Something screamed above them. Inhuman. Wrong.
-
-Then it cut off, and the silence was worse.
+Something screamed above them—inhuman, wrong—then cut off, and the silence was worse.
 
 Fire followed—careful, measured, pouring down the stairwell and through cracks in the stone like something being applied on purpose. This wasn't wildfire. Someone was burning this place deliberately.
 
