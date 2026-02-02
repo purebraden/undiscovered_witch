@@ -1,4 +1,4 @@
-# Chapter 82 — What Doesn’t Carry
+# Chapter 76 — What Doesn’t Carry
 
 Rachel noticed it because everything else still sounded right.
 
