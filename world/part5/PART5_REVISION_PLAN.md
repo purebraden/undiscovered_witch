@@ -1,9 +1,26 @@
 # Part 5 Revision and Continuation Plan
 
-## Current State
+## Current State — COMPLETED
 
-**Drafted chapters:** 76-93 (18 chapters)
-**Story position:** Rachel is locked in Relay containment, demon now shares her thoughts
+**Final chapters:** 76-99 (24 chapters)
+**All revisions:** DONE
+**All new chapters:** DONE
+**Continuity pass:** DONE
+
+### Continuity Notes
+- Chapter 80 (Perimeter) was missing — ADDED to bridge Ch 79→81
+- Vessel subplot properly threaded through Ch 82, 88, 89, 91
+- Leg injury mentioned in early chapters, fades as Relay takes over (appropriate)
+- Scar/warmth consistently present throughout
+- Voice transitions from external (early) to integrated (Ch 93+) 
+- Vessel description consistent between Ch 89 (interface vision) and Ch 97-98 (rescue)
+
+---
+
+## Original State (Before Revisions)
+
+**Drafted chapters:** 76-93 (18 chapters, missing Ch 80)
+**Story position:** Rachel locked in Relay containment, demon sharing thoughts
 **Missing beats:** Vessel subplot, moral choice, "Stay with me" moment, escape, rescue
 
 ---
