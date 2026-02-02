@@ -639,7 +639,7 @@ Behind her, the ones in the cages burned.
 
 Whatever she was now kept moving.
 
-She climbed until her lungs burned and every breath tasted like ash, the tunnel refusing to behave like a tunnel ought to, splitting and narrowing and slanting just wrong, as if it was less interested in letting her out than in seeing how long she would keep trying.
+She climbed until her lungs burned and every breath tasted like ash, the tunnel refusing to behave like a tunnel ought to, splitting and narrowing and slanting just wrong, like it was less interested in letting her out than in seeing how long she would keep trying.
 
 Smoke followed her in thin, lazy ropes, never close enough to choke her, never far enough to forget.
 
@@ -679,10 +679,7 @@ Not hard. Just enough.
 
 Rachel froze, breath caught halfway in, hands slick on the iron. Above her, voices drifted down through the stone, muffled but clear enough to drop her stomach.
 
-Not shouting.
-Not panicked.
-
-Working voices.
+Not shouting, not panicked—working voices.
 
 "...mark the grate. The lower run is compromised."
 "Move the cordon. If it comes up here -"
@@ -710,7 +707,7 @@ The corridor split again. Left smelled like sewage and cold air. Right carried a
 
 Rachel stepped left.
 
-Pain detonated behind her eyes, sudden and punishing, like a nail driven too deep. Her knees buckled and she slammed into the wall, gagging as nausea surged back harder this time, angry, insistent, as if she had dared to argue.
+Pain detonated behind her eyes, sudden and punishing, like a nail driven too deep. Her knees buckled and she slammed into the wall, gagging as nausea surged back harder this time, angry, insistent, like she'd dared to argue.
 
 "Stop," she hissed, fury breaking through fear. "Stop doing that."
 
@@ -738,7 +735,7 @@ She stepped out.
 
 Her boot hit the cobbles and the mark on her leg pulsed.
 
-Warmth flooded her blood like a slow pour of whiskey. Her skin prickled. The light under her skin deepened and thickened, as if it had been waiting for open air.
+Warmth flooded her blood like a slow pour of whiskey. Her skin prickled. The light under her skin deepened and thickened, like it had been waiting for open air.
 
 Rachel froze, breathing hard.
 
@@ -820,7 +817,7 @@ Instead, she turned and ran the only way she was allowed.
 
 Back underground.
 
-Behind her, lantern light slid along the cobbles like a searching finger, and the calm voice followed, softer now, as if speaking to something skittish and dangerous.
+Behind her, lantern light slid along the cobbles like a searching finger, and the calm voice followed, softer now, like it was speaking to something skittish and dangerous.
 
 "Easy. Easy. We know what you are."
 
@@ -1527,9 +1524,7 @@ It did not tug her forward so much as keep her from stopping, tightening when sh
 
 The corridor opened into a larger space.
 
-Not a hall.
-
-Not a room.
+Not a hall. Not a room.
 
 A chamber that looked like it had been repurposed and then repurposed again, stone walls pocked with old bolt holes, stains in irregular arcs where something had once been mounted and removed. The floor dipped toward the center, and there a shallow depression held a dark patch that might have been water or old burn.
 
@@ -2899,9 +2894,7 @@ Ahead, the wall shimmered faintly. Rachel’s palm tingled before she touched it
 
 The pressure surged forward.
 
-Not waiting.
-
-Not asking.
+Not waiting. Not asking.
 
 # Chapter 19 — Not a Place That Helps
 
@@ -3504,11 +3497,7 @@ Rachel tightened her grip on the bottle. The plastic creaked and sprang back.
 
 The pressure crowded her ribs and stayed there.
 
-Not moving her.
-
-Not leaving.
-
-Just waiting.
+Not moving her. Not leaving. Just waiting.
 
 # Chapter 23 — Not a Procedure
 
@@ -5897,9 +5886,7 @@ Rachel hit cold tile and rolled, lungs dragging for air.
 
 The pressure inside her held tight.
 
-Not guiding.  
-Not apologizing.  
-Waiting.
+Not guiding, not apologizing. Waiting.
 
 # Chapter 41 — The Wrong Floor
 
@@ -6071,8 +6058,7 @@ She slid—half standing, half falling—cold air tearing up around her legs as 
 
 She hit something that bent and corrected.
 
-Not soft.  
-Not solid.
+Not soft, not solid.
 
 A surface that accepted her weight late and then pitched her sideways anyway, sending her shoulder into a wall that didn’t line up with anything else. Pain arrived out of order—ribs, then hip, then shoulder again as if it wanted a second try.
 
