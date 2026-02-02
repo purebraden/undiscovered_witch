@@ -2,15 +2,15 @@
 
 The pain came first.
 
-Not the clean kind. Not the movie kind. Just wrong—like being poured into a container that was already full and somebody kept tipping the bottle anyway, spill after spill, and your body had to pretend it could hold it.
+Not the clean kind. Not the movie kind where you grit your teeth and do something heroic and later there’s a bandage and a kiss and the swelling goes down. This was the other kind. The kind that arrives without your permission and then starts rearranging you. Wrong—like being poured into a container that was already full and somebody kept tipping the bottle anyway, spill after spill, and your body had to pretend it could hold it.
 
 Stone slammed into Rachel's ribs hard enough to knock the air out of her. Cold grit scraped her cheek. Lines carved into the floor burned white-hot against her skin, too bright to look at, too hot to ignore, as the world snapped sideways and then tried, badly, to stay that way.
 
-Someone screamed nearby, high and cracking. Another voice cut through it, barking orders in a language that felt sharp in the mouth even when she did not understand a word of it.
+Someone screamed nearby, high and cracking, the sound of a person finding out—too late—that they had been wrong about what the world was allowed to do. Another voice cut through it, barking orders in a language that felt sharp in the mouth even when she did not understand a word of it.
 
 "No - don't anchor it yet -"
 
-Something yanked at her spine. Not muscle. Not bone. Something behind the eyes, hooked deep and pulling forward like it wanted her inside out.
+Something yanked at her spine—not muscle, not bone. Something behind the eyes, hooked deep and pulling forward like it wanted her inside out, like it had found a zipper in the back of her skull and decided it was time.
 
 Rachel tried to breathe and tasted blood. Thick and coppery. She gagged and swallowed it anyway.
 
@@ -38,7 +38,7 @@ The hands holding her tightened instead.
 
 She screamed.
 
-It was not words. It was not even a sound she recognized. Just pressure breaking loose, panic tearing its way out through her throat because it did not have anywhere else to go.
+It was not words. It was not even a sound she recognized. Just pressure breaking loose, panic tearing its way out through her throat because it did not have anywhere else to go, because her brain had run out of exits and picked the ugliest one.
 
 Something answered.
 
@@ -74,11 +74,7 @@ Crossbow bolts slammed into the stone around her.
 
 One punched through her leg like it barely noticed the bone. Pain detonated, bright and blinding, and Rachel screamed again as she staggered sideways, nearly going down.
 
-She did not think.
-
-She did not plan.
-
-She wanted it to stop.
+There was no time to think. No room to plan. She just wanted it to stop—wanted the alarms and the bolts and the hook in her spine and the room itself, wanted the whole goddamn moment to rewind back into normal, except there was no normal left to rewind to.
 
 The light surged outward.
 
@@ -126,9 +122,7 @@ Behind her, the doors finally gave way.
 
 Something screamed, long and hungry.
 
-Rachel did not look back.
-
-She did not slow down.
+Rachel did not look back. She couldn't afford the picture. She didn't slow down because slowing down meant getting caught, and getting caught meant whatever that sound belonged to finding her first.
 
 The corridor bent, then bent again, and then stopped bending altogether and just went on, straight and narrow and wrong, like it had decided she was not meant to reach an end.
 
@@ -138,9 +132,7 @@ The air tasted sharp and metallic, like a storm waiting overhead without ever br
 
 Behind her, something struck the walls hard enough to shake dust loose from the ceiling.
 
-Not close.
-
-Not far enough.
+Not close—thank God, not close—but not far enough either.
 
 Rachel pushed harder, breath tearing in and out of her chest, the corridor stretching ahead of her until distance stopped meaning anything. Her bad leg buckled and she nearly went down, her hand slapping the wall to keep her upright.
 
@@ -156,7 +148,7 @@ The wall puckered inward where she had touched it, stone dimpling like clay pres
 
 Rachel stared for half a second too long.
 
-She forced herself to move.
+She forced herself to move, cursing under her breath like it would make her legs work better.
 
 The corridor forked.
 
@@ -241,7 +233,7 @@ Not toward her.
 
 Away.
 
-Someone saw her stumble into the street, blood-soaked and faintly glowing beneath the skin, and screamed. The sound spread, jumping from throat to throat.
+Someone saw her stumble into the street, blood-soaked and faintly glowing beneath the skin, and screamed. The sound spread, jumping from throat to throat, turning into something contagious and stupid and fast, the way panic always is when it belongs to someone else.
 
 "Outsider!"
 "Break-runner!"
@@ -287,7 +279,7 @@ The pull did not fade.
 
 It tightened.
 
-Not a yank. Not a shove. Just a steady pressure set behind her breastbone, patient and exact, drawing her sideways every time she tried to ignore it.
+Not a yank. Not a shove. More like a finger hooked in her sternum, patient and exact, drawing her sideways every time she tried to ignore it—no pain at first, just the sick certainty of being guided.
 
 "Stop it," she muttered, breath scraping in and out of her chest. "Stop."
 
@@ -299,7 +291,7 @@ She moved back the other way.
 
 The pressure eased.
 
-Rachel did not slow.
+Rachel did not slow. Slowing down felt like giving it time to decide what she was.
 
 The streets changed as she went, stone underfoot growing uneven and old, patched and repatched until it looked like scars layered over scars. The buildings thinned, windows narrowing, doors reinforced with iron bands and deep-cut marks that had nothing decorative about them.
 
@@ -545,9 +537,7 @@ Not human. Not quite.
 
 Then it cut off.
 
-Fire followed.
-
-Not a rush. Not a blast. A careful flooding, pouring down the stairwell and through the cracks in the stone like something being applied on purpose, measured and patient.
+Fire followed—no roar, no cinematic whoosh, just heat arriving the way bureaucracy arrives: with intent. Not a rush. Not a blast. A careful flooding, pouring down the stairwell and through the cracks in the stone like someone had decided the solution was to fill the whole place up until nothing inside could argue.
 
 Rachel curled tighter inside the circle, arms locked over her head, lungs burning as the air thickened and grew hot enough to hurt. The light under her skin pulsed sluggishly now, heavy as syrup, dragging at her thoughts when she tried to move.
 
@@ -561,7 +551,7 @@ Metal shrieked as iron bars glowed red, then white, the sound sharp enough to se
 
 They burned anyway.
 
-Rachel smelled it, sweet and rancid and thick, coating the back of her throat until she gagged and retched, black flecks spattering the stone inside the circle.
+Rachel smelled it, sweet and rancid and thick, coating the back of her throat until she gagged and retched, black flecks spattering the stone inside the circle, and she had the awful thought—sharp as a pin—that she was going to die here with ash on her tongue and nobody would even know her name.
 
 She tried to crawl.
 
