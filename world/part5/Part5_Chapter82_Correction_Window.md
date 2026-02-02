@@ -12,29 +12,29 @@ The structure did not.
 
 It extended in a smooth, uninterrupted motion, its top plane reshaping into a shallow channel whose proportions made sense only if a body was expected to occupy it.
 
-Her pulse spiked. The light beneath her skin pressed outward against compression, searching for space that wasn’t being offered.
+Her pulse spiked. The light beneath her skin pressed outward against compression, searching for space that wasn't being offered.
 
 *Easy,* the voice said. *This is calibration.*
 
-“Feels like positioning,” Rachel said, breath tight.
+"Feels like positioning," Rachel said, breath tight.
 
 *It is.*
 
-“Correction requires isolation,” the presence said, still not facing her.
+"Correction requires isolation," the presence said, still not facing her.
 
-“From what,” Rachel asked.
+"From what," Rachel asked.
 
-“Variance.”
+"Variance."
 
 The word landed cleanly, and the room adjusted around it. The air thickened near her shoulders, not restraining her movement but making any lateral step feel inefficient, poorly chosen.
 
 The pressure in her chest tightened in response, alert without tipping into command.
 
-“Define correction,” Rachel said.
+"Define correction," Rachel said.
 
-The presence paused, then answered as if pulling from a standardized list. “Stabilization of internal alignment. Removal of external interference. Reassignment of binding parameters.”
+The presence paused, then answered as if pulling from a standardized list. "Stabilization of internal alignment. Removal of external interference. Reassignment of binding parameters."
 
-Rachel swallowed. “That sounds permanent.”
+Rachel swallowed. "That sounds permanent."
 
 No response came.
 
@@ -44,73 +44,91 @@ Pain flared behind her eyes immediately, sharp and contained, and she gasped as 
 
 *Do not resist,* the voice said. *Not yet.*
 
-“I’m not,” Rachel said, though her hands were clenched hard enough to ache.
+"I'm not," Rachel said, though her hands were clenched hard enough to ache.
 
 The structure extended again, stopping just short of her knees as the hum modulated in quick, precise steps that made her stomach roll.
 
-A second presence resolved at the chamber’s edge. This one struggled longer to maintain a stable outline, its shape clarifying only once it stopped moving. Light pooled where its face should have been, never resolving into features.
+A second presence resolved at the chamber's edge. This one struggled longer to maintain a stable outline, its shape clarifying only once it stopped moving. Light pooled where its face should have been, never resolving into features.
 
-“Correction window established,” it said.
+"Correction window established," it said.
 
-Rachel’s breath caught. “Window.”
+Rachel's breath caught. "Window."
 
-“Opportunity,” the first presence replied.
+"Opportunity," the first presence replied.
 
-“Duration dependent on compliance,” the second added.
+"Duration dependent on compliance," the second added.
 
-Rachel let out a short, humorless laugh. “Of course it is.”
+Rachel let out a short, humorless laugh. "Of course it is."
 
 The light beneath her skin compressed further, pulled tight against bone until the space around it felt hollow. The structure reacted immediately, its lines flaring in response as the hum spiked.
 
 Rachel hissed and forced herself still.
 
-*They’re reading pressure,* the voice said. *Not intent.*
+*They're reading pressure,* the voice said. *Not intent.*
 
-“What happens if I refuse,” Rachel asked.
+"What happens if I refuse," Rachel asked.
 
-“Escalation,” the first presence said.
+"Escalation," the first presence said.
 
-“Containment,” the second followed.
+"Containment," the second followed.
 
 Her stomach dropped.
 
-“And if I comply.”
+"And if I comply."
 
 The first presence hesitated. The second answered without delay.
 
-“Integration.”
+"Integration."
 
-The word settled coldly in Rachel’s chest.
+The structure flickered. For a fraction of a second, its lines rearranged into a different configuration—one that pointed away from Rachel, toward somewhere else in the Relay.
 
-“No,” she said.
+"Redirect pathway available," the second presence added, as if reading from a list. "Compatible receiver identified."
+
+Rachel's breath caught. "What does that mean."
+
+Neither presence answered.
+
+The pressure in her chest tightened sharply, the voice suddenly alert.
+
+*They have someone else,* it said. *Prepared. Waiting.*
+
+"Someone else for what," Rachel whispered.
+
+The structure flickered again, then returned to its original configuration. The moment passed. The presences did not acknowledge it had happened.
+
+But Rachel had felt it—a brief tug, not toward the structure in front of her, but toward something deeper in the Relay. Something that was already shaped to receive what she was carrying.
+
+The word settled coldly in Rachel's chest.
+
+"No," she said.
 
 The chamber recalibrated.
 
-The air grew denser, tolerance margins narrowing in ways she felt in her lungs and calves before she understood them. The floor’s inclination increased by a degree she registered as strain rather than movement.
+The air grew denser, tolerance margins narrowing in ways she felt in her lungs and calves before she understood them. The floor's inclination increased by a degree she registered as strain rather than movement.
 
 The structure pulsed once.
 
-Rachel’s vision narrowed, pressure building behind her eyes.
+Rachel's vision narrowed, pressure building behind her eyes.
 
 *Hold,* the voice said, closer now, bracing her alignment against the surge. *We can ride the window.*
 
-“Ride it where,” Rachel whispered.
+"Ride it where," Rachel whispered.
 
 *To a transfer.*
 
-Her breath hitched. “I don’t want another one.”
+Her breath hitched. "I don't want another one."
 
-*This one isn’t accidental.*
+*This one isn't accidental.*
 
 The structure advanced one final increment and stopped. Close enough now that its vibration traveled cleanly through her knees and into her spine.
 
 The first presence finally turned toward her, features sharpening just enough to register attention.
 
-“Please assume position,” it said.
+"Please assume position," it said.
 
 The phrasing was perfectly neutral.
 
-The pressure in Rachel’s chest tightened to a narrow, held edge.
+The pressure in Rachel's chest tightened to a narrow, held edge.
 
 Behind her, the seam remained unavailable.
 
