@@ -1,7 +1,10 @@
-# Drafting Rules for Continuing Part 1
+# Drafting Rules for Parts 1-4
 
-Use this file when drafting new chapters after part1.md.
-Do not rewrite or repeat part1. Continue from the last line.
+Use this file when drafting chapters for Parts 1-4.
+
+**For Part 5, use `Part5_Drafting_Prompt.md` instead.**
+
+Do not rewrite or repeat existing content. Continue from the last line of the previous part.
 
 ## Continuity Anchor
 - Part 1 ends with a containment unit locking onto Rachel in a dark chamber.
