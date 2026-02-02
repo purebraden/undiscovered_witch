@@ -10448,7 +10448,7 @@ Rachel nodded anyway, because nodding still worked.
 
 Rachel took a step and felt it carry farther than it should have.
 
-“Wait,” she said, and heard her own voice echo in a way that made it feel late.
+“Wait,” she said, and heard her own voice echo and sound late.
 
 Lena surged forward.
 
@@ -10778,7 +10778,7 @@ Something ahead shifted.
 
 Rachel froze.
 
-The shape resolved slowly, not appearing so much as finishing a decision. A figure stood near the center of the basin, back turned, posture wrong in a way that made her skin crawl. Too upright. Too still.
+The shape resolved slowly, not appearing so much as finishing a decision. A figure stood near the center of the basin, back turned, posture wrong enough to make her skin crawl. Too upright. Too still.
 
 Rachel swallowed. “Is that—”
 
@@ -10981,7 +10981,7 @@ A woman stepped into her path farther on, blocking it without touching the groun
 
 Rachel stopped short, pulse racing.
 
-The woman’s face was smooth in a way that didn’t read as young. Finished. Her skin held a dull sheen, light trapped under it without release.
+The woman’s face was smooth, not young. Finished. Her skin held a dull sheen, light trapped under it without release.
 
 “You’re early,” the woman said.
 
@@ -11976,7 +11976,7 @@ Sensation flattened across her body as posture and balance were corrected faster
 
 Rachel gagged and forced herself to breathe.
 
-The corridor tightened again, pressure outlining her shoulders and hips with unnerving precision. The hum modulated upward, not louder, but more exact, resolution increasing in a way that made her feel newly visible.
+The corridor tightened again, pressure outlining her shoulders and hips with unnerving precision. The hum modulated upward, not louder, but more exact, resolution increasing until she felt newly visible.
 
 Ahead, the corridor ended.
 
@@ -12089,7 +12089,7 @@ The hum flattened her attempts.
 
 Her lungs complied.
 
-Warmth spread from her scar, dull and constant, threading upward through her leg and settling low in her spine. The sensation wasn’t painful. It was stabilizing in a way that felt disturbingly supportive, as if her body were being rewarded for staying inside the pattern.
+Warmth spread from her scar, dull and constant, threading upward through her leg and settling low in her spine. The sensation wasn’t painful. It was stabilizing, disturbingly supportive, as if her body were being rewarded for staying inside the pattern.
 
 Rachel clenched her jaw.
 
@@ -12164,7 +12164,7 @@ The pressure changed before anything else did.
 
 It didn’t increase. It differentiated.
 
-Rachel felt it as a subtle redistribution across her body, points of contact resolving with new priority. Her shoulders were held more firmly than her hips. Her spine was supported in a way that encouraged stillness rather than balance. Her feet remained planted, but the pressure no longer cared whether they were aligned.
+Rachel felt it as a subtle redistribution across her body, points of contact resolving with new priority. Her shoulders were held more firmly than her hips. Her spine was supported to encourage stillness rather than balance. Her feet remained planted, but the pressure no longer cared whether they were aligned.
 
 The hum layered again.
 
@@ -12880,7 +12880,7 @@ Rachel's heart hammered. "That felt different."
 
 There was no pause this time.
 
-*Because it is.* The voice sounded nearer than it ever had, but not louder. Not invasive in the old way. Present in a way that made her feel less alone and more trapped.
+*Because it is.* The voice sounded nearer than it ever had, but not louder. Not invasive in the old way. Present, making her feel less alone and more trapped.
 
 Rachel swallowed hard. She tried to locate the voice the way she always had—like something perched behind her ear, like an intruder in the corner of a room.
 
@@ -13365,7 +13365,7 @@ The light beneath her skin didn't flare. It didn't surge. It just stayed steady 
 
 "Let them."
 
-The corridor narrowed. The air grew denser. Somewhere ahead, Rachel could feel the other vessel's presence—still held, still waiting, still empty in a way that made her chest ache.
+The corridor narrowed. The air grew denser. Somewhere ahead, Rachel could feel the other vessel's presence—still held, still waiting, still empty enough to make her chest ache.
 
 She picked up her pace.
 
@@ -13373,7 +13373,7 @@ The system tried to redirect her, pressure planes tilting to guide her toward an
 
 Rachel refused.
 
-And for the first time since entering the Relay, she felt what it meant to be complete: not powerful, not invincible, but whole in a way that made the system's constraints feel like suggestions instead of commands.
+And for the first time since entering the Relay, she felt what it meant to be complete: not powerful, not invincible, but whole enough that the system's constraints felt like suggestions instead of commands.
 
 She was coming.
 
@@ -13501,7 +13501,7 @@ Not violently—the light simply stopped holding together, its structure collaps
 
 The vessel dropped.
 
-Rachel caught them before they hit the floor, arms wrapping around a body that weighed less than it should have. They were light in a way that went beyond physical mass—hollowed out, prepared, shaped by months or years of the Relay's attention into something ready to receive.
+Rachel caught them before they hit the floor, arms wrapping around a body that weighed less than it should have. They were light beyond physical mass—hollowed out, prepared, shaped by months or years of the Relay's attention into something ready to receive.
 
 They hadn't received.
 
