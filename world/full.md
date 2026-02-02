@@ -2561,7 +2561,7 @@ Its light swept the space again, slower now, as if taking inventory.
 
 Rachel dragged herself upright and limped toward the far end of the run. Her leg burned, then went strangely numb, sensation thinning until it felt distant and hollow. The pressure settled, dense and focused, bracing her instead of driving her.
 
-Overhead, a pipe rattled as she passed. Another shuddered, vibrating in a way that made her teeth ache. The pressure twisted, sharp and insistent, and the pipe burst with a crack, spraying hot water into the channel.
+Overhead, a pipe rattled as she passed. Another shuddered, vibrating until her teeth ached. The pressure twisted, sharp and insistent, and the pipe burst with a crack, spraying hot water into the channel.
 
 Steam filled the run.
 
@@ -3147,7 +3147,7 @@ Rachel’s weight shifted hard to the left. Her knees skidded on damp stone and 
 
 The door tore free.
 
-Metal shrieked as it folded inward, frame ripping loose in a way that sounded too easy.
+Metal shrieked as it folded inward, frame ripping loose with a sound that was too easy.
 
 Something inside screamed.
 
@@ -3261,7 +3261,7 @@ Nothing did.
 
 Rachel slowed her steps until the effort made her calves burn.
 
-The passage sloped downward, walls damp where old braces showed through the stone, the floor uneven in a way that punished hesitation. Lena moved ahead of her, shoulders tight, counting under her breath without realizing she was doing it.
+The passage sloped downward, walls damp where old braces showed through the stone, the floor uneven and it punished hesitation. Lena moved ahead of her, shoulders tight, counting under her breath without realizing she was doing it.
 
 Rachel shortened her stride again, forcing her weight to settle where her foot landed instead of pitching forward into the next step. It worked badly. Her knee locked for half a beat, then released too late, sending her hand into the wall as she caught herself.
 
@@ -3728,7 +3728,7 @@ They moved Miri first.
 
 Not lifted. Not carried.
 
-Someone slid a mat across the floor and Miri ended up on it in pieces, her body guided by hands that hovered instead of touched, fingers stopping short and then adjusting again when the first angle proved wrong. She cried under her breath, teeth knocking together, breath coming apart in little skips. Her arm lay against her side in a way that wasn’t broken and wasn’t right, the timing off, like it had missed a step and never caught up.
+Someone slid a mat across the floor and Miri ended up on it in pieces, her body guided by hands that hovered instead of touched, fingers stopping short and then adjusting again when the first angle proved wrong. She cried under her breath, teeth knocking together, breath coming apart in little skips. Her arm lay against her side—not broken, not right—timing off, like it had missed a step and never caught up.
 
 Rachel stayed in the chair.
 
