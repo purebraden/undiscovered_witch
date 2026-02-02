@@ -2401,9 +2401,9 @@ She turned and limped deeper into the dark, the only direction it would let her 
 
 The maintenance run ended in a junction that had been lit for no one.
 
-Lines in the floor glowed faintly. Doors to either side sat half open, as if the corridor could not decide which route was safe.
+Lines in the floor glowed faintly. Doors to either side sat half open, as if the corridor couldn't decide which route was safe.
 
-Rachel stepped into the junction and felt the pressure tighten, alert and ready.
+Rachel stepped into the junction and felt the thing tighten, alert and ready.
 
 Someone was waiting.
 
@@ -2413,15 +2413,17 @@ Three people in dark coats stood at the far end, spaced out, hands visible, a st
 
 Rachel froze.
 
+Fuck. Fuck fuck fuck—
+
 The strip on the floor brightened. A shallow groove lit beneath her boots, hemming her in.
 
-She looked left. The pressure shoved hard and she gagged, vision tunneling.
+She looked left. The thing shoved hard and she gagged, vision tunneling.
 
-She looked right. The same. The pressure wasn't letting her near the doors.
+She looked right. The same. It wasn't letting her near the doors.
 
 The nearest person took one step forward. The strip between them hummed.
 
-Rachel's chest burned. The pressure coiled, hot and tight, like a fist held back.
+Rachel's chest burned. The thing coiled, hot and tight, like a fist held back.
 
 "Do not touch her," someone said from farther back. "If she spikes, drop it."
 
@@ -2431,9 +2433,11 @@ Rachel took one step backward. The groove behind her lit.
 
 She realized then that the only unlit path was forward, toward the strip.
 
+They're herding me. They know what direction it will let me go.
+
 She breathed in, then moved.
 
-The pressure flared, not in refusal but in defense, and the stone under the strip warped with a low groan. The person holding it staggered as the floor dipped.
+The thing flared, not in refusal but in defense, and the stone under the strip warped with a low groan. The person holding it staggered as the floor dipped.
 
 Rachel didn't wait. She lunged into the gap, shoulder down, and the strip snapped as she passed, its pale material tearing with a sharp, dry sound.
 
@@ -2443,9 +2447,9 @@ The corridor ahead opened into a cart lane, rails set into the floor, a slow-mov
 
 Rachel threw herself onto the nearest one. Her leg screamed. She bit down and held on as the cart pulled her forward.
 
-Behind her, the floor lines flared. A shout broke. Something slammed into the stone where she had been.
+Behind her, the floor lines flared. A shout broke. Something slammed into the stone where she'd been.
 
-The cart carried her into the next corridor, and the pressure settled heavy and focused, not toward safety but toward motion.
+The cart carried her into the next corridor, and the thing settled heavy and focused, not toward safety but toward motion.
 
 The cart line climbed.
 
@@ -2483,23 +2487,25 @@ The passage opened into a corridor that had been dark and wasn't anymore.
 
 A thin strip of light ran along the ceiling, pale and steady, then another came on farther down, then another, like stepping stones calling her forward.
 
-Rachel froze. The pressure tightened a beat later, sharp and sudden, as if it hadn'ticed the lights at the same moment she did.
+Rachel froze. The thing tightened a beat later, sharp and sudden, as if it hadn't noticed the lights at the same moment she did.
 
 The hum in the walls deepened, uneven, like the building was pulling power from places it had meant to keep asleep.
 
-She moved because the pressure would not let her stand still.
+What is this place? How does any of this work?
+
+She moved because the thing wouldn't let her stand still.
 
 Each time she stepped, another light came on ahead. Each time she tried to slow, nausea tightened behind her eyes.
 
-A click sounded inside the walls. Then another, deeper, farther away. The sound didn't travel right. It bent around corners it should not have reached.
+A click sounded inside the walls. Then another, deeper, farther away. The sound didn't travel right. It bent around corners it shouldn't have reached.
 
-Rachel's chest burned. The pressure spread low and wide in her ribs, not flaring, not pulling back, just rearranging itself in a way that made her skin prickle.
+Rachel's chest burned. The thing spread low and wide in her ribs, not flaring, not pulling back, just rearranging itself in a way that made her skin prickle.
 
 She reached a door that wasn't a door a moment ago. It sat half open, cold air breathing out.
 
 She took one step toward it.
 
-The pressure slammed into her. She staggered back, breath tearing, and the door slid shut.
+The thing slammed into her. She staggered back, breath tearing, and the door slid shut.
 
 The lights ahead brightened again, urging her onward.
 
@@ -2511,15 +2517,17 @@ They followed.
 
 The corridor ended at a junction cut into older stone, the walls pocked with bolt holes and old seams that had been sealed and reopened too many times.
 
-Rachel stopped and felt the pressure tighten, uncertain, as if the place didn't have a clear rule for what she was supposed to do next.
+Rachel stopped and felt the thing tighten, uncertain, as if the place didn't have a clear rule for what she was supposed to do next.
 
 A thin device slid from a slit in the wall.
 
 It was no larger than her forearm, a pale rod with a faint blue line along its edge. It hovered, humming softly, and the line flickered as it turned toward her.
 
+What the hell is that?
+
 Rachel froze.
 
-The pressure went still, the held breath absence that made her teeth ache. Something inside her listened.
+The thing went still, the held breath absence that made her teeth ache. Something inside her listened.
 
 The rod drifted closer.
 
@@ -2527,7 +2535,9 @@ She took one step back.
 
 The rod paused. The line brightened.
 
-Rachel felt heat rise under her skin, the pressure coiling hard, ready to flare. She forced herself still, jaw clenched, arms shaking.
+Rachel felt heat rise under her skin, the thing coiling hard, ready to flare. She forced herself still, jaw clenched, arms shaking.
+
+Don't. Don't react. If I react it'll—
 
 The rod retracted a fraction. The hum changed, higher now, curious.
 
@@ -2537,19 +2547,19 @@ From somewhere beyond the wall, a voice carried, muffled and urgent. "It is on t
 
 She needed out. Daylight. Anything that wasn't this.
 
-The pressure twitched at the word contact, a reflexive refusal.
+The thing twitched at the word contact, a reflexive refusal.
 
 The rod extended again.
 
 Rachel broke.
 
-She shoved herself sideways into a narrow service gap, shoulder scraping stone, and the pressure flared just enough to shove the rod back against the wall. It clattered, its light stuttering.
+She shoved herself sideways into a narrow service gap, shoulder scraping stone, and the thing flared just enough to shove the rod back against the wall. It clattered, its light stuttering.
 
 A tone chirped once. Not an alarm. A signal.
 
 Rachel kept moving, slipping through the gap into a darker run that smelled of dust and old oil. Behind her, the hum shifted, and she heard the rod retreat, the slit sealing with a soft click.
 
-The pressure didn't ease. It pushed her on, away from the voices, away from the line of light that now traced the corridor she had left.
+The thing didn't ease. It pushed her on, away from the voices, away from the line of light that now traced the corridor she'd left.
 
 She limped into the dark, and the lights followed at a distance she could feel.
 
@@ -2557,15 +2567,17 @@ She limped into the dark, and the lights followed at a distance she could feel.
 
 The dark run opened into a larger chamber, and the light followed her in.
 
-A thin band slid under the door behind her, then through the seams in the walls, pale and wrong against the stone. The pressure tightened in her chest, sharp and sudden, like it had reacted before she did.
+A thin band slid under the door behind her, then through the seams in the walls, pale and wrong against the stone. The thing tightened in her chest, sharp and sudden, like it had reacted before she did.
 
 Rachel pressed her back to the wall and listened.
 
 Clicks answered from the corridor. Not footsteps. Not voices. Something mechanical, patient.
 
-The door she had passed through unsealed.
+Drones? Robots? What kind of place is this?
 
-The pressure coiled.
+The door she'd passed through unsealed.
+
+The thing coiled.
 
 A unit rolled in on a low track, no taller than her knee, a ring of metal with a hollow center and a line of light that swept the room in a slow circle. It moved with the same calm certainty as the facility itself.
 
@@ -2573,7 +2585,7 @@ Rachel held her breath.
 
 The light swept past her and paused. The ring hummed, deeper now, as if it had found something that matched.
 
-The pressure flared, hot and insistent, and Rachel felt the choice tighten around her ribs: stay hidden and let it act, or move and be seen.
+The thing flared, hot and insistent, and Rachel felt the choice tighten around her ribs: stay hidden and let it act, or move and be seen.
 
 She pushed off the wall.
 
