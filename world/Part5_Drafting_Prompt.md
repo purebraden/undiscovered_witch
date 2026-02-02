@@ -37,19 +37,55 @@ Part 5 is Rachel's journey to the Relay and the completion of her binding. It ha
 
 ---
 
-## RACHEL'S POWERS
+## RACHEL'S POWERS — DETAILED
 
-Rachel has light beneath her skin that:
-- Pulses with her heartbeat
-- Flares with strong emotion (fear, frustration, anger)
-- Can make things vanish, compress walls, warp space
-- Affects environment involuntarily (lanterns dim, floors darken)
+### What the Power Looks Like
+- **Light beneath her skin** that pulses with her heartbeat
+- Visible to others—they can see her glow, see her bones silhouetted when it flares
+- The light has a color that's "wrong"—not warm, not cold, just unsettling
+- When it moves, it moves like liquid under the surface
 
-**Power progression in Part 5:**
-- Ch 76-77: Powers are **weaker** outside the demon space; light responds sluggishly
-- Ch 78-79: Powers are **unstable**; she sees what bad completions look like
-- Ch 80-82: Powers become **cooperative** when Rachel syncs with the demon
-- Ch 83-85: Powers are **integrated**; the light isn't under her skin, it IS her skin
+### What Triggers It
+- **Involuntary:** Fear, panic, frustration, anger, desperation
+- **Semi-voluntary (Part 5):** Shared intent with the demon, deliberate focus
+- **Fully voluntary (after completion):** Direct will, but instincts have changed
+
+### What It Can Do
+- **Make things vanish** — not burned, not torn apart, just *gone*, like erased too hard
+- **Compress space** — walls fold inward, stone crushes into itself
+- **Warp geometry** — floors ripple, distances stretch or contract
+- **Destabilize environments** — ceilings collapse, structures fail
+- **Affect light sources** — lanterns dim, flames pull toward her, shadows deepen
+- **Leave marks** — floors darken where she stands, surfaces remember her presence
+
+### What It Costs
+- **Physical:** Exhaustion, dizziness, nausea, blurred vision
+- **Environmental:** Collateral damage is unavoidable—precision is impossible
+- **Social:** Anyone who sees her use power becomes a witness (exposure risk)
+- **Emotional:** Using power feels *wrong*, like something being pulled out of her
+
+### What It Cannot Do
+- ❌ Select targets precisely (can't erase one person in a crowd)
+- ❌ Act delicately (can't unlock a door without destroying the wall)
+- ❌ Heal or protect (the power destroys, it doesn't shield)
+- ❌ Work reliably under stress (emotion makes it surge unpredictably)
+
+### Power Progression in Part 5
+
+| Chapters | State | How It Feels | How It Looks |
+|----------|-------|--------------|--------------|
+| 76-77 | Weaker | Like striking a match in wind | Dim flicker, sluggish response |
+| 78-79 | Unstable | Like holding something that wants to spill | Erratic pulses, wrong-colored flashes |
+| 80-82 | Cooperative | Like breathing in sync with someone | Steady glow, flows instead of surges |
+| 83-85 | Integrated | Like flexing a muscle she always had | Light IS her skin, moves with intent |
+
+### Showing Powers in Prose
+
+**DO THIS:**
+> The light surged before she could stop it—not bright, just *present*, flooding outward in a pulse that made the air taste like copper. The wall behind the guard folded inward with a shriek of compressed stone. He didn't scream. He just stopped being there.
+
+**NOT THIS:**
+> Rachel used her power to attack the guard. The magic destroyed the wall and eliminated the threat.
 
 ---
 
@@ -112,15 +148,96 @@ The demon communicates as "the voice" in Rachel's head. Key traits:
 
 ---
 
-## ISEKAI REQUIREMENTS (EVERY CHAPTER)
+## ISEKAI WORLDBUILDING — DETAILED
 
-Show at least one world detail that is not Earth-normal:
-- Impossible geometry, wrong gravity, bending light
-- Materials that don't exist (stone that breathes, metal that flows)
-- Beings that aren't human (described through wrongness, not monster-manual entries)
-- Environmental strangeness (sky color, weather behavior, sound propagation)
+This is not Earth. Every chapter must remind the reader of that through concrete, sensory details.
 
-Rachel should have at least one "what the hell" moment per chapter, even as she becomes something stranger herself.
+### The "Between" Space (Chapters 76-79)
+
+The territory between the demon-held space and the Relay is unstable, contested, wrong:
+
+- **Geometry doesn't commit** — edges blur, distances lie, paths rearrange when you're not looking
+- **Gravity negotiates** — some steps land too early, some too late, weight shifts without warning
+- **Light bends toward things** — not sources, but *presences*, like light is curious
+- **Sound propagates wrong** — echoes arrive before the original sound, voices carry from impossible distances
+- **The ground remembers** — footprints linger, paths form from repeated use, the land learns
+
+### The Wrongly-Bound Settlement (Chapter 78)
+
+Rachel passes through a place where failed bindings live:
+
+- **People who completed wrong** — bodies that don't quite fit their bindings
+  - Some glow too bright, light leaking from eyes and mouths
+  - Some don't glow at all, skin dull and lifeless, the binding having taken everything luminous
+  - Some have shapes that shift, never settling, always becoming something else
+  - Some are frozen mid-transformation, caught between states
+- **The settlement adapts to them** — buildings that grow around inhabitants, streets that reroute to avoid the unstable ones
+- **They're not hostile, just broken** — they exist, they continue, they're warnings
+
+### The Relay (Chapters 80-85)
+
+A Convocation stronghold built for binding completion:
+
+- **Architecture that shouldn't work** — angles that don't add up, rooms that are bigger inside, corridors that loop without turning
+- **The structure bends light toward itself** — from outside, it looks like a wound in the landscape
+- **Inside: clinical and organic at once** — smooth surfaces that pulse, frames and equipment that grew rather than were built
+- **Wards and defenses** — things that react to incomplete bindings, spaces that tighten around intruders, floors that report footsteps
+- **The transfer chamber** — where the vessel waits, a frame that hums at the same frequency as Rachel's light
+
+### Types of Beings in This World
+
+**Describe beings through WRONGNESS, not monster-manual entries:**
+
+| Type | What They Look Like | How to Describe Them |
+|------|---------------------|---------------------|
+| Demons | Never fully resolved—features shift, proportions lie, edges blur | "Its face kept rearranging, features sliding into new configurations like it couldn't decide what to show her" |
+| Bound ones (successful) | Stable but *off*—too smooth, too still, movements that anticipate rather than react | "It moved before she finished deciding to step back, already positioned for where she would be" |
+| Bound ones (failed) | Leaking, unstable, caught between states | "Light seeped from the corners of his eyes, the wrong color, pulsing out of sync with his heartbeat" |
+| Convocation agents | Human-shaped but aligned wrong—joints that bend too far, attention that weighs too much | "She felt its gaze land on her like a physical pressure, eyes tracking with a precision that made her skin crawl" |
+| Markers/Trackers | Barely there—more presence than shape, things you see in peripheral vision | "Something followed at the edge of sight, never fully visible, matching her pace exactly" |
+
+### Environmental Details to Use
+
+**Sounds:**
+- Bells that ring in the wrong order
+- Voices that arrive before mouths move
+- Silence that has weight
+- Echoes that say different words than the original
+
+**Materials:**
+- Stone that breathes (slow expansion and contraction)
+- Metal that flows when unobserved
+- Glass that shows different views than what's behind it
+- Wood that bleeds when cut
+- Fabric that remembers who wore it
+
+**Light and Color:**
+- Shadows that point the wrong direction
+- Colors that don't have names (not new colors—*wrong* colors)
+- Light sources that dim when you look directly at them
+- Darkness that's thick enough to feel
+
+**Weather/Environment:**
+- Rain that falls upward in some places
+- Wind that carries voices
+- Temperature that changes based on attention
+- Sky that's the wrong color or shows too many moons
+
+### The Isekai Feeling
+
+Rachel is FROM Earth. She should notice things that a native wouldn't:
+
+**DO THIS:**
+> The sky was wrong again—three moons where there should be one, and one of them was the wrong color, a deep bruised purple that made her teeth ache. She'd stopped asking about it. No one else seemed to notice.
+
+**NOT THIS:**
+> The three moons hung in the sky as they always did in this world.
+
+Rachel should have moments of:
+- Comparison ("On Earth, walls didn't breathe")
+- Disorientation ("She couldn't remember if doors were supposed to be this shape")
+- Adaptation ("She was getting used to the way gravity lied here, and that scared her more than the lying")
+- Loss ("She tried to remember what a normal street looked like and couldn't quite hold the image")
 
 ---
 
@@ -236,6 +353,43 @@ Rachel should have at least one "what the hell" moment per chapter, even as she 
 - The Convocation is scattered but not destroyed
 - Rachel walks forward, becoming what she chose
 - Final line: motion, not destination
+
+---
+
+## EXAMPLES FROM PREVIOUS PARTS
+
+### Power Usage (Part 1)
+> The light surged outward. The nearest guard vanished. Not burned. Not torn apart. Just gone, like someone had erased him too hard. The wall behind where he had been folded inward with a shriek as stone compressed into itself, cracking and collapsing.
+
+### Power Building (Part 1)
+> She staggered forward, dizzy now, the world tilting and blurring at the edges. The light under her skin pulsed with her heartbeat, each thud a little stronger, a little harder to contain.
+
+### Environmental Wrongness (Part 3)
+> Light slid through in thin bands that didn't agree on direction, crawling across uneven surfaces, catching on walls that didn't quite meet the floor and a ceiling that sagged in places like it had given up pretending.
+
+### Describing Non-Human Beings (Part 4)
+> A tall figure leaned against a pillar that curved like a frozen wave, its outline bending where joints should have made firmer decisions. Its skin looked like wet clay, and when it breathed, the surface rippled slightly. Something broad and low rested near a recessed pool filled with dark water that didn't reflect the lantern light—a creature with too many limbs folded beneath it, eyes like drops of oil sliding slowly across a face that never settled.
+
+### Beings That Are Wrong (Part 4)
+> The being was humanoid but wrong—too tall, limbs too long, with fingers that tapered into points sharp enough to catch the light. Its skin had the texture of bark, and when it turned to look at her, she saw that its face was smooth where features should have been, only a slight indentation where a mouth might go.
+
+### Space That Behaves Wrong (Part 4)
+> Not resistance. No push. No pain. The space between them simply gained weight, as though depth itself had decided not to admit her. Rachel stopped, fingers tingling, sensation blurring at the edges.
+
+### The Demon Speaking (Part 4 style)
+> *You're asking around the thing instead of at it.*
+
+> *She fits now. You don't.*
+
+> *That's true. You hate it because it's true.*
+
+### Power Affecting Environment (Part 4)
+> She stopped. The lantern's glow contracted, dimmed to a thin line, then slowly expanded back to its original warmth. No one else seemed to notice.
+> 
+> *That was you,* the voice said.
+
+### Failed/Wrong Bindings (Part 4)
+> The woman on the floor made a small sound—not pain exactly, but something close to it. Rachel saw light shimmer beneath the woman's skin, faint and wrong, the same shimmer she'd seen on her own arms. The woman was absorbing more than variance. She was absorbing whatever Rachel was becoming.
 
 ---
 
