@@ -14,13 +14,13 @@ The motion ended cleanly, without resistance or pain, leaving her arms suspended
 
 The hum did not react.
 
-The space around her clarified again. The holding volume sharpened its edges, pressure resolving into planes that traced her outline with careful indifference. Her shoulders were supported more firmly now, spine encouraged into an upright alignment that removed the small flex she’d been using to breathe a little deeper.
+The space around her clarified again. The holding volume sharpened its edges, pressure resolving into planes that traced her outline with careful indifference. Her shoulders were supported more firmly now, spine encouraged into an upright alignment that removed the small flex she'd been using to breathe a little deeper.
 
 Rachel swallowed. Her throat felt tight.
 
-“I don’t like this,” she said, and the words came out smaller than she expected.
+"I don't like this," she said, and the words came out smaller than she expected.
 
-*I know,* the voice said quietly. It didn’t sound explanatory. It sounded tired.
+*I know,* the voice said quietly. It didn't sound explanatory. It sounded tired.
 
 The pressure continued its work.
 
@@ -34,7 +34,7 @@ They did not open further.
 
 Rachel sucked in a breath, then another. The pressure at her chest tightened a fraction, guiding the expansion of her ribs until the breath resolved into something shallow and even. Panic rose anyway, hot and fast.
 
-“Stop,” she said, voice shaking.
+"Stop," she said, voice shaking.
 
 Nothing stopped.
 
@@ -48,7 +48,7 @@ Rachel shifted her weight, testing the floor.
 
 Her heels lifted and settled again in exactly the same place, balance corrected before instability could register. The floor accepted movement without responding to it, as if stance were no longer a variable worth tracking.
 
-*Don’t fight this,* the voice said, closer now. *They aren’t reading resistance here. They’re just… finishing.*
+*Don't fight this,* the voice said, closer now. *They aren't reading resistance here. They're just… finishing.*
 
 The word landed wrong.
 
@@ -64,11 +64,35 @@ Not closing in—resolving.
 
 Rachel could feel it as a vertical presence, something that existed to receive a body already prepared to be held. Her stomach dropped at the implication, even though nothing moved yet.
 
-The pressure at her wrists tightened again, then stabilized. Her hands rested open now, fingers slightly curled, posture relaxed in a way she hadn’t chosen and couldn’t undo.
+The pressure at her wrists tightened again, then stabilized. Her hands rested open now, fingers slightly curled, posture relaxed in a way she hadn't chosen and couldn't undo.
 
-*I’m still here,* the voice said softly. *But they’re building this so I don’t have much room either.*
+*I'm still here,* the voice said softly. *But they're building this so I don't have much room either.*
 
 Rachel swallowed hard.
+
+The pull toward the other vessel intensified. She felt it as a tug at the center of her chest, not the Relay's pressure but the binding itself, straining toward the prepared receiver somewhere deeper in the facility.
+
+*If you let them,* the voice said, quiet and careful, *I go there. You stay here. Empty but alive.*
+
+Rachel's hands trembled. The tremor didn't spread. The pressure absorbed it.
+
+She thought about Lena. About the demon-held space where Lena was anchored, steady and clear. About what it would mean to walk back there without the voice in her chest. Without the light beneath her skin. Human again. Hollow, but human.
+
+She could do it.
+
+She could let the binding pull apart. Let the demon go to someone who wouldn't fight. Walk out of here with nothing inside her but herself.
+
+The temptation was so sharp it made her eyes sting.
+
+*I wouldn't blame you,* the voice said, and there was something in it Rachel had never heard before. Resignation. Acceptance. *It would be easier. For both of us.*
+
+Rachel's breath hitched. The system guided it back into compliance.
+
+"Would you want that," she whispered.
+
+The voice hesitated. Longer than it ever had.
+
+*I want you to choose,* it said finally. *Not because you're trapped. Because you decided.*
 
 The holding volume settled around her body with a final, precise adjustment. Pressure stopped searching. Edges stopped refining. Everything that could be aligned had been.
 
@@ -79,3 +103,9 @@ Nothing moved.
 Nothing needed to.
 
 Rachel could feel, with a cold clarity that settled deep in her chest, that if the space decided to take her somewhere next, there would be nothing left in her body that could argue with it.
+
+But the choice hadn't been made yet.
+
+Not by the Relay.
+
+Not by her.

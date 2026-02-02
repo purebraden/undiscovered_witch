@@ -10,21 +10,21 @@ The hum shifted.
 
 Not narrower. Layered.
 
-A surface resolved at arm’s length, translucent without being transparent, its plane marked by faint internal structure that didn’t correspond to light or shadow. It hovered without anchoring to anything Rachel could see, existing because the Relay had decided that something belonged there.
+A surface resolved at arm's length, translucent without being transparent, its plane marked by faint internal structure that didn't correspond to light or shadow. It hovered without anchoring to anything Rachel could see, existing because the Relay had decided that something belonged there.
 
 She stared at it.
 
 Her scar warmed in response.
 
-*That’s new structure,* the voice said, uneasy. *They don’t usually bother unless they plan to keep something.*
+*That's new structure,* the voice said, uneasy. *They don't usually bother unless they plan to keep something.*
 
-“What does it do,” Rachel asked.
+"What does it do," Rachel asked.
 
 *It lets them touch you without things breaking.*
 
-That didn’t sound like a gift.
+That didn't sound like a gift.
 
-The pressure at her chest eased slightly, not releasing, but redistributing so that her arms felt lighter than the rest of her body. Her elbows bent without resistance, joints granted movement that hadn’t been available a moment earlier.
+The pressure at her chest eased slightly, not releasing, but redistributing so that her arms felt lighter than the rest of her body. Her elbows bent without resistance, joints granted movement that hadn't been available a moment earlier.
 
 Rachel raised her hand.
 
@@ -32,9 +32,9 @@ The surface responded immediately.
 
 Not opening. Acknowledging.
 
-Faint lines of light resolved beneath her palm, spreading outward in a pattern that mirrored her hand’s position without copying it exactly. The sensation wasn’t touch. It was correlation, pressure and light aligning around her intent without asking what she meant to do with it.
+Faint lines of light resolved beneath her palm, spreading outward in a pattern that mirrored her hand's position without copying it exactly. The sensation wasn't touch. It was correlation, pressure and light aligning around her intent without asking what she meant to do with it.
 
-Rachel’s breath caught.
+Rachel's breath caught.
 
 She pulled her hand back.
 
@@ -42,9 +42,9 @@ The lines faded.
 
 The surface remained.
 
-*They’re narrowing what you can do,* the voice said. *Just enough that you won’t mess up whatever they’re building around you.*
+*They're narrowing what you can do,* the voice said. *Just enough that you won't mess up whatever they're building around you.*
 
-“Interference with what,” Rachel asked.
+"Interference with what," Rachel asked.
 
 *Themselves.*
 
@@ -52,7 +52,7 @@ The space around her adjusted again, boundaries resolving more clearly now. The 
 
 Rachel tested her footing.
 
-Her weight shifted without correction, just enough to tell her the system would allow stance changes as long as they didn’t propagate.
+Her weight shifted without correction, just enough to tell her the system would allow stance changes as long as they didn't propagate.
 
 She took a small step.
 
@@ -64,17 +64,17 @@ The interface pulsed once, a slow, patient rhythm that matched neither the hum n
 
 Rachel looked at it again.
 
-“What happens if I don’t use it,” she asked.
+"What happens if I don't use it," she asked.
 
 The voice paused.
 
-*Then they keep refining around you,* it said. *Until interaction isn’t necessary anymore.*
+*Then they keep refining around you,* it said. *Until interaction isn't necessary anymore.*
 
 That landed harder than a threat.
 
 Rachel raised her hand again, slower this time.
 
-The surface brightened where her palm hovered, light resolving in a shallow depth that suggested layers she couldn’t access. The pressure in her chest tightened in response, not warning her away, but bracing.
+The surface brightened where her palm hovered, light resolving in a shallow depth that suggested layers she couldn't access. The pressure in her chest tightened in response, not warning her away, but bracing.
 
 She pressed forward a fraction.
 
@@ -84,27 +84,53 @@ Not opening.
 
 Registering.
 
-Information flowed without words. Sensation compressed and re-expanded inside her awareness, patterns aligning and discarding themselves too quickly to follow. She gasped as the pressure redistributed, arms held steady while her shoulders remained locked.
+Information flowed without words. Sensation compressed and re-expanded inside her awareness, patterns aligning and discarding themselves too quickly to follow.
 
-The hum spiked briefly, then settled.
+And then she saw.
 
-Rachel yanked her hand back, shaking.
+Not through her eyes. Through the interface. Through whatever connection it had opened when she pressed too far.
 
-Her fingers tingled, nerves buzzing as if they’d been asked to carry something heavier than sensation.
+A chamber. Different from hers—smaller, simpler, already finished. The pressure there wasn't searching or refining. It was holding. Waiting.
 
-*Careful,* the voice said. *They’re watching how you react, not what you mean to do.*
+A figure stood inside it.
 
-The interface dimmed, its internal structures rearranging as if updating a record Rachel couldn’t see.
+Young. Rachel couldn't tell how she knew that, but she did. The figure's posture was perfect, spine aligned, shoulders even, hands relaxed at their sides. Their eyes were open, but unfocused. Not unconscious. Not asleep.
+
+Empty.
+
+Ready.
+
+The figure's chest glowed faintly—not the light Rachel carried, but a hollow space where light could go. A prepared vessel. Shaped to receive.
+
+Rachel gasped and yanked her hand back, shaking.
+
+The vision cut off. The interface dimmed immediately, its internal structures rearranging as if updating a record Rachel couldn't see.
+
+Her fingers tingled, nerves buzzing as if they'd been asked to carry something heavier than sensation.
+
+*That's where they want me to go,* the voice said quietly. *That's what they've been building.*
+
+"Who is that," Rachel whispered.
+
+*Someone who won't fight.*
+
+The words landed like a blow.
+
+Rachel stared at the dimmed interface, heart hammering. The figure's empty eyes stayed with her. The hollow glow in their chest. The perfect, waiting stillness.
+
+*Careful,* the voice said. *They're watching how you react, not what you mean to do.*
 
 The space around her tightened subtly, not constricting movement but clarifying it. The volume she occupied felt more deliberate now, as if it had been measured against her and adjusted until deviation would require effort rather than error.
 
 Rachel swallowed hard.
 
-“This isn’t a cage,” the voice said after a beat. *It’s worse. It’s something they expect to keep working.*
+*This isn't a cage,* the voice said after a beat. *It's worse. It's something they expect to keep working.*
 
 The interface pulsed again.
 
 Rachel stood facing it, arms loose, spine held, breath shallow, aware that the Relay had stopped asking what she was and started building the minimum structure required to keep her that way.
+
+And somewhere else in the Relay, a figure waited in perfect stillness, shaped to receive what Rachel was carrying, ready to become what Rachel refused to let go.
 
 The hum continued.
 

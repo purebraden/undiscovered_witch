@@ -1,10 +1,21 @@
 # Part 5 Outline — The Relay
 
+**STATUS: PARTIALLY DRAFTED (Ch 76-93), REVISIONS NEEDED, CONTINUATION PLANNED (Ch 94-99)**
+
+See `part5/PART5_REVISION_PLAN.md` for specific revision instructions.
+
 ## Thematic Core
 
 Part 5 inverts Part 4. Where Part 4 was stillness and questions, Part 5 is motion and answers Rachel didn't want. She's no longer running *from* something—she's running *toward* something that might kill her. The tension shifts from "what am I?" to "what will I become?"
 
 The arc ends with Rachel completing the binding on her terms—not as the Convocation's tool, not as the demon's vessel, but as something new that neither of them planned.
+
+## Structure Update
+
+Part 5 now has THREE phases:
+1. **Journey (Ch 76-79)** — Travel to Relay ✓ DRAFTED
+2. **Processing (Ch 80-93)** — Inside the Relay, being processed ✓ DRAFTED (needs revisions)
+3. **Completion (Ch 94-99)** — Choice, integration, escape ⏳ TO BE DRAFTED
 
 ---
 
