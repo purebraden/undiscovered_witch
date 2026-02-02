@@ -893,7 +893,7 @@ Two people in dark coats arrived and went straight to the fallen pair. A third s
 
 "No contact," he said.
 
-Behind Rachel, stone ground against stone. The corridor she had come through began to seal, seams dimming as if rubbed out.
+Behind Rachel, stone ground against stone. The corridor she had come through began to seal, seams dimming like someone had erased them.
 
 The pressure tightened and pulled her forward. She stepped because the only other option was the closing wall at her back.
 
@@ -959,7 +959,7 @@ The passage behind the arch curved inward and down, the ceiling low enough to hu
 
 It opened into a small room cut cleanly from stone. Grooves ran straight from floor to ceiling. A bench sat against one wall. A basin waited in the corner. A dark metal frame stood bolted to the floor, too tall and too narrow, wrong enough that her eyes wanted to slide away from it.
 
-Rachel stopped just inside. The pressure settled, heavy and still, as if the room had taken possession of her.
+Rachel stopped just inside. The pressure settled, heavy and still, like the room had taken possession of her.
 
 The stone panel slid shut behind her without a sound.
 
@@ -1007,7 +1007,7 @@ They left as quickly as they had come. The stone panel slid shut.
 
 The pressure shifted toward the frame, a sideways insistence. Rachel stood, took one step, and felt nausea rise.
 
-She stepped back. The pressure eased, as if satisfied to have made its point.
+She stepped back. The pressure eased, satisfied to have made its point.
 
 # Chapter 7 — The Room Did Not Stay Still
 
@@ -1047,7 +1047,7 @@ The pressure pulled her toward it. She went because staying meant the room that 
 
 The corridor sloped downward, narrow and close, walls brushing her shoulders when she drifted. The air smelled clean and it made her skin prickle.
 
-The pressure stayed steady, heavier than before, aligned with the corridor as if it had decided there was only one safe direction left.
+The pressure stayed steady, heavier than before, aligned with the corridor like it had decided there was only one safe direction left.
 
 The floor dipped into a shallow channel lined with smooth stone. Metal rails ran along the walls at shoulder height, polished dull where hands had gripped them.
 
@@ -1135,7 +1135,7 @@ Someone looked up.
 
 A woman at the nearest table lifted her head, her eyes tracking Rachel's hesitation before dropping to the groove beneath her feet, her hand pausing on the slate just long enough to matter.
 
-Rachel took another step and felt the pull return, stronger this time, her chest tightening as if her lungs had slid slightly off-center, and when she faltered again the groove vibrated beneath her boots, a low sound moving through the stone that carried farther than it should have.
+Rachel took another step and felt the pull return, stronger this time, her chest tightening like her lungs had slid slightly off-center, and when she faltered again the groove vibrated beneath her boots, a low sound moving through the stone that carried farther than it should have.
 
 "Stop," the man said.
 
@@ -1155,11 +1155,11 @@ Expectant.
 
 She did not look back.
 
-The corridor narrowed as she walked, not abruptly but in small degrees, the walls easing closer until her shoulders brushed stone whenever she drifted off center. The light thinned into long pale strips that stretched ahead of her and faded behind, and through it all the pressure stayed steady, heavier than before but calm, aligned with the corridor as if it had measured her stride and decided what she could still manage.
+The corridor narrowed as she walked, not abruptly but in small degrees, the walls easing closer until her shoulders brushed stone whenever she drifted off center. The light thinned into long pale strips that stretched ahead of her and faded behind, and through it all the pressure stayed steady, heavier than before but calm, aligned with the corridor like it had measured her stride and decided what she could still manage.
 
 She followed because nothing in her body argued against it.
 
-The archway ahead opened into a smaller chamber where the corridor ended cleanly, the stone cut smooth and precise. A shallow circle was scored into the floor, the groove she had been following stopping exactly at its edge. When she stepped into the circle, the pressure eased and it felt finished, not permissive, as if the space had been waiting for her and was now satisfied.
+The archway ahead opened into a smaller chamber where the corridor ended cleanly, the stone cut smooth and precise. A shallow circle was scored into the floor, the groove she had been following stopping exactly at its edge. When she stepped into the circle, the pressure eased and it felt finished, not permissive, like the space had been waiting for her and was now satisfied.
 
 Rachel stopped.
 
@@ -1191,7 +1191,7 @@ The slate holder glanced at the device, then marked something down.
 
 The word landed and stayed.
 
-Rachel let out a breath she had not realized she was holding. The device was lowered, the hum fading as if it had never been there, and the pressure remained low and even, satisfied in a way it had not been before.
+Rachel let out a breath she had not realized she was holding. The device was lowered, the hum fading like it had never been there, and the pressure remained low and even, satisfied in a way it had not been before.
 
 The slate holder stepped closer to the circle's edge.
 
@@ -1237,7 +1237,7 @@ The pressure did not correct her.
 
 She went down hard, her shoulder striking stone as pain ripped through her leg and chest at once, white flashing across her vision. Someone shouted. The device clattered across the floor and skidded to a stop near the wall, its casing split, the light dark.
 
-Rachel lay on her side, gasping, the room tilting as if it had shifted without telling her. The crack in the floor widened by a hair and then stopped, the stone holding—temporarily, not fixed.
+Rachel lay on her side, gasping, the room tilting like it had shifted without telling her. The crack in the floor widened by a hair and then stopped, the stone holding—temporarily, not fixed.
 
 "That's impossible," someone said quietly.
 
@@ -1296,7 +1296,7 @@ Rachel's leg throbbed with each jolt of the carry. The bandage felt too tight no
 
 They did not set her down.
 
-They angled away from the tables and the groove, away from the visible lines that told the hall how to behave, and Rachel felt the pressure shift against her ribs as if it noticed the change too, the same sideways lean that had gotten her caught before.
+They angled away from the tables and the groove, away from the visible lines that told the hall how to behave, and Rachel felt the pressure shift against her ribs like it noticed the change too, the same sideways lean that had gotten her caught before.
 
 A door appeared in the stone wall where she had not noticed one earlier, darker than the surrounding rock, its edges cut clean. They pushed through it without slowing.
 
@@ -1306,7 +1306,7 @@ Not safe quiet.
 
 Work quiet.
 
-The room was narrow and bright, lit from slits high above, the floor stained in pale ghosts of older spills. A bench ran along one wall. Along the other stood a table with straps folded on top of it as if they had been set down between uses.
+The room was narrow and bright, lit from slits high above, the floor stained in pale ghosts of older spills. A bench ran along one wall. Along the other stood a table with straps folded on top of it like they had been set down between uses.
 
 Rachel's throat tightened.
 
@@ -5593,9 +5593,7 @@ Her chest locked.
 
 The pressure pressed a word into her head: stop.
 
-Not the ceiling speakers. Inside.
-
-Not loud. Not gentle. Just there, pressed exactly where the pressure peaked.
+Not the ceiling speakers—inside. Not loud, not gentle. Just there, pressed exactly where the pressure peaked.
 
 Rachel choked. Her mouth moved. Nothing followed.
 
@@ -6005,9 +6003,7 @@ Boots thundered somewhere above her again, closer now, the sound of pursuit reor
 
 The opening in the wall was wide enough now to see into.
 
-Not another hallway.
-
-Not a room.
+Not another hallway. Not a room.
 
 A space that didn’t finish resolving—edges blurring, light bending strangely, the floor inside slanting at an angle that didn’t correspond to gravity. Something inside it moved, not fast, not slow, just *out of phase* with the rest of the world.
 
@@ -7990,9 +7986,7 @@ They move toward the opening together, Rachel walking easily, Lena dragged by cl
 
 Behind them, someone laughs softly.
 
-Not unkindly.
-
-Not welcoming either.
+Not unkindly. Not welcoming either.
 
 Just amused.
 
@@ -10583,9 +10577,7 @@ The ground rose into low ridges that broke line of sight without enclosing it. R
 
 On the other side, something followed.
 
-Not close.
-
-Not far.
+Not close. Not far.
 
 It didn’t rush. It didn’t close distance. It matched her pace exactly, staying just at the edge of perception where her eyes refused to focus.
 
@@ -11204,11 +11196,7 @@ She almost laughed. “Of course it is.”
 
 The ground rose into overlapping ridges that crossed at odd angles, none of them committing to being paths. Shapes moved between them—presences rather than bodies, their outlines unstable, attention flickering in and out.
 
-Not markers.
-
-Not finished.
-
-Transit.
+Not markers. Not finished. Transit.
 
 Rachel skirted the edge, trying to stay where the ground felt least certain, but the pressure tugged her inward anyway.
 
@@ -12702,9 +12690,7 @@ Rachel could feel, with a cold clarity that settled deep in her chest, that if t
 
 But the choice hadn't been made yet.
 
-Not by the Relay.
-
-Not by her.
+Not by the Relay. Not by her.
 # Chapter 92 — Transfer
 
 The movement began without warning.
