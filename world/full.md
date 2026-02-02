@@ -8694,7 +8694,7 @@ Rachel hasn’t touched her.
 
 Rachel hasn’t done anything.
 
-She takes a half-step forward, instinctive, wanting to close the gap, wanting to be wrong in a way that matters, and the floor slides her foot just past where she aimed, placing her neatly, efficiently, between Lena and the open space of the room.
+She takes a half-step forward, instinctive, wanting to close the gap, wanting to be wrong and have it matter, and the floor slides her foot just past where she aimed, placing her neatly, efficiently, between Lena and the open space of the room.
 
 Helping.
 
@@ -8732,7 +8732,7 @@ It pauses anyway. Not startled. Not defensive. Just… considerate.
 
 Rachel swallows and looks at Lena.
 
-Lena is standing straight. Not rigid. Focused in a way that feels borrowed, like the clarity is being loaned out with interest. Her hands are clasped together hard enough that her knuckles have gone pale, fingers worrying each other in small, repetitive motions.
+Lena is standing straight. Not rigid. Focused with a borrowed kind of clarity, like it’s being loaned out with interest. Her hands are clasped together hard enough that her knuckles have gone pale, fingers worrying each other in small, repetitive motions.
 
 “You said it would stop the slipping,” Lena says.
 
@@ -8951,7 +8951,7 @@ It smiled slightly. Not kind. Not unkind. Familiar in the way a stranger's face 
 
 Lena shifted beside her. "Is it done?" she asked. The question landed carefully, like she didn't want to break anything. "What was happening to me."
 
-The presence turned its attention to her. Its expression gentled in a way that made Rachel's stomach twist.
+The presence turned its attention to her. Its expression gentled and Rachel's stomach twisted.
 
 "Yes," it said. "That part is finished."
 
@@ -9578,7 +9578,7 @@ Rachel opened her eyes. "And when they figure out the right places?"
 
 "Then you'll need to decide what you're going to do about it."
 
-The presence stood, or did something that suggested standing, its outline shifting in a way that made Rachel's eyes water.
+The presence stood, or did something that suggested standing, its outline shifting until Rachel's eyes watered.
 
 "We've talked enough for now," it said. "Think about what you've learned. Ask better questions next time."
 
@@ -10381,7 +10381,7 @@ She couldn’t hear it.
 
 “No,” they said. “But you aren’t fully here anymore.”
 
-Lena shook her head, words spilling out now, fast and angry, hands moving in a way that made Rachel’s chest ache. Rachel heard none of it. Not even the shape.
+Lena shook her head, words spilling out now, fast and angry, hands moving until Rachel’s chest ached. Rachel heard none of it. Not even the shape.
 
 Something cracked open behind her ribs, clean and frightening. “Say it to me,” she said, and hated the sound of it. “Say it louder.”
 
