@@ -2477,7 +2477,7 @@ She limped into the dark, and the lights followed at a distance she could feel.
 
 # Chapter 16 — The Light Followed Her In
 
-The dark run opened into a larger chamber, and the light followed her in.
+The dark run opened into a larger chamber, and the light followed her in, faithful as a dog you didn't want and couldn't kick off.
 
 A thin band slid under the door behind her, then through the seams in the walls, pale and wrong against the stone. The pressure tightened in her chest, sharp and sudden, like it had reacted before she did.
 
@@ -2504,7 +2504,7 @@ The ring pivoted toward her.
 The light locked on.
 # Chapter 17 — Light Before Sound
 
-The light reached her boots before the sound reached her ears.
+The light reached her boots before the sound reached her ears, and Rachel's brain supplied the punchline anyway: of course this place would prioritize measurement over warning.
 
 A narrow band slid across the floor, pale and steady, cutting the dark into measured sections. It stopped when it touched the toe of her left boot and stayed there, unwavering, as if waiting for something to line up.
 
@@ -2535,7 +2535,7 @@ The unit followed.
 
 Not closer.
 
-Close enough.
+Close enough—polite enough to pretend it wasn't touching her, mean enough to make sure she knew it could whenever it wanted.
 
 The pressure shoved her right at the junction before she registered the turn. She tried to hold the shove, and for half a step it eased. Then it surged again. She scraped her shoulder on stone and bit back a sound as nausea hit hard enough to steal her breath. Black crept at the edges of her vision. She gagged and kept moving.
 
