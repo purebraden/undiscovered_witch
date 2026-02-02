@@ -958,7 +958,7 @@ The street beyond was empty by design, shutters drawn, doors marked with a simpl
 
 Rachel limped forward. The pressure tightened when she angled toward the brighter street to her right, where voices and market noise carried on a steady hum. Nausea bit hard behind her eyes. She veered back to the quiet.
 
-A calm voice drifted from somewhere nearby. The words were not hers, but she understood them anyway. "Hold positions. No contact."
+A calm voice drifted from somewhere nearby. "Hold positions. No contact."
 
 She saw them then, not as a line of soldiers but as shapes at doorways, people who did not look at her but did not leave. The city was pretending she was not there while it watched her pass.
 
@@ -3171,7 +3171,7 @@ Nothing followed it.
 
 Lena grabbed her shoulders and shook her once. “What did you just do?”
 
-Rachel’s heart hammered, but her hands were still. Her breathing had already evened out.
+Rachel’s heart hammered, but her hands were still. Her breathing had already evened out—too fast, too tidy. That scared her more than shaking would have.
 
 Lena turned toward the room.
 
@@ -3295,7 +3295,7 @@ The room didn’t.
 
 Her balance slid downward, knees buckling as if the floor had dropped a fraction she couldn’t see. She hit hard, pain arriving late and wrong, muted like it had taken a detour.
 
-Rachel pushed herself upright before she remembered falling. Her hands were steady. Her breath had already evened out.
+Rachel pushed herself upright before she remembered falling. Her hands were steady. Her breath had already evened out—again—like her body kept choosing calm because panic would get her killed.
 
 Lena stared at her. “You didn’t brace.”
 
@@ -10804,7 +10804,7 @@ The figure tilted its head.
 
 “You’re leaking,” it said.
 
-The words weren’t in her language. She understood them anyway.
+The words weren’t in her language. Meaning arrived clean.
 
 Rachel’s throat went dry. “I’m trying not to.”
 
