@@ -3002,7 +3002,7 @@ Lena grabbed Rachel around the ribs and hauled her back. “Stop fighting it!”
 
 The hum deepened.
 
-Not louder. Denser. Like something had decided this room was no longer optional.
+Not louder—denser. Like something had decided this room was no longer optional.
 
 The man backed toward a metal door set into the far wall, fumbling for the latch. “Get out,” he said, voice breaking. “Get out now.”
 
@@ -3010,7 +3010,7 @@ The pressure twisted, confused and angry, then did something new.
 
 It moved Rachel.
 
-Not a shove. Not a pull.
+Not a shove. Not a pull. More like getting nudged by the hand you can’t see.
 
 Her weight shifted without her choosing it, balance snapping forward as if her body had skipped a step. She lurched, collided with Lena, and both of them went down hard.
 
@@ -4691,11 +4691,7 @@ Mara hesitated, the pause stretching just long enough to feel deliberate. “Whe
 
 The chair settled.
 
-Not straight.
-
-Not moving.
-
-Waiting.
+Not straight. Not moving. Waiting.
 
 Rachel breathed once, slow. “I don’t know yet.”
 
@@ -6279,13 +6275,13 @@ Rachel felt it immediately—the pressure inside her tightening, attention snapp
 
 They’re mapping stress through you, it warned.
 
-The wrong frame pulsed brighter, cables sinking imperceptibly deeper into the floor, as if rooting.
+The wrong frame pulsed brighter, cables sinking imperceptibly deeper into the floor, rooting.
 
 The other person took a step back.
 
 The floor under *their* feet responded differently—steadier, less delayed, like it preferred their weight. Rachel saw it happen and the noticing made everything worse.
 
-Her ankle flared with pain, sharp and jagged, and the floor dipped harder beneath her this time, late but decisive, as if it had finally made up its mind.
+Her ankle flared with pain, sharp and jagged, and the floor dipped harder beneath her this time, late but decisive, like it had finally made up its mind.
 
 The other person swore under their breath. “It’s pulling *you*,” they said, voice tight. “That’s not good.”
 
@@ -6293,7 +6289,7 @@ Rachel laughed once, breathless. “You’re saying that like it’s new.”
 
 You are the variable.
 
-The lights drained again, edges of the room smearing as if someone had dragged a thumb across reality. The hum deepened until it vibrated in her teeth.
+The lights drained again, edges of the room smearing like someone had dragged a thumb across reality. The hum deepened until it vibrated in her teeth.
 
 The boots were closer now—individual steps audible, cadence breaking and reforming as whoever was moving recalibrated.
 
@@ -7024,10 +7020,7 @@ The ringing slams into her skull a half-second later, high and sudden, a thin sc
 
 There it is, the voice said.
 
-The voice is right there now.
-
-Not distant.  
-Not restrained.
+The voice is right there now—not distant, not restrained.
 
 Bright with it.
 
@@ -7313,10 +7306,7 @@ Rachel swallows, the ringing tightening just enough to be felt. “I don’t wan
 
 They crest a small rise and the trees fall back, revealing a cluster of buildings below, half-lit and uneven, lights burning in a few windows while others sit dark and hollow like missing teeth. It isn’t big enough to be a town or small enough to be nothing, just a place people stopped agreeing about all at once and never quite finished leaving.
 
-The ringing shifts.
-
-Not sharp.  
-Not loud.
+The ringing shifts. Not sharp, not loud.
 
 Interested.
 
