@@ -301,7 +301,7 @@ They watched.
 
 Faces hovered behind shutters. Eyes tracked her from alleys that smelled of damp and rot. The light under Rachel's skin pulsed with her heartbeat, brightening with each step, and with it came a faint shift in the air, like breathing out of time with her own.
 
-She reached a narrow square with a dry fountain at its center and slowed despite herself. Something dark stained the basin, flaked and old. She did not look closely.
+She reached a narrow square with a dry fountain at its center and slowed despite herself. Something dark stained the basin, flaked and old. She didn't look closely. She could guess; that was enough.
 
 The pull sharpened.
 
@@ -397,11 +397,7 @@ The cages rattled.
 
 The things inside pressed forward.
 
-Rachel stood there shaking, blood soaking her boot, light pulsing under her skin, the sound of horns above and breathing below.
-
-She did not step forward.
-
-She did not run.
+Rachel stood there shaking, blood soaking her boot, light pulsing under her skin, the sound of horns above and breathing below. She didn't step forward or run. She just stood there and waited for her body to betray her again.
 
 The pressure waited.
 
@@ -1817,7 +1813,7 @@ Rachel noticed it because her body kept bracing for it anyway, muscles tight and
 
 Footsteps passed the opening again, close enough that light slid across the narrow gap and touched the stone at Rachel's feet before pulling away. She held her breath without deciding to and felt how little air she actually needed when fear did the work.
 
-Lena stayed still beside her, shoulder pressed into the wall, eyes on the opening. She did not look at Rachel. She did not need to.
+Lena stayed still beside her, shoulder pressed into the wall, eyes on the opening. She didn't look at Rachel because looking wouldn't fix anything.
 
 Something shifted.
 
@@ -2083,13 +2079,11 @@ The stone sealed shut.
 
 Rachel was alone in the dark.
 
-She did not scream.
-
-She did not move.
+She didn't scream. She didn't move.
 
 And in the black, the pressure settled, quiet and patient, as if it had been waiting for this shape of absence all along.
 
-Rachel did not scream when the recess sealed. She did not have air to waste on it.
+She didn't have air to waste on it.
 
 She pressed a hand to the wall where Lena had pushed her and felt for a seam. Smooth. Cold. No give. The pressure inside her tightened, not a shove, a warning.
 
