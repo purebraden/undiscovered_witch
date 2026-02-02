@@ -5095,7 +5095,7 @@ Then stalled, like it had hit resistance it hadn’t been designed to name, and 
 
 Mara said Rachel’s name, too quiet to matter.
 
-The room dragged against the imposed shape and didn’t release, timing stretching and scraping, the structure shuddering and holding and adjusting as if it were learning the room’s rules by being forced to keep contact with them.
+The room dragged against the imposed shape and didn’t release, timing stretching and scraping, the structure shuddering and holding and adjusting—learning the room’s rules the hard way, by being forced to keep contact with them.
 
 Rachel stayed where she was, breath shallow, hands flat, the pressure tight against her ribs as the space around her negotiated itself out of step with the thing meant to hold it, neither one yielding, neither one breaking.
 
@@ -5157,7 +5157,7 @@ The structure stayed.
 
 # Chapter 36 — The Wall Plate
 
-The wall plate lit again, dimmer this time, the glow softened as if it had learned how bright it was allowed to be.
+The wall plate lit again, dimmer this time, the glow softened, learning how bright it was allowed to be.
 
 Mara didn’t turn right away. She stayed where she was, back still to the wall, listening to the hum and the faint vibration in the chair that hadn’t gone away so much as learned how to be quieter.
 
@@ -5235,11 +5235,11 @@ And the room, still out of step, kept trying to meet it.
 
 The structure tightened before anything else did.
 
-No change in Rachel’s breath, no shift of her shoulders, no movement in her hands pressed flat against her thighs, and still the panels drew in by a fraction, the hum sharpening for half a second as if it had received a signal the room hadn’t bothered to share.
+No change in Rachel’s breath, no shift of her shoulders, no movement in her hands pressed flat against her thighs, and still the panels drew in by a fraction, the hum sharpening for half a second like it had received a signal the room hadn’t bothered to share.
 
 Mara’s head lifted. Her eyes went to Rachel’s chest, then to the panels, then away again, like looking too long might make it happen more.
 
-The pressure stayed close to Rachel’s ribs, dense and quiet, occupying space without weight until the room lagged and it arrived late, heavier, compressed, as if the delay itself had substance.
+The pressure stayed close to Rachel’s ribs, dense and quiet, occupying space without weight until the room lagged and it arrived late, heavier, compressed; the delay itself felt thick.
 
 The chair vibrated faintly.
 
@@ -5285,7 +5285,7 @@ The structure tightened.
 
 Rachel’s breath didn’t change.
 
-The room lagged anyway, light and sound and pressure sliding out of step and then snapping back, not clean, not stable, as if the space kept trying to decide which moment it was in.
+The room lagged anyway, light and sound and pressure sliding out of step and then snapping back, not clean, not stable, like the space kept trying to decide which moment it was in.
 
 Mara’s hand lifted toward the wall plate and stopped short of touching it, fingers curling back in on themselves.
 
@@ -5299,7 +5299,7 @@ A pause that didn’t belong to technical systems, stretched just long enough to
 
 Not here, then. Somewhere else. Somebody else’s floor arriving late. Somebody else eating the cost.
 
-The pressure shifted, dense and curious, not leaving Rachel, only changing its angle as if the room had opened a second point of interest somewhere beyond the stone.
+The pressure shifted, dense and curious, not leaving Rachel, only changing its angle like the room had opened a second point of interest somewhere beyond the stone.
 
 The structure held steady around the chair.
 
@@ -5311,7 +5311,7 @@ Mara’s jaw tightened. “You mean it moved.”
 
 “Reallocated,” the voice said.
 
-The hum sharpened and smoothed, sharpened again, the structure making tiny corrections that no longer waited for anything it could name. The panels tightened before Rachel’s breath changed, then loosened after, then tightened again as if it were practicing.
+The hum sharpened and smoothed, sharpened again, the structure making tiny corrections that no longer waited for anything it could name. The panels tightened before Rachel’s breath changed, then loosened after, then tightened again, practicing.
 
 The room followed late.
 
@@ -5361,7 +5361,7 @@ After “Prepare transfer,” baseline didn’t mean much. It was just a word yo
 
 The structure stayed where it was.
 
-Panels held their distance from the chair, neither tightening nor easing, the hum flattened into a narrow band that didn’t scrape anymore, didn’t hunt for correction. It ignored the faint vibration under the chair and the small changes in Rachel’s breath, as if it had already decided what counted.
+Panels held their distance from the chair, neither tightening nor easing, the hum flattened into a narrow band that didn’t scrape anymore, didn’t hunt for correction. It ignored the faint vibration under the chair and the small changes in Rachel’s breath, like it had already decided what counted.
 
 Rachel stayed seated.
 
