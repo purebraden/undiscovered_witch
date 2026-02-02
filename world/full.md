@@ -2600,26 +2600,27 @@ A narrow band slid across the floor, pale and steady, cutting the dark into meas
 
 Rachel froze.
 
-Pressure gathered under her ribs. Not pain. Not yet. Just enough weight to warn her that stillness was the wrong answer.
-Her body recognized the weight before she did.
+Something gathered under her ribs. Not pain. Not yet. Just enough weight to warn her that stillness was the wrong answer. Her body recognized the weight before she did.
 
 She shifted her weight.
 
-The light brightened a fraction.
-She tried it again, smaller. The light answered again.
+The light brightened a fraction. She tried it again, smaller. The light answered again.
 
 Something hummed behind it. Low and even, the sound of a system running exactly as intended.
 
-Rachel stepped back. The stone beneath her heel warmed, heat blooming too fast to be natural. The pressure tightened, nausea rising sharp and fast, and she lurched sideways instead, catching herself on the wall as the light slid forward and settled where she had been standing.
+It's tracking me. This thing is tracking me like I'm a target.
+
+Rachel stepped back. The stone beneath her heel warmed, heat blooming too fast to be natural. The thing tightened, nausea rising sharp and fast, and she lurched sideways instead, catching herself on the wall as the light slid forward and settled where she'd been standing.
 
 The unit rolled into view.
 
-It stayed low to the ground, a wide ring moving without visible joints. The light came from inside it, sweeping outward in slow arcs that never crossed the walls, never rushed ahead.
-She knew its sweep pattern, the pause at her left boot. The knowledge arrived ahead of memory.
+It stayed low to the ground, a wide ring moving without visible joints. The light came from inside it, sweeping outward in slow arcs that never crossed the walls, never rushed ahead. She knew its sweep pattern, the pause at her left boot. The knowledge arrived ahead of memory.
+
+How do I know that? How the hell do I know that?
 
 It followed at a fixed distance.
 
-Rachel limped down the corridor, favoring her bad leg, every step negotiated between pain and the pressure urging her onward. The walls narrowed ahead, seams faintly glowing as systems woke and adjusted.
+Rachel limped down the corridor, favoring her bad leg, every step negotiated between pain and the thing urging her onward. The walls narrowed ahead, seams faintly glowing as systems woke and adjusted.
 
 The unit followed.
 
@@ -2627,7 +2628,7 @@ Not closer.
 
 Close enough.
 
-The pressure shoved her right at the junction before she registered the turn. She tried to hold the shove, and for half a step it eased. Then it surged again. She scraped her shoulder on stone and bit back a sound as nausea hit hard enough to steal her breath. Black crept at the edges of her vision. She gagged and kept moving.
+The thing shoved her right at the junction before she registered the turn. She tried to hold the shove, and for half a step it eased. Then it surged again. She scraped her shoulder on stone and bit back a sound as nausea hit hard enough to steal her breath. Black crept at the edges of her vision. She gagged and kept moving.
 
 Behind her, the hum deepened by a note.
 
@@ -2671,7 +2672,7 @@ A man stood near a stack of crates, hands lifting slowly as he saw her. A dull w
 
 Rachel opened her mouth.
 
-The pressure slammed down and stole the word.
+The thing slammed down and stole the word.
 
 The hum grew louder.
 
@@ -2681,7 +2682,7 @@ The man’s eyes slid past her shoulder. Color drained from his face.
 
 Rachel tried to move past him.
 
-The pressure flared sideways.
+The thing flared sideways.
 
 The floor between them dipped, just enough to knock him off balance. He stumbled into the crates and went down hard, a sharp cry torn from his throat.
 
