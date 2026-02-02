@@ -8708,7 +8708,7 @@ Whatever shape she’s in now, it isn’t one she remembers choosing.
 
 # Chapter 61 — Registered
 
-The paper doesn’t arrive.
+The paper doesn’t arrive. Of course it doesn’t.
 
 It’s already there, tucked under the crate like it slid there on its own and never bothered to announce itself. Rachel only notices it when one of them reaches for it, fingers hooking the edge, pulling it free with the carefulness of someone handling something that’s been used too many times to argue back.
 
@@ -11299,7 +11299,7 @@ Rachel stared into the thinning space, heart hammering.
 She stepped forward because the ground behind her was already letting go.
 # Chapter 80 — Perimeter
 
-The Relay didn't announce itself.
+The Relay didn't announce itself. Of course it didn't.
 
 One step, Rachel was in the Between. The next, she was somewhere else.
 
