@@ -50,7 +50,7 @@ Rachel laughed, short and bitter. "That's worse."
 
 *Yes,* the voice agreed. *It is.*
 
-She stared at the space ahead of her, the way depth layered without quite resolving. "Why did they summon you? Why put a demon in a person at all?"
+She stared at the space ahead of her, the way depth layered without quite resolving. "Why did they summon you? Why put something like you in a person at all?"
 
 The answer came immediately this time.
 
@@ -58,7 +58,7 @@ The answer came immediately this time.
 
 "What?"
 
-*Demons do not move easily. Humans do.* A beat. *They wanted something that could carry me. Something that would follow instructions.*
+*Things like me do not move easily. Humans do.* A beat. *They wanted something that could carry me. Something that would follow instructions.*
 
 Rachel felt her stomach turn. "A vessel. Like a vehicle."
 

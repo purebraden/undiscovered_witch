@@ -20,13 +20,31 @@ It gestured, and the space around them seemed to thicken, sounds from elsewhere 
 
 Rachel's throat tightened. "The Convocation."
 
-"An organization," the presence continued, "that trades in demon bindings. They perform controlled summonings. Place demons in vessels they own. Use them."
+"An organization," the presence continued, "that trades in bindings. They perform controlled summonings. Place things in vessels they own. Use them."
 
-"Use them for what?"
+"Things," Rachel repeated. "What kind of things?"
 
-"Whatever requires something that moves like a human but carries something else inside." The presence smiled again, thinner this time. "You'd be surprised what people pay for."
+The presence studied her for a moment. When it spoke again, the word came out deliberate, weighted, like it was being placed rather than said.
 
-Rachel felt sick. "So they wanted to put a demon in someone and... what? Sell them?"
+"Demons."
+
+The sound of it landed wrong. Too solid. Too old. Rachel felt the voice inside her go very still.
+
+"That's what you've been carrying," the presence continued. "That's what they want back. The Convocation deals in demons — acquiring them, binding them, deploying them for purposes that benefit their clients."
+
+Rachel's mouth had gone dry. "Demons."
+
+"You didn't know the word," the presence said. It wasn't a question.
+
+"I knew there was something." Rachel's voice came out thin. "I didn't know it had a name."
+
+"Everything has a name. Most people don't survive long enough to learn the right ones."
+
+The voice inside her stirred, finally.
+
+*That word,* it said. *I remember that word.*
+
+Rachel swallowed. "So they wanted to put a demon in someone and... what? Sell them?"
 
 "Deploy them," the presence corrected. "Rent them. Loan them out for tasks that require certain capabilities." It paused. "The vessel isn't supposed to survive long-term. That's not the point."
 
@@ -36,7 +54,7 @@ Rachel felt sick. "So they wanted to put a demon in someone and... what? Sell th
 
 "Damage to what?"
 
-"To the demon," the presence said simply. "You're secondary."
+"To the demon," the presence said, and the word felt heavier the second time. "You're secondary."
 
 Rachel laughed, the sound scraping out of her throat. "Of course I am."
 
@@ -44,9 +62,9 @@ Rachel laughed, the sound scraping out of her throat. "Of course I am."
 
 "Why not preferred?"
 
-"Because if you die wrong, the binding breaks wrong." The presence leaned closer, voice dropping. "And what's inside you might not transfer cleanly. Might disperse. Might become something they can't recapture at all."
+"Because if you die wrong, the binding breaks wrong." The presence leaned closer, voice dropping. "And the demon might not transfer cleanly. Might disperse. Might become something they can't recapture at all."
 
-The voice inside Rachel stirred, sharp and alert.
+The voice inside Rachel tightened, sharp and alert.
 
 *Don't ask the next question,* it said.
 

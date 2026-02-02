@@ -10,7 +10,7 @@ Lena turned, eyes sharp. "Good things?"
 
 Lena's expression didn't change, but something in her posture stiffened. "Tell me."
 
-So Rachel did. The Convocation. The Relay. The binding that locked wrong. The demon inside her that was supposed to be a tool, delivered to a facility, placed in someone who'd been broken first.
+So Rachel did. The Convocation. The Relay. The binding that locked wrong. What she'd been carrying — the word still felt strange in her mouth, too solid, too old — that was supposed to be a tool, delivered to a facility, placed in someone who'd been broken first.
 
 Lena listened without interrupting. When Rachel finished, she was quiet for a long moment.
 
@@ -30,11 +30,11 @@ Rachel had been thinking about this. She'd asked the presence, gotten answers th
 
 "That's one."
 
-"Let them catch me." Rachel's voice flattened. "They extract the demon, I die, they get what they wanted. Problem solved for everyone except me."
+"Let them catch me." Rachel's voice flattened. "They extract what's inside me, I die, they get what they wanted. Problem solved for everyone except me."
 
 Lena's jaw tightened. "That's not an option."
 
-"It's on the list." Rachel exhaled. "Three: destroy the binding entirely. Kill both me and the demon. Make sure they can't get it back."
+"It's on the list." Rachel exhaled. "Three: destroy the binding entirely. Kill both of us — me and it. Make sure they can't get it back."
 
 "Rachel—"
 
@@ -44,17 +44,17 @@ Lena stared at her for a long moment, then nodded. "What's four?"
 
 Rachel felt the voice stir inside her, attentive.
 
-"Find where the demon was supposed to go," she said. "Complete the binding on my terms. Fuse it permanently so it can't be extracted."
+"Find where it was supposed to go," she said. "Complete the binding on my terms. Fuse it permanently so it can't be extracted."
 
 The words hung between them.
 
 Lena frowned. "What does that mean? Complete it how?"
 
-"The binding is incomplete because the circle broke mid-transfer. The demon is in me, but it's not... settled. Not finished." Rachel pressed her hands together. "If I go to where it was supposed to end up — the Relay — I can either be captured and drained, or I can finish the binding myself."
+"The binding is incomplete because the circle broke mid-transfer. It's in me, but it's not... settled. Not finished." Rachel pressed her hands together. "If I go to where it was supposed to end up — the Relay — I can either be captured and drained, or I can finish the binding myself."
 
 "And if you finish it?"
 
-"Then we're fused. Permanently. The demon and me become something that can't be separated." Rachel swallowed. "They can't extract it because there's no distinction anymore. It's not in me — it is me."
+"Then we're fused. Permanently. What's inside me and me become something that can't be separated." Rachel swallowed. "They can't extract it because there's no distinction anymore. It's not in me — it is me."
 
 Lena was very still. "That sounds like it changes you."
 

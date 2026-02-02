@@ -18,9 +18,9 @@ Rachel felt the voice stir, wary.
 
 *That's true,* it said. *I can feel the pull. It's faint here, but it's there.*
 
-"The binding was incomplete because the circle broke," Rachel said. "The demon was being transferred from somewhere. A holding space?"
+"The binding was incomplete because the circle broke," Rachel said. "What I'm carrying was being transferred from somewhere. A holding space?"
 
-"Yes," the presence said. "A prison, of sorts. Where demons are kept until the Convocation is ready to deploy them."
+"Yes," the presence said. "A prison, of sorts. Where things like it are kept until the Convocation is ready to deploy them."
 
 "And it was supposed to go to the Relay."
 
@@ -28,11 +28,11 @@ Rachel felt the voice stir, wary.
 
 Rachel's stomach turned. "Broken."
 
-"Prepared," the presence corrected, though its tone suggested the distinction was thin. "The Convocation prefers vessels that don't fight. The binding settles faster. The demon has less to overcome."
+"Prepared," the presence corrected, though its tone suggested the distinction was thin. "The Convocation prefers vessels that don't fight. The binding settles faster. There's less to overcome."
 
 "And me?"
 
-"You fought. You're still fighting." Something like respect crossed the presence's features. "That's why the binding locked wrong. The demon couldn't settle because you wouldn't stop resisting."
+"You fought. You're still fighting." Something like respect crossed the presence's features. "That's why the binding locked wrong. It couldn't settle because you wouldn't stop resisting."
 
 *That's not entirely accurate,* the voice said. *You weren't resisting. You were surviving. It's different.*
 
@@ -42,7 +42,7 @@ The presence was quiet for a moment. "That depends on how you arrive."
 
 "Explain."
 
-"If you arrive as a captive, they extract the demon and you die. The binding is broken, the demon is re-contained, and they try again with a proper vessel."
+"If you arrive as a captive, they extract what's inside you and you die. The binding is broken, it's re-contained, and they try again with a proper vessel."
 
 "And if I arrive on my own terms?"
 
@@ -50,7 +50,7 @@ The presence smiled, slow and knowing. "Then you have a choice. You can complete
 
 "And then?"
 
-"Then you and the demon become one thing. Inseparable. The distinction between you dissolves." The presence leaned closer. "They can't extract something that doesn't have edges. They can't separate something that was never really two things."
+"Then you and it become one thing. Inseparable. The distinction between you dissolves." The presence leaned closer. "They can't extract something that doesn't have edges. They can't separate something that was never really two things."
 
 Rachel felt a strange calm settle over her. "That's what I want."
 

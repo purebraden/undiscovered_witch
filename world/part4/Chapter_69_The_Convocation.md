@@ -14,9 +14,13 @@ The presence settled into something that might have been a teaching posture, if 
 
 "Demons. Spirits. Things with capabilities humans find useful." The presence gestured loosely. "They have summoning circles in several locations. Specialists who know how to call specific types. Vessels prepared in advance."
 
-Rachel felt her stomach clench. "Prepared how?"
+The word still felt strange to hear spoken aloud. Demon. Like something that should have stayed buried.
 
-"Broken," the presence said simply. "Hollowed. Made compliant before the binding so the demon has less to fight against."
+Rachel felt the voice stir inside her but it didn't comment.
+
+"Prepared how?" she asked.
+
+"Broken," the presence said simply. "Hollowed. Made compliant before the binding so what goes in has less to fight against."
 
 "People," Rachel said. "You're talking about people."
 
@@ -30,9 +34,9 @@ Rachel swallowed hard. "And the circle I fell through?"
 
 "Their primary binding facility. Where transfers are completed. Where vessels are finalized." The presence paused. "Where you were supposed to end up, if the circle hadn't broken."
 
-Rachel felt cold spread through her chest. "So they were pulling the demon from somewhere else. And I got in the way."
+Rachel felt cold spread through her chest. "So they were pulling it from somewhere else. And I got in the way."
 
-"You fell through the gap the break created. The demon had nowhere to go except into you." The presence tilted its head. "An accident with consequences they're still trying to correct."
+"You fell through the gap the break created. It had nowhere to go except into you." The presence tilted its head. "An accident with consequences they're still trying to correct."
 
 "How long have they been trying?"
 
@@ -40,7 +44,7 @@ Rachel felt cold spread through her chest. "So they were pulling the demon from 
 
 "Here is safe?"
 
-"Here is outside their reach," the presence corrected. "For now. They don't enter demon-held spaces without negotiation, and we haven't agreed to negotiate."
+"Here is outside their reach," the presence corrected. "For now. They don't enter spaces like this without negotiation, and we haven't agreed to negotiate."
 
 Rachel processed that. "So I'm protected because I'm on your territory."
 
