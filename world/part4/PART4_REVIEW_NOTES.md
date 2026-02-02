@@ -1,59 +1,54 @@
-# Part 4 Review Notes
+# Part 4 Review Notes — UPDATED
 
-## Chapter Numbering ✅
-- Part 3 ends: Chapter 63 — Registered
-- Part 4 starts: Chapter 64 — Still Here
-- **CORRECT**: Numbering continues properly
+## Status: COMPLETE
 
-## Voice/Tone ✅
-The Part 4 chapters maintain excellent consistency with Parts 1-3:
-- Short, punchy sentences and fragments
+All outline elements have been incorporated. Chapters have been renumbered.
+
+## Final Chapter Structure (20 chapters: 64-83)
+
+### Original Chapters (64-66)
+- Chapter 64 — Still Here
+- Chapter 65 — The Shape of Asking  
+- Chapter 66 — What the Space Keeps
+
+### NEW Chapters (67-72) — Added to fill outline gaps
+- **Chapter 67 — The Binding's Purpose** (Rachel confronts demon directly)
+- **Chapter 68 — What Wants Her Dead** (Rachel asks the right question)
+- **Chapter 69 — The Convocation** (Rachel learns about her hunters)
+- **Chapter 70 — What She Could Do** (Rachel learns her four options)
+- **Chapter 71 — The Original Destination** (Rachel learns about the Relay)
+- **Chapter 72 — Not a Tool** (Rachel and demon reach understanding)
+
+### Renumbered Chapters (73-83) — Previously 67-77
+- Chapter 73 — The Wrong Order of Things (was 67)
+- Chapter 74 — How to Be Smaller (was 68)
+- Chapter 75 — The Shape That Settles (was 69)
+- Chapter 76 — The Part That Doesn't Come With You (was 70)
+- Chapter 77 — Where You're Expected to Be (was 71)
+- Chapter 78 — While This Continues (was 72)
+- Chapter 79 — What It Costs (was 73)
+- Chapter 80 — Someone Else Holds It (was 74)
+- Chapter 81 — Where It Has to Finish (was 75)
+- Chapter 82 — What Doesn't Carry (was 76)
+- Chapter 83 — The Part Where You Go (was 77)
+
+## Outline Elements Now Present
+
+| Element | Chapter | Status |
+|---------|---------|--------|
+| The Convocation explained | Ch 68-69 | ✅ |
+| The Relay explained | Ch 71 | ✅ |
+| "What wants me dead?" | Ch 68 | ✅ |
+| Demon's purpose as tool/transport | Ch 67, 72 | ✅ |
+| Four options presented | Ch 70 | ✅ |
+| Rachel/demon understanding | Ch 72 | ✅ |
+| Emotional separation arc | Ch 73-82 | ✅ |
+| Rachel departing | Ch 83 | ✅ |
+
+## Voice/Tone Consistency
+All new chapters written to match the established style:
+- Short, punchy sentences
 - Present tense throughout
-- Body-focused descriptions (weight, balance, breath)
-- Internal "voice" continues commenting
+- Body-focused descriptions
+- Internal "voice" commentary
 - Sparse dialogue
-- Slower pacing (intentional per outline)
-
-## Chapter List (14 total, outline planned 12)
-1. Chapter 64 — Still Here
-2. Chapter 65 — The Shape of Asking
-3. Chapter 66 — What the Space Keeps
-4. Chapter 67 — The Wrong Order of Things
-5. Chapter 68 — How to Be Smaller
-6. Chapter 69 — The Shape That Settles
-7. Chapter 70 — The Part That Doesn't Come With You
-8. Chapter 71 — Where You're Expected to Be
-9. Chapter 72 — While This Continues
-10. Chapter 73 — What It Costs
-11. Chapter 74 — Someone Else Holds It
-12. Chapter 75 — Where It Has to Finish
-13. Chapter 76 — What Doesn't Carry
-14. Chapter 77 — The Part Where You Go
-
-## Outline vs. Actual: Content Gaps
-
-### MISSING from outline:
-- **The Convocation**: Organization hunting Rachel (not mentioned)
-- **The Relay**: Specific destination for binding completion (not mentioned)
-- **"What wants me dead?"**: Direct question/answer sequence (not present)
-- **Demon's purpose explained**: Being transported as a tool (not present)
-- **Four options presented**: Stay/capture/complete/destroy (not present)
-- **Direct demon confrontation**: Rachel asking about its purpose (not present)
-
-### PRESENT (accomplishes outline themes):
-- ✅ Safety that doesn't feel safe (Ch 64-65)
-- ✅ Questions as currency (Ch 65-66)
-- ✅ Other registered beings (Ch 66-69)
-- ✅ Growing physical/emotional distance (Ch 70-74)
-- ✅ Rachel causing "variance" (Ch 67-72)
-- ✅ Build to Rachel needing to leave (Ch 73-75)
-- ✅ Emotional farewell (Ch 76-77)
-- ✅ End on motion (Ch 77)
-
-## Summary
-The current Part 4 tells a coherent emotional story of Rachel and Lena's separation, but diverges from the outline's planned plot revelations. The voice/tone matches perfectly. Chapter numbering is correct.
-
-### Decision Needed:
-1. Revise to incorporate outline elements (Convocation, Relay, demon backstory)?
-2. Keep as-is since emotional arc works?
-3. Add 1-2 chapters to include missing worldbuilding?
