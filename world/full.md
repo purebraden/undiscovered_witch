@@ -893,6 +893,10 @@ Two people in dark coats arrived and went straight to the fallen pair. A third s
 
 "No contact," he said.
 
+One of the coats glanced at the woman on the floor, then at Rachel, and muttered, "We thought it was proximity."
+
+The other didn't look up. "It's timing," he said. "Keep her moving."
+
 Behind Rachel, stone ground against stone. The corridor she had come through began to seal, seams dimming like someone had erased them.
 
 The pressure tightened and pulled her forward. She stepped because the only other option was the closing wall at her back.
@@ -4139,11 +4143,17 @@ The woman took the clipboard back.
 
 Rachel nodded once.
 
+She looked down at her hands—grime, old blood under her nails, chalk dust caught in the creases. “Can I wash?”
+
+“Not without escort,” the woman said, like it was a question people asked and got told no to all day.
+
 “And,” the woman added, “you don’t leave Railroad supervision.”
 
 Lena stepped forward. “You can’t keep her.”
 
 The woman looked tired now. “We’re not keeping her. We’re keeping everyone else.”
+
+Something in Lena’s face shifted at that—like strict rules had been one thing, and triage-by-clipboard was another.
 
 Rachel’s hands curled slightly against her thighs. The pressure stirred in response, then settled again, indulgent.
 
@@ -7452,6 +7462,7 @@ I am stopped, it said.
 Her chest tightens. The ringing is barely there now, a distant echo, but the voice remains, settled somewhere nearer than it should be.
 
 Rachel looks toward the door. The broken chair leans against it at a useless angle, wood splintered, lock hanging open. It doesn’t feel like an exit. It feels like a suggestion the building hasn’t bothered to argue with.
+In the facility, the chair had taught her something she hadn’t wanted to know: wrongness could be permitted, filed, left in place on purpose.
 
 She shifts her weight again, testing.
 
@@ -13364,6 +13375,8 @@ Rachel planted her feet.
 
 The pressure hit her like a wall—not physical force, but constraint, her body being told to stop, to yield, to accept correction. Her muscles locked. Her breath shortened. The light beneath her skin compressed under the weight of the system's attention.
 
+For a flash she saw Miri’s arm in her head—movement arriving late, the body out of order—and understood the shape of it: not pain, not magic, but timing being taken away.
+
 But it didn't go out.
 
 Rachel focused on that light. On the binding that was hers now, not the Relay's. On the completion that meant she wasn't a variable to be corrected anymore.
@@ -13393,6 +13406,8 @@ The nearest handler reached for her.
 Its hand passed through the air where her shoulder should have been and found nothing. Not absence—displacement. She was already a step past where it expected her to be, the binding adjusting her position in ways that didn't register on the system's sensors.
 
 *You're learning to use it,* the voice observed, something like wonder threading through the thought.
+
+*And I'm learning through you,* it added, quieter. *Every choice teaches me where the edges are.*
 
 "I'm learning to not be where they expect," Rachel corrected.
 
